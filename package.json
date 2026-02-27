@@ -9,7 +9,9 @@
     "astro": "astro"
   },
   "dependencies": {
+    "@fontsource/courier-prime": "^5.2.8",
     "@fontsource/kanit": "^5.2.8",
+    "@fontsource/playfair-display": "^5.2.8",
     "@fontsource/space-mono": "^5.2.9",
     "@fontsource/vt323": "^5.2.7",
     "@tailwindcss/vite": "^4.2.1",

@@ -2,9 +2,11 @@
 interface Props {
 	title: string;
 }
-// Importando as novas fontes Retro/Tech
-import '@fontsource/vt323';
-import '@fontsource/space-mono';
+// Fontes de Jornal
+import '@fontsource/playfair-display/400.css';
+import '@fontsource/playfair-display/700.css';
+import '@fontsource/playfair-display/900.css';
+import '@fontsource/courier-prime';
 import '../styles/global.css';
 
 const { title } = Astro.props;
@@ -14,18 +16,17 @@ const { title } = Astro.props;
 <html lang="pt-br" class="scroll-smooth">
 	<head>
 		<meta charset="UTF-8" />
-		<meta name="description" content="A central de inteligência do torcedor do São Paulo FC." />
+		<meta name="description" content="O diário oficial não-oficial do São Paulo FC." />
 		<meta name="viewport" content="width=device-width" />
 		<link rel="icon" type="image/svg+xml" href="/escudo-spfc.svg" />
 		<meta name="generator" content={Astro.generator} />
 		<title>{title}</title>
 	</head>
-	<!-- Aplicando a fonte Space Mono como padrão e VT323 para onde quisermos destaque -->
-	<body class="bg-black text-white font-['Space_Mono'] antialiased selection:bg-spfc-red selection:text-white">
-		<!-- Background sutil estilo CRT/Terminal -->
-		<div class="fixed inset-0 bg-[#050505] -z-10"></div>
+	<body class="bg-[#111] text-[#ddd] font-['Courier_Prime'] antialiased selection:bg-spfc-red selection:text-white">
+		<!-- Textura de papel sutil no fundo -->
+		<div class="fixed inset-0 opacity-[0.03] pointer-events-none" style="background-image: url('https://www.transparenttextures.com/patterns/black-paper.png');"></div>
 		
-		<main class="container mx-auto px-4 sm:px-6 lg:px-8 min-h-screen relative">
+		<main class="container mx-auto px-4 sm:px-6 lg:px-8 min-h-screen relative border-l border-r border-[#333] bg-[#111] max-w-5xl shadow-2xl">
 			<slot />
 		</main>
 	</body>

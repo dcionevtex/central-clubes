@@ -4,68 +4,72 @@ import { getCollection } from 'astro:content';
 
 const allNews = await getCollection('noticias');
 const sortedNews = allNews.sort((a, b) => new Date(b.data.pubDate).valueOf() - new Date(a.data.pubDate).valueOf()).slice(0, 20);
+
+// Separa a manchete principal das outras
+const mainStory = sortedNews[0];
+const otherStories = sortedNews.slice(1);
 ---
 
-<Layout title="Central SPFC">
-	<!-- Faixa Tricolor Superior -->
-	<div class="fixed top-0 left-0 w-full z-50 shadow-lg border-b border-white/10">
-		<div class="h-2 bg-spfc-red"></div>
-		<div class="h-2 bg-spfc-white"></div>
-		<div class="h-2 bg-spfc-black"></div>
-	</div>
-
-	<!-- Header com Escudo -->
-	<div class="mt-16 mb-12 flex flex-col items-center justify-center">
-		<img src="/escudo-spfc.svg" alt="Escudo São Paulo FC" class="w-20 h-20 mb-6 drop-shadow-2xl opacity-90 hover:opacity-100 transition-opacity" />
-		
-		<!-- Título com fonte RETRO -->
-		<h1 class="font-['VT323'] text-6xl md:text-8xl text-center leading-none uppercase tracking-widest">
-			<span class="text-spfc-red drop-shadow-[0_0_10px_rgba(226,0,26,0.5)]">Central</span>
-			<span class="text-white drop-shadow-[0_0_10px_rgba(255,255,255,0.5)]">SPFC</span>
-		</h1>
-		
-		<div class="mt-4 flex items-center gap-2 text-spfc-red font-mono text-xs md:text-sm tracking-widest border border-spfc-red/30 px-3 py-1 rounded bg-spfc-red/5">
-			<span class="animate-pulse">●</span> SISTEMA ONLINE
+<Layout title="Central SPFC • O Diário">
+	<!-- Cabeçalho do Jornal -->
+	<header class="pt-12 pb-8 border-b-4 border-double border-white mb-12 flex flex-col items-center">
+		<div class="flex items-center gap-6 mb-4">
+			<img src="/escudo-spfc.svg" alt="Escudo São Paulo FC" class="w-16 h-16 opacity-80 grayscale hover:grayscale-0 transition-all duration-500" />
+			<div class="text-center">
+				<h1 class="font-['Playfair_Display'] text-6xl md:text-8xl font-black text-white tracking-tight uppercase leading-none">
+					Central <span class="text-spfc-red">SPFC</span>
+				</h1>
+				<p class="font-['Courier_Prime'] text-sm tracking-[0.3em] uppercase text-gray-500 mt-2">Edição Diária • Est. 2026</p>
+			</div>
+			<img src="/escudo-spfc.svg" alt="Escudo São Paulo FC" class="w-16 h-16 opacity-80 grayscale hover:grayscale-0 transition-all duration-500" />
 		</div>
-	</div>
+		
+		<div class="w-full flex justify-between border-t border-b border-[#333] py-2 mt-4 text-xs font-bold uppercase tracking-wider text-gray-400">
+			<span>São Paulo, Brasil</span>
+			<span>{new Date().toLocaleDateString('pt-BR', { weekday: 'long', year: 'numeric', month: 'long', day: 'numeric' })}</span>
+			<span>R$ 1,00</span>
+		</div>
+	</header>
 
-	<!-- Grid de Notícias -->
-	<div class="grid grid-cols-1 md:grid-cols-2 lg:grid-cols-3 gap-6 pb-12">
-		{sortedNews.map((news) => (
-			<article class="group bg-neutral-900 border border-neutral-800 p-0 hover:border-spfc-red transition-all duration-300 flex flex-col relative overflow-hidden">
-				<!-- Efeito de scanline sutil no card -->
-				<div class="absolute inset-0 bg-[linear-gradient(rgba(18,16,16,0)_50%,rgba(0,0,0,0.25)_50%),linear-gradient(90deg,rgba(255,0,0,0.06),rgba(0,255,0,0.02),rgba(0,0,255,0.06))] z-0 pointer-events-none bg-[length:100%_2px,3px_100%]"></div>
-
-				<div class="p-6 flex flex-col h-full z-10 relative">
-					<!-- Tag da Fonte -->
-					<div class="flex items-center justify-between mb-4 border-b border-neutral-800 pb-2">
-						<span class="font-['VT323'] text-xl text-spfc-red uppercase tracking-wide">
-							{news.data.source}
-						</span>
-						<time class="text-xs text-neutral-500 font-mono" datetime={news.data.pubDate}>
-							{new Date(news.data.pubDate).toLocaleDateString('pt-BR', { day: '2-digit', month: '2-digit', hour: '2-digit', minute:'2-digit' })}
-						</time>
-					</div>
-
-					<!-- Título -->
-					<h2 class="font-['VT323'] text-3xl text-white leading-none mb-3 group-hover:text-spfc-red transition-colors uppercase">
-						<a href={news.data.link} target="_blank" rel="noopener noreferrer" class="block">
-							{news.data.title}
+	<!-- Manchete Principal (Capa) -->
+	{mainStory && (
+		<section class="mb-16 pb-12 border-b border-[#333]">
+			<div class="flex flex-col md:flex-row gap-8">
+				<div class="flex-1">
+					<span class="inline-block border-b-2 border-spfc-red text-spfc-red font-bold uppercase text-xs mb-3 pb-1 tracking-widest">
+						Destaque: {mainStory.data.source}
+					</span>
+					<h2 class="font-['Playfair_Display'] text-4xl md:text-6xl font-bold text-white leading-tight mb-6 hover:text-gray-300 transition-colors">
+						<a href={mainStory.data.link} target="_blank" rel="noopener noreferrer">
+							{mainStory.data.title}
 						</a>
 					</h2>
-
-					<!-- Resumo -->
-					<p class="text-neutral-400 text-xs mb-4 flex-grow leading-relaxed font-mono">
-						{news.data.description}
+					<p class="text-xl text-gray-400 leading-relaxed font-light mb-6 border-l-4 border-spfc-red pl-4">
+						{mainStory.data.description}
 					</p>
-
-					<!-- Botão Ler Mais -->
-					<div class="mt-auto">
-						<a href={news.data.link} target="_blank" rel="noopener noreferrer" class="inline-block w-full text-center py-2 border border-neutral-700 hover:bg-spfc-red hover:border-spfc-red hover:text-black transition-all font-['VT323'] text-xl uppercase">
-							Acessar Dados >
-						</a>
-					</div>
+					<a href={mainStory.data.link} target="_blank" rel="noopener noreferrer" class="inline-block bg-white text-black px-6 py-2 text-sm font-bold uppercase hover:bg-gray-200 transition-colors">
+						Ler Matéria Completa
+					</a>
 				</div>
+			</div>
+		</section>
+	)}
+
+	<!-- Colunas de Notícias -->
+	<div class="grid grid-cols-1 md:grid-cols-2 lg:grid-cols-3 gap-x-8 gap-y-12 pb-24">
+		{otherStories.map((news) => (
+			<article class="flex flex-col border-t border-[#333] pt-4">
+				<span class="text-[10px] uppercase tracking-widest text-gray-500 mb-2 font-bold">
+					{news.data.source} • {new Date(news.data.pubDate).toLocaleDateString('pt-BR', { day: '2-digit', month: '2-digit' })}
+				</span>
+				<h3 class="font-['Playfair_Display'] text-2xl font-bold text-white leading-tight mb-3 hover:text-spfc-red transition-colors">
+					<a href={news.data.link} target="_blank" rel="noopener noreferrer">
+						{news.data.title}
+					</a>
+				</h3>
+				<p class="text-sm text-gray-400 leading-relaxed line-clamp-4">
+					{news.data.description}
+				</p>
 			</article>
 		))}
 	</div>
