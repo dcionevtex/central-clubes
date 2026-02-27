@@ -1,25 +1,56 @@
 ---
 import Layout from '../layouts/Layout.astro';
+import { getCollection } from 'astro:content';
+
+// Busca todas as notícias da coleção 'noticias'
+const allNews = await getCollection('noticias');
+
+// Ordena por data (mais recente primeiro) e pega as 20 primeiras
+const sortedNews = allNews.sort((a, b) => new Date(b.data.pubDate).valueOf() - new Date(a.data.pubDate).valueOf()).slice(0, 20);
 ---
 
 <Layout title="Central SPFC">
-	<!-- Barra Tricolor no Topo (Visual SPFC) -->
+	<!-- Barra Tricolor no Topo -->
 	<div class="fixed top-0 left-0 w-full h-2 bg-spfc-red z-50"></div>
 	<div class="fixed top-2 left-0 w-full h-2 bg-spfc-white z-50"></div>
 	<div class="fixed top-4 left-0 w-full h-2 bg-spfc-black z-50"></div>
 
-	<div class="mt-12 text-center">
-		<h1 class="text-6xl font-bold mb-4">
+	<div class="mt-12 text-center mb-12">
+		<h1 class="text-6xl font-bold mb-2">
 			<span class="text-spfc-red">CENTRAL</span> <span class="text-spfc-white">SPFC</span>
 		</h1>
-		<p class="text-xl text-gray-400 mb-8">
-			Onde o fanatismo encontra a inteligência artificial.
+		<p class="text-xl text-gray-400">
+			Todas as notícias do Tricolor em um só lugar.
 		</p>
-		
-		<div class="bg-gray-900 p-8 rounded-lg border border-gray-800 max-w-2xl mx-auto">
-			<p class="text-lg">
-				As notícias estão sendo carregadas pelos nossos agentes...
-			</p>
-		</div>
+	</div>
+
+	<!-- Grid de Notícias -->
+	<div class="grid grid-cols-1 md:grid-cols-2 lg:grid-cols-3 gap-6">
+		{sortedNews.map((news) => (
+			<article class="bg-gray-900 border border-gray-800 rounded-lg p-6 hover:border-spfc-red transition-colors duration-300">
+				<span class="text-xs font-bold text-spfc-red uppercase tracking-wider">{news.data.source}</span>
+				<h2 class="text-xl font-bold mt-2 mb-3 text-white leading-tight">
+					<a href={news.data.link} target="_blank" rel="noopener noreferrer" class="hover:underline">
+						{news.data.title}
+					</a>
+				</h2>
+				<p class="text-gray-400 text-sm mb-4 line-clamp-3">
+					{news.data.description}
+				</p>
+				<div class="flex justify-between items-center text-xs text-gray-500 mt-auto pt-4 border-t border-gray-800">
+					<time datetime={news.data.pubDate}>
+						{new Date(news.data.pubDate).toLocaleDateString('pt-BR', {
+							day: '2-digit',
+							month: 'short',
+							hour: '2-digit',
+							minute: '2-digit'
+						})}
+					</time>
+					<a href={news.data.link} target="_blank" rel="noopener noreferrer" class="text-white hover:text-spfc-red flex items-center gap-1">
+						Ler original <span>&rarr;</span>
+					</a>
+				</div>
+			</article>
+		))}
 	</div>
 </Layout>

@@ -1,0 +1,13 @@
+---
+title: "São Paulo inicia preparação para enfrentar o Palmeiras e deve ter retorno de trio"
+description: "São Paulo inicia preparação para enfrentar o Palmeiras e deve ter retorno de trio  Rádio Itatiaia"
+pubDate: "2026-02-26T21:42:44.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMigwJBVV95cUxPaFdPc3lFTmpWWUwzRXlIWjN6Y1plRlNLQ2tfenZPdUhIVTNKcTdicVNsWTFId252SUc4NlB4WDJIOVdERHNWa1BoRXRudXd4Z3J5bF9hZDZjTlY4Q04wR0R0Y1pzMm1UNjY2OFVuT1J4WDdURV9TbmJMbGt2NGw0RlFST2FNMTk3UEpWWUhoeWk1YVhWemZ2aE81Wlpfb1Y4Z0RfU1dmVFF1WU1FcU0yeUJOOGowS3d5US1EYW9jSjctU3NrNnB0cU43T2pYYmFzYlIyREp5M2N2cFZscFlNTFVac2hQb2REWTI2M3dCTGhkeGdRTFZ3UDJ6cXd3eVFGOVI0?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwJBVV95cUxPaFdPc3lFTmpWWUwzRXlIWjN6Y1plRlNLQ2tfenZPdUhIVTNKcTdicVNsWTFId252SUc4NlB4WDJIOVdERHNWa1BoRXRudXd4Z3J5bF9hZDZjTlY4Q04wR0R0Y1pzMm1UNjY2OFVuT1J4WDdURV9TbmJMbGt2NGw0RlFST2FNMTk3UEpWWUhoeWk1YVhWemZ2aE81Wlpfb1Y4Z0RfU1dmVFF1WU1FcU0yeUJOOGowS3d5US1EYW9jSjctU3NrNnB0cU43T2pYYmFzYlIyREp5M2N2cFZscFlNTFVac2hQb2REWTI2M3dCTGhkeGdRTFZ3UDJ6cXd3eVFGOVI0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
