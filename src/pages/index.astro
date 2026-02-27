@@ -1,17 +1,25 @@
 ---
-
+import Layout from '../layouts/Layout.astro';
 ---
 
-<html lang="en">
-	<head>
-		<meta charset="utf-8" />
-		<link rel="icon" type="image/svg+xml" href="/favicon.svg" />
-		<link rel="icon" href="/favicon.ico" />
-		<meta name="viewport" content="width=device-width" />
-		<meta name="generator" content={Astro.generator} />
-		<title>Astro</title>
-	</head>
-	<body>
-		<h1>Astro</h1>
-	</body>
-</html>
+<Layout title="Central SPFC">
+	<!-- Barra Tricolor no Topo (Visual SPFC) -->
+	<div class="fixed top-0 left-0 w-full h-2 bg-spfc-red z-50"></div>
+	<div class="fixed top-2 left-0 w-full h-2 bg-spfc-white z-50"></div>
+	<div class="fixed top-4 left-0 w-full h-2 bg-spfc-black z-50"></div>
+
+	<div class="mt-12 text-center">
+		<h1 class="text-6xl font-bold mb-4">
+			<span class="text-spfc-red">CENTRAL</span> <span class="text-spfc-white">SPFC</span>
+		</h1>
+		<p class="text-xl text-gray-400 mb-8">
+			Onde o fanatismo encontra a inteligência artificial.
+		</p>
+		
+		<div class="bg-gray-900 p-8 rounded-lg border border-gray-800 max-w-2xl mx-auto">
+			<p class="text-lg">
+				As notícias estão sendo carregadas pelos nossos agentes...
+			</p>
+		</div>
+	</div>
+</Layout>
