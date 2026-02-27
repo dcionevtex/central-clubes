@@ -8,68 +8,106 @@ const sortedNews = allNews.sort((a, b) => new Date(b.data.pubDate).valueOf() - n
 // Separa a manchete principal das outras
 const mainStory = sortedNews[0];
 const otherStories = sortedNews.slice(1);
+
+// Ícone SVG simples de Troféu
+const TrophyIcon = `<svg xmlns="http://www.w3.org/2000/svg" class="w-6 h-6 md:w-8 md:h-8 text-[#d4af37]" viewBox="0 0 24 24" fill="currentColor"><path d="M5 3L19 3C19.5523 3 20 3.44772 20 4V6.5C20 8.653 18.4734 10.4521 16.436 10.9103C15.8239 12.6868 14.2263 14.027 12.25 14.4251V18H15V20H9V18H11.75V14.4251C9.77369 14.027 8.17608 12.6868 7.56397 10.9103C5.52657 10.4521 4 8.653 4 6.5V4C4 3.44772 4.44772 3 5 3ZM18 5H6V6.5C6 7.79248 6.98595 8.85398 8.24353 8.98188C8.90793 7.63327 10.3235 6.70275 11.95 6.54157V5H12.05V6.54157C13.6765 6.70275 15.0921 7.63327 15.7565 8.98188C17.014 8.85398 18 7.79248 18 6.5V5Z"></path></svg>`;
 ---
 
 <Layout title="Central SPFC • O Diário">
-	<!-- Cabeçalho do Jornal -->
-	<header class="pt-12 pb-8 border-b-4 border-double border-white mb-12 flex flex-col items-center">
-		<div class="flex items-center gap-6 mb-4">
-			<img src="/escudo-spfc.svg" alt="Escudo São Paulo FC" class="w-16 h-16 opacity-80 grayscale hover:grayscale-0 transition-all duration-500" />
-			<div class="text-center">
-				<h1 class="font-['Playfair_Display'] text-6xl md:text-8xl font-black text-white tracking-tight uppercase leading-none">
+	<!-- Cabeçalho com Escudo em Destaque -->
+	<header class="pt-16 pb-8 border-b border-spfc-red/30 mb-12 flex flex-col md:flex-row items-center justify-between gap-8 relative overflow-hidden">
+		
+		<!-- Lado Esquerdo: 3 Libertadores -->
+		<div class="hidden md:flex gap-2 absolute left-0 top-1/2 -translate-y-1/2 opacity-80 hover:opacity-100 transition-opacity" title="Tri da América">
+			<div set:html={TrophyIcon} />
+			<div set:html={TrophyIcon} />
+			<div set:html={TrophyIcon} />
+		</div>
+
+		<div class="flex flex-col items-center md:items-start z-10 mx-auto">
+			<span class="font-['Courier_Prime'] text-spfc-red tracking-widest uppercase text-xs mb-2 font-bold flex items-center gap-2 justify-center md:justify-start">
+				<span class="w-2 h-2 bg-spfc-red rounded-full animate-pulse"></span>
+				Edição Diária • Est. 2026
+			</span>
+			
+			<div class="flex items-center gap-6">
+				<img src="/escudo-spfc.svg" alt="Escudo São Paulo FC" class="w-20 h-20 md:w-28 md:h-28 drop-shadow-[0_0_25px_rgba(255,255,255,0.2)] hover:scale-105 transition-transform duration-500" />
+				<h1 class="font-['Playfair_Display'] text-5xl md:text-8xl font-black text-white tracking-tighter uppercase leading-none drop-shadow-xl text-center md:text-left">
 					Central <span class="text-spfc-red">SPFC</span>
 				</h1>
-				<p class="font-['Courier_Prime'] text-sm tracking-[0.3em] uppercase text-gray-500 mt-2">Edição Diária • Est. 2026</p>
 			</div>
-			<img src="/escudo-spfc.svg" alt="Escudo São Paulo FC" class="w-16 h-16 opacity-80 grayscale hover:grayscale-0 transition-all duration-500" />
 		</div>
-		
-		<div class="w-full flex justify-between border-t border-b border-[#333] py-2 mt-4 text-xs font-bold uppercase tracking-wider text-gray-400">
-			<span>São Paulo, Brasil</span>
-			<span>{new Date().toLocaleDateString('pt-BR', { weekday: 'long', year: 'numeric', month: 'long', day: 'numeric' })}</span>
-			<span>R$ 1,00</span>
+
+		<!-- Lado Direito: 3 Mundiais -->
+		<div class="hidden md:flex gap-2 absolute right-0 top-1/2 -translate-y-1/2 opacity-80 hover:opacity-100 transition-opacity" title="Tri Mundial">
+			<div set:html={TrophyIcon} />
+			<div set:html={TrophyIcon} />
+			<div set:html={TrophyIcon} />
 		</div>
 	</header>
 
 	<!-- Manchete Principal (Capa) -->
 	{mainStory && (
-		<section class="mb-16 pb-12 border-b border-[#333]">
-			<div class="flex flex-col md:flex-row gap-8">
-				<div class="flex-1">
-					<span class="inline-block border-b-2 border-spfc-red text-spfc-red font-bold uppercase text-xs mb-3 pb-1 tracking-widest">
-						Destaque: {mainStory.data.source}
-					</span>
-					<h2 class="font-['Playfair_Display'] text-4xl md:text-6xl font-bold text-white leading-tight mb-6 hover:text-gray-300 transition-colors">
-						<a href={mainStory.data.link} target="_blank" rel="noopener noreferrer">
-							{mainStory.data.title}
-						</a>
-					</h2>
-					<p class="text-xl text-gray-400 leading-relaxed font-light mb-6 border-l-4 border-spfc-red pl-4">
-						{mainStory.data.description}
-					</p>
-					<a href={mainStory.data.link} target="_blank" rel="noopener noreferrer" class="inline-block bg-white text-black px-6 py-2 text-sm font-bold uppercase hover:bg-gray-200 transition-colors">
-						Ler Matéria Completa
-					</a>
+		<section class="mb-16 pb-12 border-b border-spfc-red/30 relative">
+			<!-- Etiqueta de Destaque -->
+			<span class="absolute -top-3 left-0 bg-spfc-red text-black px-3 py-1 text-xs font-bold uppercase tracking-widest">
+				Manchete
+			</span>
+
+			<div class="flex flex-col gap-6 mt-6">
+				<div class="flex items-center gap-4 text-sm text-[#d4af37] font-bold uppercase tracking-wider">
+					<span>{mainStory.data.source}</span>
+					<span class="w-1 h-1 bg-[#d4af37] rounded-full"></span>
+					<time datetime={mainStory.data.pubDate}>
+						{new Date(mainStory.data.pubDate).toLocaleDateString('pt-BR', { day: 'numeric', month: 'long' })}
+					</time>
 				</div>
+
+				<h2 class="font-['Playfair_Display'] text-4xl md:text-6xl font-bold text-white leading-[1.1] hover:text-spfc-red transition-colors duration-300">
+					<a href={mainStory.data.link} target="_blank" rel="noopener noreferrer">
+						{mainStory.data.title}
+					</a>
+				</h2>
+				
+				<div class="flex flex-col md:flex-row gap-8 border-l-2 border-spfc-red pl-6 py-2 bg-gradient-to-r from-spfc-red/5 to-transparent">
+					<p class="text-lg md:text-xl text-gray-300 leading-relaxed font-light italic max-w-3xl">
+						"{mainStory.data.description}"
+					</p>
+				</div>
+
+				<a href={mainStory.data.link} target="_blank" rel="noopener noreferrer" class="self-start mt-4 bg-transparent border border-spfc-red text-spfc-red px-8 py-3 text-sm font-bold uppercase hover:bg-spfc-red hover:text-black transition-all tracking-widest group">
+					Ler na Íntegra <span class="inline-block group-hover:translate-x-1 transition-transform">→</span>
+				</a>
 			</div>
 		</section>
 	)}
 
 	<!-- Colunas de Notícias -->
-	<div class="grid grid-cols-1 md:grid-cols-2 lg:grid-cols-3 gap-x-8 gap-y-12 pb-24">
+	<div class="grid grid-cols-1 md:grid-cols-2 lg:grid-cols-3 gap-x-12 gap-y-16 pb-24">
 		{otherStories.map((news) => (
-			<article class="flex flex-col border-t border-[#333] pt-4">
-				<span class="text-[10px] uppercase tracking-widest text-gray-500 mb-2 font-bold">
-					{news.data.source} • {new Date(news.data.pubDate).toLocaleDateString('pt-BR', { day: '2-digit', month: '2-digit' })}
-				</span>
-				<h3 class="font-['Playfair_Display'] text-2xl font-bold text-white leading-tight mb-3 hover:text-spfc-red transition-colors">
+			<article class="flex flex-col group">
+				<div class="flex items-baseline justify-between border-b border-white/10 pb-2 mb-4">
+					<span class="text-[10px] uppercase tracking-widest text-[#d4af37] font-bold group-hover:text-white transition-colors">
+						{news.data.source}
+					</span>
+					<time class="text-[10px] text-gray-600 font-mono">
+						{new Date(news.data.pubDate).toLocaleDateString('pt-BR', { day: '2-digit', month: '2-digit' })}
+					</time>
+				</div>
+				
+				<h3 class="font-['Playfair_Display'] text-2xl font-bold text-gray-200 leading-tight mb-4 group-hover:text-spfc-red transition-colors">
 					<a href={news.data.link} target="_blank" rel="noopener noreferrer">
 						{news.data.title}
 					</a>
 				</h3>
-				<p class="text-sm text-gray-400 leading-relaxed line-clamp-4">
+				
+				<p class="text-sm text-gray-500 leading-relaxed line-clamp-3 font-light mb-4">
 					{news.data.description}
 				</p>
+
+				<a href={news.data.link} target="_blank" rel="noopener noreferrer" class="mt-auto text-xs font-bold text-spfc-red uppercase tracking-wider opacity-0 group-hover:opacity-100 transition-opacity transform translate-y-2 group-hover:translate-y-0">
+					Ler Mais >
+				</a>
 			</article>
 		))}
 	</div>
