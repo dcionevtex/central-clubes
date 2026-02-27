@@ -2,11 +2,9 @@
 interface Props {
 	title: string;
 }
-import '@fontsource/kanit/300.css';
-import '@fontsource/kanit/400.css';
-import '@fontsource/kanit/500.css';
-import '@fontsource/kanit/700.css';
-import '@fontsource/kanit/900.css';
+// Importando as novas fontes Retro/Tech
+import '@fontsource/vt323';
+import '@fontsource/space-mono';
 import '../styles/global.css';
 
 const { title } = Astro.props;
@@ -22,9 +20,10 @@ const { title } = Astro.props;
 		<meta name="generator" content={Astro.generator} />
 		<title>{title}</title>
 	</head>
-	<body class="bg-black text-white font-['Kanit'] antialiased selection:bg-spfc-red selection:text-white">
-		<!-- Background sutil com gradiente para não ficar um preto chapado -->
-		<div class="fixed inset-0 bg-gradient-to-b from-spfc-black to-[#0a0a0a] -z-10"></div>
+	<!-- Aplicando a fonte Space Mono como padrão e VT323 para onde quisermos destaque -->
+	<body class="bg-black text-white font-['Space_Mono'] antialiased selection:bg-spfc-red selection:text-white">
+		<!-- Background sutil estilo CRT/Terminal -->
+		<div class="fixed inset-0 bg-[#050505] -z-10"></div>
 		
 		<main class="container mx-auto px-4 sm:px-6 lg:px-8 min-h-screen relative">
 			<slot />
