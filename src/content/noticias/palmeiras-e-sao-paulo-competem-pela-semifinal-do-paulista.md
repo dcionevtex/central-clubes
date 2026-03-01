@@ -1,0 +1,13 @@
+---
+title: "Palmeiras e São Paulo competem pela semifinal do Paulista"
+description: "Palmeiras e São Paulo competem pela semifinal do Paulista  Terra"
+pubDate: "2026-03-01T10:06:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMihgJBVV95cUxQQlAwejhNYm5QOHBKWXV1TjJPVlBoTXpjMlBEVVE2VHllRTdzdmozSDdDVmlQd1hfTm9zeFhxYVZGZWVOaURQYVNYU1ZyX3FWQksteUg5X0FyQXBRUTlJZ1Vpa2dPOVN6WDJXVWcxcGQ4ZjFVRWRtSTFWX1JlMjdXNlVET1p2SEhXTjlpX1VmWTVNV0xRYkxrQ3Ztb3pjT3pVRmZvQy0xMVp5R2RMSWpya240QXU4dFdGRjVrTmNWVGxXb2xoX0FkYndRaGVudXBidFlESmpvTC1vanAxdEVESUVxa1dNcGZ1TmY1NXVGQ2w0ZFNMRGsxUEZibUlxdGp0dklIUUF3?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgJBVV95cUxQQlAwejhNYm5QOHBKWXV1TjJPVlBoTXpjMlBEVVE2VHllRTdzdmozSDdDVmlQd1hfTm9zeFhxYVZGZWVOaURQYVNYU1ZyX3FWQksteUg5X0FyQXBRUTlJZ1Vpa2dPOVN6WDJXVWcxcGQ4ZjFVRWRtSTFWX1JlMjdXNlVET1p2SEhXTjlpX1VmWTVNV0xRYkxrQ3Ztb3pjT3pVRmZvQy0xMVp5R2RMSWpya240QXU4dFdGRjVrTmNWVGxXb2xoX0FkYndRaGVudXBidFlESmpvTC1vanAxdEVESUVxa1dNcGZ1TmY1NXVGQ2w0ZFNMRGsxUEZibUlxdGp0dklIUUF3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
