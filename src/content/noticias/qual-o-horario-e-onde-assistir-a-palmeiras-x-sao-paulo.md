@@ -1,0 +1,13 @@
+---
+title: "Qual o horário e onde assistir à Palmeiras x São Paulo"
+description: "Qual o horário e onde assistir à Palmeiras x São Paulo  GZH"
+pubDate: "2026-03-01T09:00:55.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMijAJBVV95cUxQUEQxWTdNNGJKdVMxUk1iZFowTnZoRGdDZVIyc3JhSFBuc3RJeWJJbXJYUlc1enppSW1UZzZLUDQxU0hoTVFnVV9jcXluWWFTd25HT2xiaTg4cWNwaFl2c0xTdlFlRklQQ2ozaURRZ1VaTlNERTlPQmJ0VEhTSW81LWdXWXN4dFU0YlB0dkNtWUZfdXZZR2p3OGZVc0F5bzNrdFFXN1VzeldydUVyOVpScVJ0YTJZLXBfVHhhRXkwREN0R1R3c05pX3ZtMlZ6OXJ6X0Jhb0NuN0NNZGR4cWhDalZDNnJfdnhhOXBpcDEwb0RHX2p6MnpVSkFsQ19QQlJMVDVZeHA5T2hGNld2?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAJBVV95cUxQUEQxWTdNNGJKdVMxUk1iZFowTnZoRGdDZVIyc3JhSFBuc3RJeWJJbXJYUlc1enppSW1UZzZLUDQxU0hoTVFnVV9jcXluWWFTd25HT2xiaTg4cWNwaFl2c0xTdlFlRklQQ2ozaURRZ1VaTlNERTlPQmJ0VEhTSW81LWdXWXN4dFU0YlB0dkNtWUZfdXZZR2p3OGZVc0F5bzNrdFFXN1VzeldydUVyOVpScVJ0YTJZLXBfVHhhRXkwREN0R1R3c05pX3ZtMlZ6OXJ6X0Jhb0NuN0NNZGR4cWhDalZDNnJfdnhhOXBpcDEwb0RHX2p6MnpVSkFsQ19QQlJMVDVZeHA5T2hGNld2?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
