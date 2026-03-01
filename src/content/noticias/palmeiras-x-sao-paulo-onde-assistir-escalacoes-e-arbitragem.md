@@ -1,0 +1,13 @@
+---
+title: "Palmeiras x São Paulo: onde assistir, escalações e arbitragem"
+description: "Palmeiras x São Paulo: onde assistir, escalações e arbitragem  jogada10.com.br"
+pubDate: "2026-02-28T17:35:24.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxOOWF4Wkd5SmZ0SnJhXzJ1VmZLQWZIckJzZDRsRVJtN0NnN0s2Q201QTNWX1U5UzBWXzBPUll2OV90amg0ZHFXUnlCZWJXbUpjNGg4S0dJUDVhU3BPd2NJZVg1S3d4Z3FORVowYVRqNUdiUDlJZnV1dHJNVG1sRXJ4LUo3YU42NWMwUktoTk9hZ2p6dzhQWmfSAZYBQVVfeXFMTjlheFpHeUpmdEpyYV8ydVZmS0FmSHJCc2Q0bEVSbTdDZzdLNkNtNUEzVl9VOVMwVl8wT1JZdjlfdGpoNGRxV1J5QmViV21KYzRoOEtHSVA1YVNwT3djSWVYNUt3eGdxTkVaMGFUajVHYlA5SWZ1dXRyTVRtbEVyeC1KN2FONjVjMFJLaE5PYWdqenc4UFpn?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxOOWF4Wkd5SmZ0SnJhXzJ1VmZLQWZIckJzZDRsRVJtN0NnN0s2Q201QTNWX1U5UzBWXzBPUll2OV90amg0ZHFXUnlCZWJXbUpjNGg4S0dJUDVhU3BPd2NJZVg1S3d4Z3FORVowYVRqNUdiUDlJZnV1dHJNVG1sRXJ4LUo3YU42NWMwUktoTk9hZ2p6dzhQWmfSAZYBQVVfeXFMTjlheFpHeUpmdEpyYV8ydVZmS0FmSHJCc2Q0bEVSbTdDZzdLNkNtNUEzVl9VOVMwVl8wT1JZdjlfdGpoNGRxV1J5QmViV21KYzRoOEtHSVA1YVNwT3djSWVYNUt3eGdxTkVaMGFUajVHYlA5SWZ1dXRyTVRtbEVyeC1KN2FONjVjMFJLaE5PYWdqenc4UFpn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
