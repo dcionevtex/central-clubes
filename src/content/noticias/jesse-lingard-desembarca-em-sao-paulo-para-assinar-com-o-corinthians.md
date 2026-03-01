@@ -1,0 +1,13 @@
+---
+title: "Jesse Lingard desembarca em São Paulo para assinar com o Corinthians"
+description: "Jesse Lingard desembarca em São Paulo para assinar com o Corinthians  Jogada 10"
+pubDate: "2026-03-01T14:34:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxNd2E2dTRMZmp5anBOYmg4TzBPcFJicjdEbnptODVud2hLUXlITkNjTDhMQ2ZfNmM5SUIyU0dNUnEwT0Z1LUdsdmxKS2pTQWNkRjk3TmdfbDBBYmFfMDBFcnN2ZjdiaWZpRS1YcU1jZmkySmE1NnI5blM1OTgzTG1qcE0tQkplNDZ5UGtDWnJQNHdsNm9BaGJUbG9Tb2tKUdIBngFBVV95cUxNd2E2dTRMZmp5anBOYmg4TzBPcFJicjdEbnptODVud2hLUXlITkNjTDhMQ2ZfNmM5SUIyU0dNUnEwT0Z1LUdsdmxKS2pTQWNkRjk3TmdfbDBBYmFfMDBFcnN2ZjdiaWZpRS1YcU1jZmkySmE1NnI5blM1OTgzTG1qcE0tQkplNDZ5UGtDWnJQNHdsNm9BaGJUbG9Tb2tKUQ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxNd2E2dTRMZmp5anBOYmg4TzBPcFJicjdEbnptODVud2hLUXlITkNjTDhMQ2ZfNmM5SUIyU0dNUnEwT0Z1LUdsdmxKS2pTQWNkRjk3TmdfbDBBYmFfMDBFcnN2ZjdiaWZpRS1YcU1jZmkySmE1NnI5blM1OTgzTG1qcE0tQkplNDZ5UGtDWnJQNHdsNm9BaGJUbG9Tb2tKUdIBngFBVV95cUxNd2E2dTRMZmp5anBOYmg4TzBPcFJicjdEbnptODVud2hLUXlITkNjTDhMQ2ZfNmM5SUIyU0dNUnEwT0Z1LUdsdmxKS2pTQWNkRjk3TmdfbDBBYmFfMDBFcnN2ZjdiaWZpRS1YcU1jZmkySmE1NnI5blM1OTgzTG1qcE0tQkplNDZ5UGtDWnJQNHdsNm9BaGJUbG9Tb2tKUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
