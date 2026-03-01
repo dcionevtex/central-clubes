@@ -1,0 +1,13 @@
+---
+title: "Paulistão: Palmeiras precisa golear e São Paulo vai decidir fora"
+description: "Paulistão: Palmeiras precisa golear e São Paulo vai decidir fora  Portal Hortolândia"
+pubDate: "2026-03-01T02:08:18.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb1FTMXF1RTREaW9QYkRlTnFRT2hjLW02ZUVNako4R0ktWnlxTVdrZkNERTF6d1FKSUVJdzBzbWdFVFk5eVU2M0FBRHAyUnhFZmQ1clNLUUpSWngtMlN6c3hxalRMU3A1UEFUZVRVUFJhZ0hsN0o1dU1HRENkYmRUeXUwdFA1VlEy0gGIAUFVX3lxTE1vUVMxcXVFNERpb1BiRGVOcVFPaGMtbTZlRU1qSjhHSS1aeXFNV2tmQ0RFMXp3UUpJRUl3MHNtZ0VUWTl5VTYzQUFEcDJSeEVmZDVyU0tRSlJaeC0yU3pzeHFqVExTcDVQQVRlVFVQUmFnSGw3SjV1TUdEQ2RiZFR5dTB0UDVWUTI?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNb1FTMXF1RTREaW9QYkRlTnFRT2hjLW02ZUVNako4R0ktWnlxTVdrZkNERTF6d1FKSUVJdzBzbWdFVFk5eVU2M0FBRHAyUnhFZmQ1clNLUUpSWngtMlN6c3hxalRMU3A1UEFUZVRVUFJhZ0hsN0o1dU1HRENkYmRUeXUwdFA1VlEy0gGIAUFVX3lxTE1vUVMxcXVFNERpb1BiRGVOcVFPaGMtbTZlRU1qSjhHSS1aeXFNV2tmQ0RFMXp3UUpJRUl3MHNtZ0VUWTl5VTYzQUFEcDJSeEVmZDVyU0tRSlJaeC0yU3pzeHFqVExTcDVQQVRlVFVQUmFnSGw3SjV1TUdEQ2RiZFR5dTB0UDVWUTI?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
