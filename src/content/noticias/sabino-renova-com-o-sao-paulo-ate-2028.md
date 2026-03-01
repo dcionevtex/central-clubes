@@ -1,0 +1,13 @@
+---
+title: "Sabino renova com o São Paulo até 2028"
+description: "Sabino renova com o São Paulo até 2028  Portal Hortolândia"
+pubDate: "2026-03-01T00:39:21.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE5jYVNjTGNiQngyaTFzSkNvTTNwTWltZXptU3R6TmpkTjhYRmlSaTljNTJUZWlZeUZNWTJzOXl6U3R6Smk4aGpqZWJ6QmJnTk5sTWpmVklrNlpjSlVleFB3MXBYbjVFTzM0TkRNMUR1RndIQ29IVWh6WlVPY9IBe0FVX3lxTE5jYVNjTGNiQngyaTFzSkNvTTNwTWltZXptU3R6TmpkTjhYRmlSaTljNTJUZWlZeUZNWTJzOXl6U3R6Smk4aGpqZWJ6QmJnTk5sTWpmVklrNlpjSlVleFB3MXBYbjVFTzM0TkRNMUR1RndIQ29IVWh6WlVPYw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE5jYVNjTGNiQngyaTFzSkNvTTNwTWltZXptU3R6TmpkTjhYRmlSaTljNTJUZWlZeUZNWTJzOXl6U3R6Smk4aGpqZWJ6QmJnTk5sTWpmVklrNlpjSlVleFB3MXBYbjVFTzM0TkRNMUR1RndIQ29IVWh6WlVPY9IBe0FVX3lxTE5jYVNjTGNiQngyaTFzSkNvTTNwTWltZXptU3R6TmpkTjhYRmlSaTljNTJUZWlZeUZNWTJzOXl6U3R6Smk4aGpqZWJ6QmJnTk5sTWpmVklrNlpjSlVleFB3MXBYbjVFTzM0TkRNMUR1RndIQ29IVWh6WlVPYw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

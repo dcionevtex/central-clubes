@@ -1,0 +1,13 @@
+---
+title: "Palmeiras transforma Barueri em trunfo e mira maior público do ano contra o São Paulo"
+description: "Palmeiras transforma Barueri em trunfo e mira maior público do ano contra o São Paulo  Terra"
+pubDate: "2026-02-28T14:03:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMihgJBVV95cUxNX2hpeHpuWnVpU2g4dS1UWjRraldaNWUzbWtwMFpHZllQLVhUWmRWeXJKa21hVmZJUVp3dGs2c0JOWjluSFdweXhpMzBLeUhMU2FIbEJWaWRNMlh6Q2I0dmJXb3BoUE5XdHhuMVlSVjdLRmQ5aUxjUTBFUU1hOWpBbjRDWFByQWJPOEhuNW9jbWdDbXVsdlRQSkZ2b3NudXBtMm1hVUF1b21lOGN3NHBUbUtDaVlZQUFUanpZbm5wMlZEbzZpMW4wNVQ4OHJCQ3BjNlBwc1dIbXhrVnN4b3NFczBLSmc5M2NYRzUtMFRmNnl5UW8xYWxPOEl4U0w4M0g3a3lHSV9R?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgJBVV95cUxNX2hpeHpuWnVpU2g4dS1UWjRraldaNWUzbWtwMFpHZllQLVhUWmRWeXJKa21hVmZJUVp3dGs2c0JOWjluSFdweXhpMzBLeUhMU2FIbEJWaWRNMlh6Q2I0dmJXb3BoUE5XdHhuMVlSVjdLRmQ5aUxjUTBFUU1hOWpBbjRDWFByQWJPOEhuNW9jbWdDbXVsdlRQSkZ2b3NudXBtMm1hVUF1b21lOGN3NHBUbUtDaVlZQUFUanpZbm5wMlZEbzZpMW4wNVQ4OHJCQ3BjNlBwc1dIbXhrVnN4b3NFczBLSmc5M2NYRzUtMFRmNnl5UW8xYWxPOEl4U0w4M0g3a3lHSV9R?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

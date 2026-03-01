@@ -1,0 +1,13 @@
+---
+title: "Palmeiras x São Paulo: saiba onde assistir à semifinal do Paulistão"
+description: "Palmeiras x São Paulo: saiba onde assistir à semifinal do Paulistão  Gazeta Esportiva"
+pubDate: "2026-02-28T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiVEFVX3lxTFB4T0dCYnlJVnRVUnJLX1pyYWc4R1JRbmJTS081SHNuYXMtVm1wUklxZk1RYW1fejBiQ3JGc3NHSlJSVDJrbkUtYTRXU1RzU2ZQYmEzbtIBvgFBVV95cUxPbnY3TnVKZzN3WUpRLVpzOVJUTmo4ZGwzeVdxZk1CNVNkTDJ1QmdsTzA2akVoZTl4eXo0dGprT2s5VS1mMjR1WnA2elM2UG0wczVVeTUwc2U4ZlNxclBpTk1FZzhvZ1JjaVNCTWZ0Q2NuYnZXYlQ2cXdNSlVNWTJHWEpHQ18ybXBlT0FVelBNUnFxLWcwZHpmUmcydDNqUzBIR1BQSktOMVEtRXRRWTd1U1BJeHZ0T0VRWlFIWld3?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiVEFVX3lxTFB4T0dCYnlJVnRVUnJLX1pyYWc4R1JRbmJTS081SHNuYXMtVm1wUklxZk1RYW1fejBiQ3JGc3NHSlJSVDJrbkUtYTRXU1RzU2ZQYmEzbtIBvgFBVV95cUxPbnY3TnVKZzN3WUpRLVpzOVJUTmo4ZGwzeVdxZk1CNVNkTDJ1QmdsTzA2akVoZTl4eXo0dGprT2s5VS1mMjR1WnA2elM2UG0wczVVeTUwc2U4ZlNxclBpTk1FZzhvZ1JjaVNCTWZ0Q2NuYnZXYlQ2cXdNSlVNWTJHWEpHQ18ybXBlT0FVelBNUnFxLWcwZHpmUmcydDNqUzBIR1BQSktOMVEtRXRRWTd1U1BJeHZ0T0VRWlFIWld3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

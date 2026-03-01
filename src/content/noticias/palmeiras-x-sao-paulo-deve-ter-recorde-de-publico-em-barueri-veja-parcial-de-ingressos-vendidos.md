@@ -1,0 +1,13 @@
+---
+title: "Palmeiras x São Paulo deve ter recorde de público em Barueri; veja parcial de ingressos vendidos"
+description: "Palmeiras x São Paulo deve ter recorde de público em Barueri; veja parcial de ingressos vendidos  Gazeta Esportiva"
+pubDate: "2026-03-01T00:26:56.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQVkRpSFhRc19ma1R2eS1vam5qWm5oWXJNZnhuOVJuQVNxbWlEbEE4cHFsOE0tMmtIcVhjZUZEZHZ4NF9WQ1MzS2Mtb0ZaY2ZUNUFRZ043SzZESXhfX1RDMFRWaUxXSWo5TUR1ZVNldFFKOHl6OThqWm1SdTgyREdiTzRPOVAzNGxjS2JhZjBuUkQ2b19Eamp5MTRPSHQzNXJaNlljSdIBpAFBVV95cUxQVkRpSFhRc19ma1R2eS1vam5qWm5oWXJNZnhuOVJuQVNxbWlEbEE4cHFsOE0tMmtIcVhjZUZEZHZ4NF9WQ1MzS2Mtb0ZaY2ZUNUFRZ043SzZESXhfX1RDMFRWaUxXSWo5TUR1ZVNldFFKOHl6OThqWm1SdTgyREdiTzRPOVAzNGxjS2JhZjBuUkQ2b19Eamp5MTRPSHQzNXJaNlljSQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxQVkRpSFhRc19ma1R2eS1vam5qWm5oWXJNZnhuOVJuQVNxbWlEbEE4cHFsOE0tMmtIcVhjZUZEZHZ4NF9WQ1MzS2Mtb0ZaY2ZUNUFRZ043SzZESXhfX1RDMFRWaUxXSWo5TUR1ZVNldFFKOHl6OThqWm1SdTgyREdiTzRPOVAzNGxjS2JhZjBuUkQ2b19Eamp5MTRPSHQzNXJaNlljSdIBpAFBVV95cUxQVkRpSFhRc19ma1R2eS1vam5qWm5oWXJNZnhuOVJuQVNxbWlEbEE4cHFsOE0tMmtIcVhjZUZEZHZ4NF9WQ1MzS2Mtb0ZaY2ZUNUFRZ043SzZESXhfX1RDMFRWaUxXSWo5TUR1ZVNldFFKOHl6OThqWm1SdTgyREdiTzRPOVAzNGxjS2JhZjBuUkQ2b19Eamp5MTRPSHQzNXJaNlljSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

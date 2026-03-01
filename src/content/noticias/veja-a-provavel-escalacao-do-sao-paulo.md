@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo"
+description: "Veja a provável escalação do São Paulo  Portal Hortolândia"
+pubDate: "2026-02-28T19:20:14.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxQZ0xWamxTTXozRUtJUW5rUVF3UUtKdllMQXV2SkFJblkwQnlJRmNBMzBJR1dmQm9CT3p6VU5lYUhiRkRBeTlCcHVuLTNFOVNRUExzZXg3WEgxaUd1T0xtcnlmRVhPbHdiNUM5R2gwc0hVOUYtX2RPR09wR2F6bTNoel9n0gGCAUFVX3lxTFBnTFZqbFNNejNFS0lRbmtRUXdRS0p2WUxBdXZKQUluWTBCeUlGY0EzMElHV2ZCb0JPenpVTmVhSGJGREF5OUJwdW4tM0U5U1FQTHNleDdYSDFpR3VPTG1yeWZFWE9sd2I1QzlHaDBzSFU5Ri1fZE9HT3BHYXptM2h6X2c?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxQZ0xWamxTTXozRUtJUW5rUVF3UUtKdllMQXV2SkFJblkwQnlJRmNBMzBJR1dmQm9CT3p6VU5lYUhiRkRBeTlCcHVuLTNFOVNRUExzZXg3WEgxaUd1T0xtcnlmRVhPbHdiNUM5R2gwc0hVOUYtX2RPR09wR2F6bTNoel9n0gGCAUFVX3lxTFBnTFZqbFNNejNFS0lRbmtRUXdRS0p2WUxBdXZKQUluWTBCeUlGY0EzMElHV2ZCb0JPenpVTmVhSGJGREF5OUJwdW4tM0U5U1FQTHNleDdYSDFpR3VPTG1yeWZFWE9sd2I1QzlHaDBzSFU5Ri1fZE9HT3BHYXptM2h6X2c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

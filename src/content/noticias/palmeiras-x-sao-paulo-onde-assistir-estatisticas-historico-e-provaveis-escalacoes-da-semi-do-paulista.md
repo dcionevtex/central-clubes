@@ -1,0 +1,13 @@
+---
+title: "Palmeiras x São Paulo: onde assistir, estatísticas, histórico e prováveis escalações da semi do Paulista"
+description: "Palmeiras x São Paulo: onde assistir, estatísticas, histórico e prováveis escalações da semi do Paulista  Gazeta Esportiva"
+pubDate: "2026-02-28T23:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQOVhfQnBZWG83M3BTT0NFSndkV1hjcGxVRmdSQkNRSzhfTUw3NUlWMW1Ya0Z4bHpCMDlxZFZsY2Znc1ZtRXJVUDBlb0o1RVhlVE84OG1Eb2Fpc2w1dnVCU2hFMDVFMEk5WVBwTnRiNUdjNmpjRmpjVkdLTmN6b1BDRFUwTDM1OVM3NGZSb2d0akI2em1CRVpqeVZldDdBTEnSAaQBQVVfeXFMTVVRVzFEX251STFPSzlSMjV0TW5lcDJKV1Vob1ZkQUpHYVd6NmwzSTJBaFNKOWt6STdIRXd3V0NMb2d1THVHbTMxYmtPUUpXdTdHNXVlYm1iWEJhSWYyT2RNNG1SN2l4QlRnaERCbEJlaHhFbnVRY3VHaHJJZzJSTy03eVF2MDc1T2RUbVZyME9VMGZnRkMzQmRSbDlMczlGeDdnVjg?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQOVhfQnBZWG83M3BTT0NFSndkV1hjcGxVRmdSQkNRSzhfTUw3NUlWMW1Ya0Z4bHpCMDlxZFZsY2Znc1ZtRXJVUDBlb0o1RVhlVE84OG1Eb2Fpc2w1dnVCU2hFMDVFMEk5WVBwTnRiNUdjNmpjRmpjVkdLTmN6b1BDRFUwTDM1OVM3NGZSb2d0akI2em1CRVpqeVZldDdBTEnSAaQBQVVfeXFMTVVRVzFEX251STFPSzlSMjV0TW5lcDJKV1Vob1ZkQUpHYVd6NmwzSTJBaFNKOWt6STdIRXd3V0NMb2d1THVHbTMxYmtPUUpXdTdHNXVlYm1iWEJhSWYyT2RNNG1SN2l4QlRnaERCbEJlaHhFbnVRY3VHaHJJZzJSTy03eVF2MDc1T2RUbVZyME9VMGZnRkMzQmRSbDlMczlGeDdnVjg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

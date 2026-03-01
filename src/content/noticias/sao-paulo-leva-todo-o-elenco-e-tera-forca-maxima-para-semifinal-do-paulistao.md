@@ -1,0 +1,13 @@
+---
+title: "São Paulo leva todo o elenco e terá força máxima para semifinal do Paulistão"
+description: "São Paulo leva todo o elenco e terá força máxima para semifinal do Paulistão  Terra"
+pubDate: "2026-02-28T23:57:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMinwJBVV95cUxOS21wenFtSGUxLVRLUndlOTJvWTZqR09qYUVIMmVUNkR2YjM5X2lzdjFzSTA0Z0haV0ZMSkd5bi1Mb0JHaDdRLUwwUXgxYkljeFVTSjgxTlVQUHhSZlRpVHh3R2FRWlBMNlpIandPY1FUVEM1Wi0xSUdHS2hlODdyTEVrZG5DUUxEcm5tSjBjdXNNSGJYTDFGQ3VTcGU0WHlTM1RpV2pUOTVyX3F5aUlxbTNlR2daMGNOVkZzVEZLMXQwa0tVTlY4ZGRPZTRtbFE5UG5uUTZoTzhlcWxYQV9WdjloeXBISUk5TVUwWmpkSWRici0yeTFQZUhLN0VBbFdEd2ZMd19tZnR3YlRia3dGc01XTnJoZFItLVZXeUFwZw?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwJBVV95cUxOS21wenFtSGUxLVRLUndlOTJvWTZqR09qYUVIMmVUNkR2YjM5X2lzdjFzSTA0Z0haV0ZMSkd5bi1Mb0JHaDdRLUwwUXgxYkljeFVTSjgxTlVQUHhSZlRpVHh3R2FRWlBMNlpIandPY1FUVEM1Wi0xSUdHS2hlODdyTEVrZG5DUUxEcm5tSjBjdXNNSGJYTDFGQ3VTcGU0WHlTM1RpV2pUOTVyX3F5aUlxbTNlR2daMGNOVkZzVEZLMXQwa0tVTlY4ZGRPZTRtbFE5UG5uUTZoTzhlcWxYQV9WdjloeXBISUk5TVUwWmpkSWRici0yeTFQZUhLN0VBbFdEd2ZMd19tZnR3YlRia3dGc01XTnJoZFItLVZXeUFwZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
