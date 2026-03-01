@@ -23,7 +23,7 @@ jobs:
 
       - name: Install dependencies
         run: |
-          cd projetos/pessoais/central-clubes/spfc-site
+          cd spfc-site
           npm install
 
       - name: Fetch News
