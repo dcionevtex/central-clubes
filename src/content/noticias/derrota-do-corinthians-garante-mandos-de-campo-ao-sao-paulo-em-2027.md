@@ -1,0 +1,13 @@
+---
+title: "Derrota do Corinthians garante mandos de campo ao São Paulo em 2027"
+description: "Derrota do Corinthians garante mandos de campo ao São Paulo em 2027  Portal Hortolândia"
+pubDate: "2026-03-01T11:45:13.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxPTFhHUkhJREEwcU4xS0pwWDdhRldMWlpZd0N5Ni1STnlrcUZISkF0SG05Sm1VbnNSQWVLam1MeV82MVZkSlMyR0lOWE04WHlLYWdhTHFJOWg5Y05KYlRGTWducV9sQ1BuRG1sTC0tbjdBY1dBSFJCMUMxTnJQZHhsTDdwd9IBgwFBVV95cUxPTFhHUkhJREEwcU4xS0pwWDdhRldMWlpZd0N5Ni1STnlrcUZISkF0SG05Sm1VbnNSQWVLam1MeV82MVZkSlMyR0lOWE04WHlLYWdhTHFJOWg5Y05KYlRGTWducV9sQ1BuRG1sTC0tbjdBY1dBSFJCMUMxTnJQZHhsTDdwdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxPTFhHUkhJREEwcU4xS0pwWDdhRldMWlpZd0N5Ni1STnlrcUZISkF0SG05Sm1VbnNSQWVLam1MeV82MVZkSlMyR0lOWE04WHlLYWdhTHFJOWg5Y05KYlRGTWducV9sQ1BuRG1sTC0tbjdBY1dBSFJCMUMxTnJQZHhsTDdwd9IBgwFBVV95cUxPTFhHUkhJREEwcU4xS0pwWDdhRldMWlpZd0N5Ni1STnlrcUZISkF0SG05Sm1VbnNSQWVLam1MeV82MVZkSlMyR0lOWE04WHlLYWdhTHFJOWg5Y05KYlRGTWducV9sQ1BuRG1sTC0tbjdBY1dBSFJCMUMxTnJQZHhsTDdwdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
