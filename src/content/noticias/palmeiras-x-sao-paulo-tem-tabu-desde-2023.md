@@ -1,0 +1,13 @@
+---
+title: "Palmeiras x São Paulo tem tabu desde 2023"
+description: "Palmeiras x São Paulo tem tabu desde 2023  Portal Hortolândia"
+pubDate: "2026-03-01T16:52:26.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiiAFBVV95cUxNc0JHeklERFhIanRjN05ZZzhDSGduWktjR2xvX2dfU3RPV3BrR2M2TlN4Y2NrTHpDYnNhZFF5TzJpRjRhRnVZVHM1OF9XZjA3MXF3azU3ZG9yZlNLSU1BQkVjdXB1cDQyLTlOTGNqWXZaNFhNcTlhTlFNYkVMTVRpb0hvdkh2aF950gGIAUFVX3lxTE1zQkd6SUREWEhqdGM3TllnOENIZ25aS2NHbG9fZ19TdE9XcGtHYzZOU3hjY2tMekNic2FkUXlPMmlGNGFGdVlUczU4X1dmMDcxcXdrNTdkb3JmU0tJTUFCRWN1cHVwNDItOU5MY2pZdlo0WE1xOWFOUU1iRUxNVGlvSG92SHZoX3k?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNc0JHeklERFhIanRjN05ZZzhDSGduWktjR2xvX2dfU3RPV3BrR2M2TlN4Y2NrTHpDYnNhZFF5TzJpRjRhRnVZVHM1OF9XZjA3MXF3azU3ZG9yZlNLSU1BQkVjdXB1cDQyLTlOTGNqWXZaNFhNcTlhTlFNYkVMTVRpb0hvdkh2aF950gGIAUFVX3lxTE1zQkd6SUREWEhqdGM3TllnOENIZ25aS2NHbG9fZ19TdE9XcGtHYzZOU3hjY2tMekNic2FkUXlPMmlGNGFGdVlUczU4X1dmMDcxcXdrNTdkb3JmU0tJTUFCRWN1cHVwNDItOU5MY2pZdlo0WE1xOWFOUU1iRUxNVGlvSG92SHZoX3k?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
