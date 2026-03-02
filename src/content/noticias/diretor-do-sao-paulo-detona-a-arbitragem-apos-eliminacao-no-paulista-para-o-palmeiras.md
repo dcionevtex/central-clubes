@@ -1,0 +1,13 @@
+---
+title: "Diretor do São Paulo detona a arbitragem após eliminação no Paulista para o Palmeiras"
+description: "Diretor do São Paulo detona a arbitragem após eliminação no Paulista para o Palmeiras  Rádio Itatiaia"
+pubDate: "2026-03-02T02:38:54.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiiAJBVV95cUxPNWEtTm0zTG9KanhYNUlGRURLSWE3Rmt3QkZvaWVoZDNLS3FHMXZlbDZyek5RNjllTFNfekxCR3RXb25ENFlXRkpnRnRnZUJxQ3Z6Qld1X3B1bEk5TjBOZXNfdUdrX29CWmdydWNmRzQwVjJLNnh2LW4wRmxqbmZQMWpHVmdrOFVuWWRYQnN4YTVtNFc5OTVYVVZ3bXgtaGxTWF9PYzA3RFdTUldMZi04TDVrX1JvRXVsX2FuWE1pdVZxeEVJZEg4UzI0eFBFTUt5WFgzU21iRnF2ZkRGT2dIdGpjakFyZURqX295UExEYlkta0NWcEZObk1ldGdsdEU3aTBMakFOWks?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAJBVV95cUxPNWEtTm0zTG9KanhYNUlGRURLSWE3Rmt3QkZvaWVoZDNLS3FHMXZlbDZyek5RNjllTFNfekxCR3RXb25ENFlXRkpnRnRnZUJxQ3Z6Qld1X3B1bEk5TjBOZXNfdUdrX29CWmdydWNmRzQwVjJLNnh2LW4wRmxqbmZQMWpHVmdrOFVuWWRYQnN4YTVtNFc5OTVYVVZ3bXgtaGxTWF9PYzA3RFdTUldMZi04TDVrX1JvRXVsX2FuWE1pdVZxeEVJZEg4UzI0eFBFTUt5WFgzU21iRnF2ZkRGT2dIdGpjakFyZURqX295UExEYlkta0NWcEZObk1ldGdsdEU3aTBMakFOWks?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

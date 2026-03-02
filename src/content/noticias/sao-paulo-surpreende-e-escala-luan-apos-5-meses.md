@@ -1,0 +1,13 @@
+---
+title: "São Paulo surpreende e escala Luan após 5 meses"
+description: "São Paulo surpreende e escala Luan após 5 meses  Portal Hortolândia"
+pubDate: "2026-03-01T23:51:29.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE1JZFVkXzZSYmh4Mk1VSXc5VW9yMEhIcGtUNTlqek1ueVZRcEFwQkdycjNKdFR2OHhfRU5JY2tGVFdidlppaWNRRmhwVmtYSWhkN1BDWUhEdldMbXZPZFZMNXFjUjRxcWxxYUU2aVZSajF1ZjdLbjY0LVhIVXjSAXxBVV95cUxNSWRVZF82UmJoeDJNVUl3OVVvcjBISHBrVDU5anpNbnlWUXBBcEJHcnIzSnRUdjh4X0VOSWNrRlRXYnZaaWljUUZocFZrWEloZDdQQ1lIRHZXTG12T2RWTDVxY1I0cXFscWFFNmlWUmoxdWY3S242NC1YSFV4?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE1JZFVkXzZSYmh4Mk1VSXc5VW9yMEhIcGtUNTlqek1ueVZRcEFwQkdycjNKdFR2OHhfRU5JY2tGVFdidlppaWNRRmhwVmtYSWhkN1BDWUhEdldMbXZPZFZMNXFjUjRxcWxxYUU2aVZSajF1ZjdLbjY0LVhIVXjSAXxBVV95cUxNSWRVZF82UmJoeDJNVUl3OVVvcjBISHBrVDU5anpNbnlWUXBBcEJHcnIzSnRUdjh4X0VOSWNrRlRXYnZaaWljUUZocFZrWEloZDdQQ1lIRHZXTG12T2RWTDVxY1I0cXFscWFFNmlWUmoxdWY3S242NC1YSFV4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

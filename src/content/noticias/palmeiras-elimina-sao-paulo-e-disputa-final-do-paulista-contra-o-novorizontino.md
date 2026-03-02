@@ -1,0 +1,13 @@
+---
+title: "Palmeiras elimina São Paulo e disputa final do Paulista contra o Novorizontino"
+description: "Palmeiras elimina São Paulo e disputa final do Paulista contra o Novorizontino  Gazeta Esportiva"
+pubDate: "2026-03-02T01:32:20.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxNUFIzSEswVTBZTUR0N1VaamdsMXJFcHU3LWZ3OUJuY0xHc0tOOW5rN1dZeXVfeW1vU0ZFM3BJbmpIZTM1SFRoUHlHNmItRTkwc25CaGNxOHZJYUM2ZXJHNVFpazVyRmQxSlZmTy1GWmZ4WEM1S3NReU1IOWtRLXV0a21Vb1ZJelhQd0tMMzBEMUU2M1B2eTBN0gGXAUFVX3lxTE1QUjNISzBVMFlNRHQ3VVpqZ2wxckVwdTctZnc5Qm5jTEdzS045bms3V1l5dV95bW9TRkUzcEluakhlMzVIVGhQeUc2Yi1FOTBzbkJoY3E4dklhQzZlckc1UWlrNXJGZDFKVmZPLUZaZnhYQzVLc1F5TUg5a1EtdXRrbVVvVkl6WFB3S0wzMEQxRTYzUHZ5ME0?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxNUFIzSEswVTBZTUR0N1VaamdsMXJFcHU3LWZ3OUJuY0xHc0tOOW5rN1dZeXVfeW1vU0ZFM3BJbmpIZTM1SFRoUHlHNmItRTkwc25CaGNxOHZJYUM2ZXJHNVFpazVyRmQxSlZmTy1GWmZ4WEM1S3NReU1IOWtRLXV0a21Vb1ZJelhQd0tMMzBEMUU2M1B2eTBN0gGXAUFVX3lxTE1QUjNISzBVMFlNRHQ3VVpqZ2wxckVwdTctZnc5Qm5jTEdzS045bms3V1l5dV95bW9TRkUzcEluakhlMzVIVGhQeUc2Yi1FOTBzbkJoY3E4dklhQzZlckc1UWlrNXJGZDFKVmZPLUZaZnhYQzVLc1F5TUg5a1EtdXRrbVVvVkl6WFB3S0wzMEQxRTYzUHZ5ME0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

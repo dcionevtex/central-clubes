@@ -1,0 +1,13 @@
+---
+title: "Palmeiras 2 x 1 São Paulo: confira os melhores momentos das semifinais do Paulistão"
+description: "Palmeiras 2 x 1 São Paulo: confira os melhores momentos das semifinais do Paulistão  R7 Esportes"
+pubDate: "2026-03-02T02:41:00.000Z"
+source: "R7 Esportes"
+link: "https://news.google.com/rss/articles/CBMikwJBVV95cUxNd05HNm56WlQ4RWxOWkJkVTE4andDSlRZZmlnMTJlSmN3SDM4V3E4TmpZTElLLW5zZ0tWTWFiZzlRZVlsUTBJRWF5ekx4MmNqbkZqdVNnZkNXMnN6Qk1EY2JQbkJJS3NfSDFvaFJRR0FIZHlTMW1SUExqNnVXQkJGZTR3ZHdycmxvdTRYOEs4SV9HQ0ZFYUtmOWl1UUxVRkpwNkEtYTdPcTFQSFdnN3JnbVZXUFkzc004eGgtNS1mY1FORVRDa2gxVGNkNFNnVXdtMVI4QlZaVUJBUm1SbHFING5GVk03Z09GVV84ZGRJaEhCSk10MVNRNkZYLWExaWZfckxsSV9aQi1tVXpraVJzd3R3aw?oc=5"
+---
+
+### Fonte Original: R7 Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwJBVV95cUxNd05HNm56WlQ4RWxOWkJkVTE4andDSlRZZmlnMTJlSmN3SDM4V3E4TmpZTElLLW5zZ0tWTWFiZzlRZVlsUTBJRWF5ekx4MmNqbkZqdVNnZkNXMnN6Qk1EY2JQbkJJS3NfSDFvaFJRR0FIZHlTMW1SUExqNnVXQkJGZTR3ZHdycmxvdTRYOEs4SV9HQ0ZFYUtmOWl1UUxVRkpwNkEtYTdPcTFQSFdnN3JnbVZXUFkzc004eGgtNS1mY1FORVRDa2gxVGNkNFNnVXdtMVI4QlZaVUJBUm1SbHFING5GVk03Z09GVV84ZGRJaEhCSk10MVNRNkZYLWExaWZfckxsSV9aQi1tVXpraVJzd3R3aw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
