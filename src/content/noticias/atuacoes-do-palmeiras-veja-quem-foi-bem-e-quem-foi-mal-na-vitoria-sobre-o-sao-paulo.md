@@ -1,0 +1,13 @@
+---
+title: "Atuações do Palmeiras: veja quem foi bem e quem foi mal na vitória sobre o São Paulo"
+description: "Atuações do Palmeiras: veja quem foi bem e quem foi mal na vitória sobre o São Paulo  Gazeta Esportiva"
+pubDate: "2026-03-02T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMikAFBVV95cUxQNG5rRnQ2TVg4OEI4TUVoMmd0cEVsOVdXVnc3M3lyVGswOXFMTDZhYlFrMFlNZGExVExZakVOUDlteDVFOXBCSG1MUmJtejl3ejVMWllFa1RGRHpuY1R1QjRxSldkWk9CRUJRcTR4dmtSR2ZsYzVkTExSZk1iODZxSnFvZlI1ejkwUF9XODNjTlTSAZYBQVVfeXFMTXB6enBxQTJvR0JFU0Y5bG1sbVM3WVhkeU1HeGNiLTJwUVhaS0ZtVm1YTXBRbzBtc2RQV0FRQXMtVEVPS3dTbXA3Njg4RmZxcDdOVThvbHJ2c1V6N0p2b0lPTmhaRlNfWmFRX3NIQ2VwTG1HRmd4VGpHYU9vT3VCMXJLcUNuVllfeTNmZDNkZk83QzdKNzFn?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNG5rRnQ2TVg4OEI4TUVoMmd0cEVsOVdXVnc3M3lyVGswOXFMTDZhYlFrMFlNZGExVExZakVOUDlteDVFOXBCSG1MUmJtejl3ejVMWllFa1RGRHpuY1R1QjRxSldkWk9CRUJRcTR4dmtSR2ZsYzVkTExSZk1iODZxSnFvZlI1ejkwUF9XODNjTlTSAZYBQVVfeXFMTXB6enBxQTJvR0JFU0Y5bG1sbVM3WVhkeU1HeGNiLTJwUVhaS0ZtVm1YTXBRbzBtc2RQV0FRQXMtVEVPS3dTbXA3Njg4RmZxcDdOVThvbHJ2c1V6N0p2b0lPTmhaRlNfWmFRX3NIQ2VwTG1HRmd4VGpHYU9vT3VCMXJLcUNuVllfeTNmZDNkZk83QzdKNzFn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
