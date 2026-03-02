@@ -1,0 +1,13 @@
+---
+title: "Palmeiras brinca sobre gramado e provoca o São Paulo: “A vantagem é natural”"
+description: "Palmeiras brinca sobre gramado e provoca o São Paulo: “A vantagem é natural”  Gazeta Esportiva"
+pubDate: "2026-03-02T03:51:10.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxOSFN1eVMwN2JIbmFKU3B5bWxaZ081YjNHVldlcDN3Wi1rcnhFMTFWNkhBTm9NbkxWOUZMbUUxdm1RVGFxTlpkZW11T2tOMmhLWk5POTVNM0JkUFhibS1KTVp3Y1pma3N0LXZucUxjSy1OZHVHbTlack05QW1GTUR5dVJqOVVMQnVmZVVpUkx5dkdyUkNwdGxQNkM3RDVKWEtWR3hMWlluSngzT2fSAasBQVVfeXFMTkhTdXlTMDdiSG5hSlNweW1sWmdPNWIzR1ZXZXAzd1ota3J4RTExVjZIQU5vTW5MVjlGTG1FMXZtUVRhcU5aZGVtdU9rTjJoS1pOTzk1TTNCZFBYYm0tSk1ad2NaZmtzdC12bnFMY0stTmR1R205WnJNOUFtRk1EeXVSajlVTEJ1ZmVVaVJMeXZHclJDcHRsUDZDN0Q1SlhLVkd4TFpZbkp4M09n?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqwFBVV95cUxOSFN1eVMwN2JIbmFKU3B5bWxaZ081YjNHVldlcDN3Wi1rcnhFMTFWNkhBTm9NbkxWOUZMbUUxdm1RVGFxTlpkZW11T2tOMmhLWk5POTVNM0JkUFhibS1KTVp3Y1pma3N0LXZucUxjSy1OZHVHbTlack05QW1GTUR5dVJqOVVMQnVmZVVpUkx5dkdyUkNwdGxQNkM3RDVKWEtWR3hMWlluSngzT2fSAasBQVVfeXFMTkhTdXlTMDdiSG5hSlNweW1sWmdPNWIzR1ZXZXAzd1ota3J4RTExVjZIQU5vTW5MVjlGTG1FMXZtUVRhcU5aZGVtdU9rTjJoS1pOTzk1TTNCZFBYYm0tSk1ad2NaZmtzdC12bnFMY0stTmR1R205WnJNOUFtRk1EeXVSajlVTEJ1ZmVVaVJMeXZHclJDcHRsUDZDN0Q1SlhLVkd4TFpZbkp4M09n?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
