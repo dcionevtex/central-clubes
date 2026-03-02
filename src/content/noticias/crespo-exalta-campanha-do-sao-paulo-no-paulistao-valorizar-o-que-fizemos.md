@@ -1,0 +1,13 @@
+---
+title: "Crespo exalta campanha do São Paulo no Paulistão: “Valorizar o que fizemos”"
+description: "Crespo exalta campanha do São Paulo no Paulistão: “Valorizar o que fizemos”  Jogada 10"
+pubDate: "2026-03-02T03:24:06.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxQOHRMcWlMakVEemlRTVVKb2ljX0tfZVRoSlVzVlBTZXhEQ1lwbE1OTzJiYlFLdFRGMlVNNWNveVE1RGRKMEt0VElzRmduc213VzNGV1YtVFVVdmNrTjRLc3ltVThrZVhwYWlGZkhoaFFHVmJiTUY1SlV3cTUwYmtMaG84NHpFWmZmNDRwNHIwakZWSTdDa19RR2ZlOXYxQdIBowFBVV95cUxPZGM3MVdnZVBJcEQtRnp4aDQ4ci1FN205MTJpdXo1X2FZRkkzTTZlbmtiMzkyTkZfcFNqejY1UktTdlhmNzdMWXJvTkdjX0pTM0c4eFYzUk9rMElJYXdEQkdoMElUaGRNbVE2Ry1NX2djcWJoY2RoRjRZSlFHd2VkeXA1TDJ6bFZJMTBhb1d1SjhrMWZWVERVaWQ1ZDMwU0pkUGpJ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxQOHRMcWlMakVEemlRTVVKb2ljX0tfZVRoSlVzVlBTZXhEQ1lwbE1OTzJiYlFLdFRGMlVNNWNveVE1RGRKMEt0VElzRmduc213VzNGV1YtVFVVdmNrTjRLc3ltVThrZVhwYWlGZkhoaFFHVmJiTUY1SlV3cTUwYmtMaG84NHpFWmZmNDRwNHIwakZWSTdDa19RR2ZlOXYxQdIBowFBVV95cUxPZGM3MVdnZVBJcEQtRnp4aDQ4ci1FN205MTJpdXo1X2FZRkkzTTZlbmtiMzkyTkZfcFNqejY1UktTdlhmNzdMWXJvTkdjX0pTM0c4eFYzUk9rMElJYXdEQkdoMElUaGRNbVE2Ry1NX2djcWJoY2RoRjRZSlFHd2VkeXA1TDJ6bFZJMTBhb1d1SjhrMWZWVERVaWQ1ZDMwU0pkUGpJ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
