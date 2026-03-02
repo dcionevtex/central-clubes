@@ -1,0 +1,13 @@
+---
+title: "São Paulo ganha 10 dias para se preparar para o Brasileirão"
+description: "São Paulo ganha 10 dias para se preparar para o Brasileirão  Portal Hortolândia"
+pubDate: "2026-03-02T14:46:45.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPSUVrQTNGX2NWY3Q2YXNqNDFnV0lvcVhRYm5Bc3NEaVFYZEdNbjAzNDJuVUlsc01YQ2tPVVdjTU44allHZ3BlYmJhdWg0Y1VNWk94d291dXdUSEl3S1BJNERlMFlxb2I3MGNvSEZCSm9ET3lCUlVhRE1DOXEyakU4d2Fn0gGCAUFVX3lxTE9JRWtBM0ZfY1ZjdDZhc2o0MWdXSW9xWFFibkFzc0RpUVhkR01uMDM0Mm5VSWxzTVhDa09VV2NNTjhqWUdncGViYmF1aDRjVU1aT3h3b3V1d1RISXdLUEk0RGUwWXFvYjcwY29IRkJKb0RPeUJSVWFETUM5cTJqRTh3YWc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSUVrQTNGX2NWY3Q2YXNqNDFnV0lvcVhRYm5Bc3NEaVFYZEdNbjAzNDJuVUlsc01YQ2tPVVdjTU44allHZ3BlYmJhdWg0Y1VNWk94d291dXdUSEl3S1BJNERlMFlxb2I3MGNvSEZCSm9ET3lCUlVhRE1DOXEyakU4d2Fn0gGCAUFVX3lxTE9JRWtBM0ZfY1ZjdDZhc2o0MWdXSW9xWFFibkFzc0RpUVhkR01uMDM0Mm5VSWxzTVhDa09VV2NNTjhqWUdncGViYmF1aDRjVU1aT3h3b3V1d1RISXdLUEk0RGUwWXFvYjcwY29IRkJKb0RPeUJSVWFETUM5cTJqRTh3YWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
