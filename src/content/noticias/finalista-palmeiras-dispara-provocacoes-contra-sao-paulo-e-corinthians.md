@@ -1,0 +1,13 @@
+---
+title: "Finalista, Palmeiras dispara provocações contra São Paulo e Corinthians"
+description: "Finalista, Palmeiras dispara provocações contra São Paulo e Corinthians  Rádio Itatiaia"
+pubDate: "2026-03-02T15:48:48.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi8AFBVV95cUxNNTI2c0dpbWhzVnJkRktWQnBXRkx5dkU3ZE40eTRPaTA0aUt3ZlY5QTVyYWd3aXpDc0cyZU8yVXhrSTZ4OXBMakZFTW1DeHBkOTh4UzJRbzJrby1Cc1hzNFZRejVWdXh0NS1YUWxVMzd1aHpuSTg0ZGFIX0RydmIybGF6Z0IxM2xTRDNIUHpqdXhhTTZ6S25fZlBrUnd5U2EycG5SdlpEeGs4bHlUNHRDRkpldG52RW9oUHJfamxabDB0RFpKSGlmaTZXMXhCV3Q5Q0F2S2Q4R0RkUWF6V2VTVXFuY3N4eHBOZFZqYUNmenI?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi8AFBVV95cUxNNTI2c0dpbWhzVnJkRktWQnBXRkx5dkU3ZE40eTRPaTA0aUt3ZlY5QTVyYWd3aXpDc0cyZU8yVXhrSTZ4OXBMakZFTW1DeHBkOTh4UzJRbzJrby1Cc1hzNFZRejVWdXh0NS1YUWxVMzd1aHpuSTg0ZGFIX0RydmIybGF6Z0IxM2xTRDNIUHpqdXhhTTZ6S25fZlBrUnd5U2EycG5SdlpEeGs4bHlUNHRDRkpldG52RW9oUHJfamxabDB0RFpKSGlmaTZXMXhCV3Q5Q0F2S2Q4R0RkUWF6V2VTVXFuY3N4eHBOZFZqYUNmenI?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

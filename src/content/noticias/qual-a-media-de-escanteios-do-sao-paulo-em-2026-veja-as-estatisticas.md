@@ -1,0 +1,13 @@
+---
+title: "Qual a média de escanteios do São Paulo em 2026? Veja as estatísticas"
+description: "Qual a média de escanteios do São Paulo em 2026? Veja as estatísticas  Grêmio News"
+pubDate: "2026-03-02T14:06:54.000Z"
+source: "Grêmio News"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxQX2FhREluQlgta1d0VHdleWxubFBEXzktcTZwVFZsVHJjWmNEczFQcDkyX1ZfRGRxZ24wTjlUVjljS3BMWllUS1dEZzJoMTlid3RTdkpMel9nLWNKX2NNMWtIZkw3THEwcEViTjZPSGFhRm8tMnNDcnYtdExHUzUwVFdTZVN5U2RZWC1rc2VjNHEtenZTT1N1R9IBngFBVV95cUxQWTRiaDU5R3JvZG1CakRaNlBNMmZDV0xTQkptdjVGYjZOMEhsVmhaWmc1bGNQWFhKTWNoLVZVNC1nVUhfWG9HQXhQR1dqWEdOMUVndEN2ZV90bnhySUh5TEtNalM3Z2RDWVRVcnQ4TlRtcENnbWIwckROUDItWHhOc2JpTDNEODVnMlRaSnI2bG1uYnpYVDVNZGhmQWlVZw?oc=5"
+---
+
+### Fonte Original: Grêmio News
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxQX2FhREluQlgta1d0VHdleWxubFBEXzktcTZwVFZsVHJjWmNEczFQcDkyX1ZfRGRxZ24wTjlUVjljS3BMWllUS1dEZzJoMTlid3RTdkpMel9nLWNKX2NNMWtIZkw3THEwcEViTjZPSGFhRm8tMnNDcnYtdExHUzUwVFdTZVN5U2RZWC1rc2VjNHEtenZTT1N1R9IBngFBVV95cUxQWTRiaDU5R3JvZG1CakRaNlBNMmZDV0xTQkptdjVGYjZOMEhsVmhaWmc1bGNQWFhKTWNoLVZVNC1nVUhfWG9HQXhQR1dqWEdOMUVndEN2ZV90bnhySUh5TEtNalM3Z2RDWVRVcnQ4TlRtcENnbWIwckROUDItWHhOc2JpTDNEODVnMlRaSnI2bG1uYnpYVDVNZGhmQWlVZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
