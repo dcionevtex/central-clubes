@@ -1,0 +1,13 @@
+---
+title: "Presidente do Palmeiras evita polemizar contra arbitragem e alfineta São Paulo por reclamação"
+description: "Presidente do Palmeiras evita polemizar contra arbitragem e alfineta São Paulo por reclamação  Gazeta Esportiva"
+pubDate: "2026-03-02T17:47:29.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxNblRLTU1iMDdiYmltM094QVpqSWxPZkhXTENISnJlYUNXQ2dqTVlOT044X19XVkhISk83eXJYWENPZEh2MGU0UUE4bUFvSEo3MDFsT3c1Sml0Mi1La1pTQ19pZ0FOeklla2FLazdYazlwblYyajlaYVFELWVtS2t4REZoVWVZeXd2ZWV1Njg0WVJ3SzjSAZMBQVVfeXFMTW5US01NYjA3YmJpbTNPeEFaaklsT2ZIV0xDSEpyZWFDV0Nnak1ZTk9OOF9fV1ZISEpPN3lyWFhDT2RIdjBlNFFBOG1Bb0hKNzAxbE93NUppdDItS2taU0NfaWdBTnpJZWthS2s3WGs5cG5WMmo5WmFRRC1lbUtreERGaFVlWXl3dmVldTY4NFlSd0s4?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxNblRLTU1iMDdiYmltM094QVpqSWxPZkhXTENISnJlYUNXQ2dqTVlOT044X19XVkhISk83eXJYWENPZEh2MGU0UUE4bUFvSEo3MDFsT3c1Sml0Mi1La1pTQ19pZ0FOeklla2FLazdYazlwblYyajlaYVFELWVtS2t4REZoVWVZeXd2ZWV1Njg0WVJ3SzjSAZMBQVVfeXFMTW5US01NYjA3YmJpbTNPeEFaaklsT2ZIV0xDSEpyZWFDV0Nnak1ZTk9OOF9fV1ZISEpPN3lyWFhDT2RIdjBlNFFBOG1Bb0hKNzAxbE93NUppdDItS2taU0NfaWdBTnpJZWthS2s3WGs5cG5WMmo5WmFRRC1lbUtreERGaFVlWXl3dmVldTY4NFlSd0s4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
