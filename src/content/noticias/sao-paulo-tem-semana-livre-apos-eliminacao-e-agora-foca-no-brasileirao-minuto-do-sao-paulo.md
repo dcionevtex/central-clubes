@@ -1,0 +1,13 @@
+---
+title: "SÃO PAULO TEM SEMANA LIVRE APÓS ELIMINAÇÃO E AGORA FOCA NO BRASILEIRÃO – MINUTO DO SÃO PAULO"
+description: "SÃO PAULO TEM SEMANA LIVRE APÓS ELIMINAÇÃO E AGORA FOCA NO BRASILEIRÃO – MINUTO DO SÃO PAULO  LANCE!"
+pubDate: "2026-03-03T00:05:54.000Z"
+source: "LANCE!"
+link: "https://news.google.com/rss/articles/CBMivwFBVV95cUxPZlZOX1BfTlNaSldOM1lCRWdlcWNDMGtSeGZPRXlRbzF2c25PSEQ1dTdUcDVzQUtwMXlTZFdhLWRSZjllY3NFQWhNczkzVkZKdE1nSk1ESjg5V3lZcG9FUXJfRXdhdkZMaDc5N3pjTGtiaGlQRDVPRGpZNlFfdjZ1RG5leFZtVjdJblBkYVlxb3NsVWJ5MW9xU0JSbmptMThRdEszVE9YMlQwXzc0b210WVRLSWdjQ09jS3BILXI3UQ?oc=5"
+---
+
+### Fonte Original: LANCE!
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMivwFBVV95cUxPZlZOX1BfTlNaSldOM1lCRWdlcWNDMGtSeGZPRXlRbzF2c25PSEQ1dTdUcDVzQUtwMXlTZFdhLWRSZjllY3NFQWhNczkzVkZKdE1nSk1ESjg5V3lZcG9FUXJfRXdhdkZMaDc5N3pjTGtiaGlQRDVPRGpZNlFfdjZ1RG5leFZtVjdJblBkYVlxb3NsVWJ5MW9xU0JSbmptMThRdEszVE9YMlQwXzc0b210WVRLSWdjQ09jS3BILXI3UQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
