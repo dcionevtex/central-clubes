@@ -1,0 +1,13 @@
+---
+title: "Elenco folga, e São Paulo prepara ‘intertemporada’ após deixar Paulista fortalecido"
+description: "Elenco folga, e São Paulo prepara ‘intertemporada’ após deixar Paulista fortalecido  Rádio Itatiaia"
+pubDate: "2026-03-03T10:00:00.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiggJBVV95cUxNMGpsb2g0ak5URGViYktRS3d3eXV3cm1MZDRmVVFKNWE4eWprOE0zdVBHeTQybFJDVV85RU5xR1JWTVVTT0k2V3ZrQlJzWnRpbWdYRi0wNzBqakhFRXFubXNGdk5qQUFwNV9CVmtxa3UzZHZXMG1TUTZsXzhiWG9wN2JhXy1vYUlUM2M2ejNkcVdTVTl2ZUpGYWVIRjRIUG1ueDhmSGVwOFotTE5CYVBsTU5yZENpRlIwWHVXTGZhdjQybl9neEdORUtPT29vcU5FaDBpemd0UkdxRVctb2pfbm5GZFhBZldVcVh1ZVlkdy0wX29ocUJWX05QdHhrdG5jN3c?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggJBVV95cUxNMGpsb2g0ak5URGViYktRS3d3eXV3cm1MZDRmVVFKNWE4eWprOE0zdVBHeTQybFJDVV85RU5xR1JWTVVTT0k2V3ZrQlJzWnRpbWdYRi0wNzBqakhFRXFubXNGdk5qQUFwNV9CVmtxa3UzZHZXMG1TUTZsXzhiWG9wN2JhXy1vYUlUM2M2ejNkcVdTVTl2ZUpGYWVIRjRIUG1ueDhmSGVwOFotTE5CYVBsTU5yZENpRlIwWHVXTGZhdjQybl9neEdORUtPT29vcU5FaDBpemd0UkdxRVctb2pfbm5GZFhBZldVcVh1ZVlkdy0wX29ocUJWX05QdHhrdG5jN3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
