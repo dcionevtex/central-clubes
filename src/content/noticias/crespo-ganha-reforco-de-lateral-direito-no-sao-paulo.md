@@ -1,0 +1,13 @@
+---
+title: "Crespo ganha reforço de lateral-direito no São Paulo"
+description: "Crespo ganha reforço de lateral-direito no São Paulo  Portal Hortolândia"
+pubDate: "2026-03-03T18:04:37.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxQUzE3SUF6N0hvcElvTllrS3pYUEdSZzEyQzg5OS14ZXZ1Umo2WGdWVEhMamVBaDgxeHFhYmtWLWxEZEpNOUVsX0ZFdmlpNHdkaE4tZUZpanNRTWI0eFU5bU1ESXlZTG8wQnZVVkhjaVRMS3NfUHFuazhwWXpqYnk5bEl30gGCAUFVX3lxTFBTMTdJQXo3SG9wSW9OWWtLelhQR1JnMTJDODk5LXhldnVSajZYZ1ZUSExqZUFoODF4cWFia1YtbERkSk05RWxfRkV2aWk0d2RoTi1lRmlqc1FNYjR4VTltTURJeVlMbzBCdlVWSGNpVExLc19QcW5rOHBZempieTlsSXc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxQUzE3SUF6N0hvcElvTllrS3pYUEdSZzEyQzg5OS14ZXZ1Umo2WGdWVEhMamVBaDgxeHFhYmtWLWxEZEpNOUVsX0ZFdmlpNHdkaE4tZUZpanNRTWI0eFU5bU1ESXlZTG8wQnZVVkhjaVRMS3NfUHFuazhwWXpqYnk5bEl30gGCAUFVX3lxTFBTMTdJQXo3SG9wSW9OWWtLelhQR1JnMTJDODk5LXhldnVSajZYZ1ZUSExqZUFoODF4cWFia1YtbERkSk05RWxfRkV2aWk0d2RoTi1lRmlqc1FNYjR4VTltTURJeVlMbzBCdlVWSGNpVExLc19QcW5rOHBZempieTlsSXc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
