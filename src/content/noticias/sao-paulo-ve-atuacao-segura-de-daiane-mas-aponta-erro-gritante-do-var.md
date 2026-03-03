@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê atuação segura de Daiane, mas aponta “erro gritante” do VAR"
+description: "São Paulo vê atuação segura de Daiane, mas aponta “erro gritante” do VAR  Bolavip"
+pubDate: "2026-03-03T12:30:38.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxNN3Bic2lkSWJYQnZsMWlrLUdNQ0p0Y1BFenk2dDJPMWRNZEk0MHhpbGFaNnEyd00tQUlsUGswbVNVOTY5el9WdVJqRVU4MzhYZTh5RnMwZ0JKQVRKVXRkZVVZcDZNNmpoU2gtTF8ybmdnR2V5YWppdlB5MWExM0diazJhUmJsMFdLOF95MFppUG5hVERnMzBpT2NNVndKREd5UW5ZbtIBqgFBVV95cUxQaEFxMjVfMU5XQmdmd1BIYTNITHZrMHFzcjRURXFsLXgwVU5FYUkzTEhSemJhUThWQXd3WmFEcnJkX0JYSjZWQTdiazJpdm9PeDNWb1dkb2dwaXMwVHRNbEpWNklEZWROWE9reUVyYUtrbWd5TExCSHRBT3lOWmk5ZTZON1RYRGk3OG52ejFteDFwZkkzVDVNemVJbkI5enl5cTJLZGRmMmhBUQ?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxNN3Bic2lkSWJYQnZsMWlrLUdNQ0p0Y1BFenk2dDJPMWRNZEk0MHhpbGFaNnEyd00tQUlsUGswbVNVOTY5el9WdVJqRVU4MzhYZTh5RnMwZ0JKQVRKVXRkZVVZcDZNNmpoU2gtTF8ybmdnR2V5YWppdlB5MWExM0diazJhUmJsMFdLOF95MFppUG5hVERnMzBpT2NNVndKREd5UW5ZbtIBqgFBVV95cUxQaEFxMjVfMU5XQmdmd1BIYTNITHZrMHFzcjRURXFsLXgwVU5FYUkzTEhSemJhUThWQXd3WmFEcnJkX0JYSjZWQTdiazJpdm9PeDNWb1dkb2dwaXMwVHRNbEpWNklEZWROWE9reUVyYUtrbWd5TExCSHRBT3lOWmk5ZTZON1RYRGk3OG52ejFteDFwZkkzVDVNemVJbkI5enl5cTJLZGRmMmhBUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
