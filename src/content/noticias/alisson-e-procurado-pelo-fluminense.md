@@ -1,0 +1,13 @@
+---
+title: "Alisson é procurado pelo Fluminense"
+description: "Alisson é procurado pelo Fluminense  Portal Hortolândia"
+pubDate: "2026-03-04T00:35:07.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNMFJNbXRNMkY2d0lKaV9seDZ3ZHFKTjhQSnZ2TTJqZEo0ZVJrdFpoVnZDVUs2cEl1X1FSb1o3V2JSX1VJeVIzVGZaTFZGYXhCcmNzY2F4cUZDMURabHpHZVZiM2M1cWZOUE45OW1UVGlSWTNEdE1nWmlHR0pJVk4ydNIBgAFBVV95cUxNMFJNbXRNMkY2d0lKaV9seDZ3ZHFKTjhQSnZ2TTJqZEo0ZVJrdFpoVnZDVUs2cEl1X1FSb1o3V2JSX1VJeVIzVGZaTFZGYXhCcmNzY2F4cUZDMURabHpHZVZiM2M1cWZOUE45OW1UVGlSWTNEdE1nWmlHR0pJVk4ydA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNMFJNbXRNMkY2d0lKaV9seDZ3ZHFKTjhQSnZ2TTJqZEo0ZVJrdFpoVnZDVUs2cEl1X1FSb1o3V2JSX1VJeVIzVGZaTFZGYXhCcmNzY2F4cUZDMURabHpHZVZiM2M1cWZOUE45OW1UVGlSWTNEdE1nWmlHR0pJVk4ydNIBgAFBVV95cUxNMFJNbXRNMkY2d0lKaV9seDZ3ZHFKTjhQSnZ2TTJqZEo0ZVJrdFpoVnZDVUs2cEl1X1FSb1o3V2JSX1VJeVIzVGZaTFZGYXhCcmNzY2F4cUZDMURabHpHZVZiM2M1cWZOUE45OW1UVGlSWTNEdE1nWmlHR0pJVk4ydA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
