@@ -1,0 +1,13 @@
+---
+title: "São Paulo fecha janela com cinco reforços e aproveita oportunidades de mercado"
+description: "São Paulo fecha janela com cinco reforços e aproveita oportunidades de mercado  Rádio Itatiaia"
+pubDate: "2026-03-04T09:30:00.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_wFBVV95cUxOcHBPczFjWWs2RHFhd0xLdTlPYVVvUUU1b1djVkUyUzVQeFJnQXNjdFFUN3A5V2ctaUFiMmFCY2pseGhsbUIwcEFDbHNKaDRSaUlJdjhPUHh3SFZQMkFGMVZvNTRIejFEM2d6ZHlXRHFkMDdxYlA0SWpJVk5KQWt1RElaRUxlNjNJNmRhQXFycHVORTNYMGZlX212LW55S3BxVEhEdTNOakw2S2otNXJEVEtYLXJHZ0h6QmNDbHJpYjcwdUM1Ui1uT25KUEFtaDF3dDBNZU9Vc1hqSWdIanRWNkFzY0hycWFjRGxkM0NkbHBmOC1QeEJCZjJXMHdCNTg?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_wFBVV95cUxOcHBPczFjWWs2RHFhd0xLdTlPYVVvUUU1b1djVkUyUzVQeFJnQXNjdFFUN3A5V2ctaUFiMmFCY2pseGhsbUIwcEFDbHNKaDRSaUlJdjhPUHh3SFZQMkFGMVZvNTRIejFEM2d6ZHlXRHFkMDdxYlA0SWpJVk5KQWt1RElaRUxlNjNJNmRhQXFycHVORTNYMGZlX212LW55S3BxVEhEdTNOakw2S2otNXJEVEtYLXJHZ0h6QmNDbHJpYjcwdUM1Ui1uT25KUEFtaDF3dDBNZU9Vc1hqSWdIanRWNkFzY0hycWFjRGxkM0NkbHBmOC1QeEJCZjJXMHdCNTg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
