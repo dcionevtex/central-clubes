@@ -1,0 +1,13 @@
+---
+title: "São Paulo libera Alisson para viajar ao Rio de Janeiro e assinar com o Fluminense"
+description: "São Paulo libera Alisson para viajar ao Rio de Janeiro e assinar com o Fluminense  Terra"
+pubDate: "2026-03-04T22:15:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMikwJBVV95cUxPZlQway1LbzYxLUZoUVQ2ZGMwX3daNUh2U3ItZ08wbGtPWmtDb1RvQ0xuN2lxeGIwMzdyY0pBbS1kbkpFcjAtMkVrc0hzbjZrZ0hqVzJDRl96azNEWktORDN3XzBsbVRCcjFjOVRVUjJwUURBMnNNaktULXNsQmgtWnJKTDlRUWxWU05QdHA3VEdGSkNsZU5PM1BXR2c5eVJCbGNsSUxGaElVRFdlaThCbkF4aUU3SXhiLU94TGcta0NmeG5DcVYyQ2ZlbURZUXBiUi02VzU0TUwyZUlxakYzb1Y4QkMzYU91YzZybi1LemhzWHIzQVFTTlZ1aGpxS3IxMmpRdXQ3cGZLTWJ4OXp1TWZGUQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwJBVV95cUxPZlQway1LbzYxLUZoUVQ2ZGMwX3daNUh2U3ItZ08wbGtPWmtDb1RvQ0xuN2lxeGIwMzdyY0pBbS1kbkpFcjAtMkVrc0hzbjZrZ0hqVzJDRl96azNEWktORDN3XzBsbVRCcjFjOVRVUjJwUURBMnNNaktULXNsQmgtWnJKTDlRUWxWU05QdHA3VEdGSkNsZU5PM1BXR2c5eVJCbGNsSUxGaElVRFdlaThCbkF4aUU3SXhiLU94TGcta0NmeG5DcVYyQ2ZlbURZUXBiUi02VzU0TUwyZUlxakYzb1Y4QkMzYU91YzZybi1LemhzWHIzQVFTTlZ1aGpxS3IxMmpRdXQ3cGZLTWJ4OXp1TWZGUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
