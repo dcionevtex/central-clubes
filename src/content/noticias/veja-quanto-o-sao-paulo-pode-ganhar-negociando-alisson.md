@@ -1,0 +1,13 @@
+---
+title: "Veja quanto o São Paulo pode ganhar negociando Alisson"
+description: "Veja quanto o São Paulo pode ganhar negociando Alisson  Portal Hortolândia"
+pubDate: "2026-03-04T14:52:32.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHFKZU83OUxydmJXRmZRV3ZTTmRYMTVvWDItRmpFTWtkdW5kcWJHMXp2OWdobVR2RlN6ZjY1SnllV2pLemNlQ1VQcmN0a0hzR2czOWtvaUFTOURBYTM0X1ZtalUxQjRhMk55N01zekVVcEtUMnlndzZaRnc1U0lqQkNmSThlVmU40gGIAUFVX3lxTE5YcUplTzc5THJ2YldGZlFXdlNOZFgxNW9YMi1GakVNa2R1bmRxYkcxenY5Z2htVHZGU3pmNjVKeWVXakt6Y2VDVVByY3RrSHNHZzM5a29pQVM5REFhMzRfVm1qVTFCNGEyTnk3TXN6RVVwS1QyeWd3NlpGdzVTSWpCQ2ZJOGVWZTg?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAFBVV95cUxOWHFKZU83OUxydmJXRmZRV3ZTTmRYMTVvWDItRmpFTWtkdW5kcWJHMXp2OWdobVR2RlN6ZjY1SnllV2pLemNlQ1VQcmN0a0hzR2czOWtvaUFTOURBYTM0X1ZtalUxQjRhMk55N01zekVVcEtUMnlndzZaRnc1U0lqQkNmSThlVmU40gGIAUFVX3lxTE5YcUplTzc5THJ2YldGZlFXdlNOZFgxNW9YMi1GakVNa2R1bmRxYkcxenY5Z2htVHZGU3pmNjVKeWVXakt6Y2VDVVByY3RrSHNHZzM5a29pQVM5REFhMzRfVm1qVTFCNGEyTnk3TXN6RVVwS1QyeWd3NlpGdzVTSWpCQ2ZJOGVWZTg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
