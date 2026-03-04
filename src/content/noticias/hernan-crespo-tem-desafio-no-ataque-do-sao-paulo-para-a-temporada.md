@@ -1,0 +1,13 @@
+---
+title: "Hernán Crespo tem desafio no ataque do São Paulo para a temporada"
+description: "Hernán Crespo tem desafio no ataque do São Paulo para a temporada  Bolavip"
+pubDate: "2026-03-04T10:30:00.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxPdDFNcUFJZHlMTEVkWkNBQUhDeGRLM1JLY2RRVjhaNklOVVNUblRIR1owZG1pRkF3bXEtLVF2TlB5NFVCcFFwaEJGNTFBaTAtSDJ0OHR3RlBwSlpsUjlacXg0ODRaaHJFUVVQYjJQUlM2U01TSUNDVG1QVDctMVJwVUNUMEM1WnA2c0dpS3EwdGtKQXlpVmZMTmtzemZOdjDSAaQBQVVfeXFMTXpKY2l0SW80OTEtQjBiMnB2SHRTOHNVeUxCUmpPWU1RbzBtTmNBYXhBMmYtc0dSbkQ5NzhSUUtVSUNtczZoWmdrSm1iUk9faTJjTTVPQ3k1b1dJMTROeWdicXRWRUxSOUtCdnItOWpkd2FxaHYxTko2UkgxQWwxd3lydXloZzB6RnY0bG83YzJnLUZZa3laVUwzSG9EWjE3anJvTGQ?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxPdDFNcUFJZHlMTEVkWkNBQUhDeGRLM1JLY2RRVjhaNklOVVNUblRIR1owZG1pRkF3bXEtLVF2TlB5NFVCcFFwaEJGNTFBaTAtSDJ0OHR3RlBwSlpsUjlacXg0ODRaaHJFUVVQYjJQUlM2U01TSUNDVG1QVDctMVJwVUNUMEM1WnA2c0dpS3EwdGtKQXlpVmZMTmtzemZOdjDSAaQBQVVfeXFMTXpKY2l0SW80OTEtQjBiMnB2SHRTOHNVeUxCUmpPWU1RbzBtTmNBYXhBMmYtc0dSbkQ5NzhSUUtVSUNtczZoWmdrSm1iUk9faTJjTTVPQ3k1b1dJMTROeWdicXRWRUxSOUtCdnItOWpkd2FxaHYxTko2UkgxQWwxd3lydXloZzB6RnY0bG83YzJnLUZZa3laVUwzSG9EWjE3anJvTGQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
