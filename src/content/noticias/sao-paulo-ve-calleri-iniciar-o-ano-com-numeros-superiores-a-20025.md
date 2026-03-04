@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê Calleri iniciar o ano com números superiores a 20025"
+description: "São Paulo vê Calleri iniciar o ano com números superiores a 20025  Portal Hortolândia"
+pubDate: "2026-03-04T14:00:12.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQenZlTy1ERnNWdWRnbG9DS2N2ckE2cFZQejQ0cWJLTVdnR2h4MWY2YjNkTzFzQ24wdjZ5aV9DUHh5ZDgxM0E1ajV2WllCZ2RsSENsUUQ5NzB4YnhmUDhuNlRwOU9MdUh5QU90R2lhbU1CWW9BTDZQMkJFdGZEcGk5eGh5MNIBgwFBVV95cUxQenZlTy1ERnNWdWRnbG9DS2N2ckE2cFZQejQ0cWJLTVdnR2h4MWY2YjNkTzFzQ24wdjZ5aV9DUHh5ZDgxM0E1ajV2WllCZ2RsSENsUUQ5NzB4YnhmUDhuNlRwOU9MdUh5QU90R2lhbU1CWW9BTDZQMkJFdGZEcGk5eGh5MA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQenZlTy1ERnNWdWRnbG9DS2N2ckE2cFZQejQ0cWJLTVdnR2h4MWY2YjNkTzFzQ24wdjZ5aV9DUHh5ZDgxM0E1ajV2WllCZ2RsSENsUUQ5NzB4YnhmUDhuNlRwOU9MdUh5QU90R2lhbU1CWW9BTDZQMkJFdGZEcGk5eGh5MNIBgwFBVV95cUxQenZlTy1ERnNWdWRnbG9DS2N2ckE2cFZQejQ0cWJLTVdnR2h4MWY2YjNkTzFzQ24wdjZ5aV9DUHh5ZDgxM0E1ajV2WllCZ2RsSENsUUQ5NzB4YnhmUDhuNlRwOU9MdUh5QU90R2lhbU1CWW9BTDZQMkJFdGZEcGk5eGh5MA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
