@@ -1,0 +1,13 @@
+---
+title: "São Paulo renova com Marcos Antônio até 2030 e recebe 'reforço' inesperado"
+description: "São Paulo renova com Marcos Antônio até 2030 e recebe 'reforço' inesperado  band.com.br"
+pubDate: "2026-03-04T00:11:00.000Z"
+source: "band.com.br"
+link: "https://news.google.com/rss/articles/CBMimwJBVV95cUxQUERJN3cyUWlHcVRrUVJMRVgyXzJMUmZLcnBZOU4wNU50WWw3U1BOcVhDNXhQMkFoNjJ4WW80V2hNLWV0dVlqLWlhZ3A5SXotUm1BR1hWVWtVVklXVDhaYzJraGNIV0NUd2UwaXBqSlJ0STJXc1FzUk05SWRFMlNRVUg4LV9YbFJZSUNjcHgyWTQwTTZBN3RKbm9rcFBuc2ZfQzM5MGRRSW0ta05CdVU2TEFRRmo2MjBuVTkzRzBKTk9wY2FBR1BRTldpZW12NUJablhKcE1sMXd0NHdGU0tWM0Z0Yl9oaEVTSXVYY2xqbVk3d18zYjRGb3NpbVVzbXRYd3pLSVFBUzZ3MGFOTHhkTG1iTFhpanRJSFFV?oc=5"
+---
+
+### Fonte Original: band.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwJBVV95cUxQUERJN3cyUWlHcVRrUVJMRVgyXzJMUmZLcnBZOU4wNU50WWw3U1BOcVhDNXhQMkFoNjJ4WW80V2hNLWV0dVlqLWlhZ3A5SXotUm1BR1hWVWtVVklXVDhaYzJraGNIV0NUd2UwaXBqSlJ0STJXc1FzUk05SWRFMlNRVUg4LV9YbFJZSUNjcHgyWTQwTTZBN3RKbm9rcFBuc2ZfQzM5MGRRSW0ta05CdVU2TEFRRmo2MjBuVTkzRzBKTk9wY2FBR1BRTldpZW12NUJablhKcE1sMXd0NHdGU0tWM0Z0Yl9oaEVTSXVYY2xqbVk3d18zYjRGb3NpbVVzbXRYd3pLSVFBUzZ3MGFOTHhkTG1iTFhpanRJSFFV?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
