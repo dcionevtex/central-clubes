@@ -1,0 +1,13 @@
+---
+title: "Alisson se declara ao São Paulo: 'Carinho enorme pelo torcedor'"
+description: "Alisson se declara ao São Paulo: 'Carinho enorme pelo torcedor'  iG Esportes"
+pubDate: "2026-03-05T17:36:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxPcU1vNjJ5SWVoWk9Ic3pOaFV6YWlPR1RiUkdzV1dlZUh1M05WM2V5Sm44U0hWQlFxV1NLck5IYWdmMzRJejZvR2dROG5GT05qWFRSdXZUOEZOcUxvOXdVMFE5RHk2dlRwMVZmZlNERkdVQkIxNjFveER2WWY4R3d4dHRjMWlraXFiVFhWZk1kZDEyRWZ6MXZPV9IBngFBVV95cUxQYWRYbkRWYnhrQmd3dkhnUnRnLVl4MjFxNC1EOXNyWFU3VGpENktNWFg1RWpRdDIxVDRGNHR2TDFmSmRVLTJsWDVJS0hzNFJ3emI4YlBNVUV4V0VxYXRUc0s4Z3dGVFF6MllhRzJfMGtic0ZTRW1JQkNydWt5cnFBWFJRZDdCWE45ZHY4MU5XaHpIZHg1VVd4cXFST3RCdw?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxPcU1vNjJ5SWVoWk9Ic3pOaFV6YWlPR1RiUkdzV1dlZUh1M05WM2V5Sm44U0hWQlFxV1NLck5IYWdmMzRJejZvR2dROG5GT05qWFRSdXZUOEZOcUxvOXdVMFE5RHk2dlRwMVZmZlNERkdVQkIxNjFveER2WWY4R3d4dHRjMWlraXFiVFhWZk1kZDEyRWZ6MXZPV9IBngFBVV95cUxQYWRYbkRWYnhrQmd3dkhnUnRnLVl4MjFxNC1EOXNyWFU3VGpENktNWFg1RWpRdDIxVDRGNHR2TDFmSmRVLTJsWDVJS0hzNFJ3emI4YlBNVUV4V0VxYXRUc0s4Z3dGVFF6MllhRzJfMGtic0ZTRW1JQkNydWt5cnFBWFJRZDdCWE45ZHY4MU5XaHpIZHg1VVd4cXFST3RCdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
