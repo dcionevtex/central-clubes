@@ -1,0 +1,13 @@
+---
+title: "Alisson será jogador do Fluminense"
+description: "Alisson será jogador do Fluminense  Portal Hortolândia"
+pubDate: "2026-03-04T20:30:56.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMic0FVX3lxTE9taGVsMUJzYkgxMUF5RlZMOWJrcXhmRlFfRnZhZU1JVW9fR2JCc2ZubjBQUzM4aTQwQ0lyd2Y5aXM0MngyZVZ2akg3UUd1NHNLbXlwLWI5a2daa0x0V05HTzNEQ1NjTWZCZzI1NEs3dlcxdTDSAXNBVV95cUxPbWhlbDFCc2JIMTFBeUZWTDlia3F4ZkZRX0Z2YWVNSVVvX0diQnNmbm4wUFMzOGk0MENJcndmOWlzNDJ4MmVWdmpIN1FHdTRzS215cC1iOWtnWmtMdFdOR08zRENTY01mQmcyNTRLN3ZXMXUw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMic0FVX3lxTE9taGVsMUJzYkgxMUF5RlZMOWJrcXhmRlFfRnZhZU1JVW9fR2JCc2ZubjBQUzM4aTQwQ0lyd2Y5aXM0MngyZVZ2akg3UUd1NHNLbXlwLWI5a2daa0x0V05HTzNEQ1NjTWZCZzI1NEs3dlcxdTDSAXNBVV95cUxPbWhlbDFCc2JIMTFBeUZWTDlia3F4ZkZRX0Z2YWVNSVVvX0diQnNmbm4wUFMzOGk0MENJcndmOWlzNDJ4MmVWdmpIN1FHdTRzS215cC1iOWtnWmtMdFdOR08zRENTY01mQmcyNTRLN3ZXMXUw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
