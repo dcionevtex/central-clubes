@@ -1,0 +1,13 @@
+---
+title: "São Paulo renova com o 'motor' Marcos Antonio após forte assédio do Flamengo | Esportes | O Liberal"
+description: "São Paulo renova com o 'motor' Marcos Antonio após forte assédio do Flamengo | Esportes | O Liberal  O Liberal"
+pubDate: "2026-03-05T21:59:05.000Z"
+source: "O Liberal"
+link: "https://news.google.com/rss/articles/CBMiugFBVV95cUxQRm1fdWowSnVSbzE5b21TcURmbFQ5VHF2c0lzWTBuVS1BeGhra0UzRGtVdXItXzdiVWMtSnJCMGktNnZRUndGN25XUGNxcEVrdVIyTVllQWdhOHRkWWJqeC1UaTlId1JuV3hsbFNyc1hZbVlob1g2a0drZU8wZVcwZW5rbmlIdWVpeGsxWFlaWW1JR3lOaDNyTFdVbDRGRk9KZWJtQXFDbDdRRzQ0WllPT2ViT1RPSjRoWUHSAb8BQVVfeXFMT0tmSzVmd3ZITEp4cjVqTDZ4aFRVS2cyYkVXLVpUVi1FdGUtTllTSkJQSE4tOTBETmc0R01pa2RQenpCdEhiRV9Oby03VUs5YkFjM3RCcXRHUUJ4amdRaUxKZF9wbTFKa1VUSTZHR1UwdU5oRm1EdUN1T0M5Wlp6S2kwbHo5ZG1JMnU4Y0NOMS02VnF5RzB6UEhtR2RDWmFwTkcxRFh4WGNWOFlrVTBqaUlZSGcwMGZhNUU5NFZVeTg?oc=5"
+---
+
+### Fonte Original: O Liberal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiugFBVV95cUxQRm1fdWowSnVSbzE5b21TcURmbFQ5VHF2c0lzWTBuVS1BeGhra0UzRGtVdXItXzdiVWMtSnJCMGktNnZRUndGN25XUGNxcEVrdVIyTVllQWdhOHRkWWJqeC1UaTlId1JuV3hsbFNyc1hZbVlob1g2a0drZU8wZVcwZW5rbmlIdWVpeGsxWFlaWW1JR3lOaDNyTFdVbDRGRk9KZWJtQXFDbDdRRzQ0WllPT2ViT1RPSjRoWUHSAb8BQVVfeXFMT0tmSzVmd3ZITEp4cjVqTDZ4aFRVS2cyYkVXLVpUVi1FdGUtTllTSkJQSE4tOTBETmc0R01pa2RQenpCdEhiRV9Oby03VUs5YkFjM3RCcXRHUUJ4amdRaUxKZF9wbTFKa1VUSTZHR1UwdU5oRm1EdUN1T0M5Wlp6S2kwbHo5ZG1JMnU4Y0NOMS02VnF5RzB6UEhtR2RDWmFwTkcxRFh4WGNWOFlrVTBqaUlZSGcwMGZhNUU5NFZVeTg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
