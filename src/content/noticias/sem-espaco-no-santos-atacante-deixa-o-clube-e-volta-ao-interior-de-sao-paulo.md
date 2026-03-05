@@ -1,0 +1,13 @@
+---
+title: "Sem espaço no Santos, atacante deixa o clube e volta ao interior de São Paulo"
+description: "Sem espaço no Santos, atacante deixa o clube e volta ao interior de São Paulo  Esporte News Mundo"
+pubDate: "2026-03-05T00:31:24.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMirgFBVV95cUxQV1U2cTdSMEZ3WjJUbTlaTE8wcFVGV3VQNkdGTjV1LTctYWd0TmxwZF8yS3BtZXdwYVNuLUJfeWozZmkweU9GNU9KZHNGQ3JWSjZ1V09oTEZtWUo4cWRUUG5KSlVsU2h4emxiZC0yaG9VMm5Wak1MaTl3eUxERXBrQ0pURzk2NmM5NVlucTZmMlJ1OVZWZWVOWVE4R2g3UXJZUWNjOHJyVkpQazk0MHfSAbMBQVVfeXFMTndaWXU4NVZESXpaNUN3QjlSU3l2ZjRPcUZoa2xoem5xVkhoUjZHUkhPWlN1X2JIRm5SSzlhTWRHc3Y1RVdkUl9HOEpCaUdqZGlneDdKWm9RMjBmT3hvd0pDdUwwbHdpT0pidllNM0JRV0d1ZTJ0RU9EV0dhT2Q2MzIxVHJvcUUtdG1ObGF4b054QmdXc1BmbW1SNUFXWnN4SjZYb2xHblZfaXBiZkNfTC1nRVU?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgFBVV95cUxQV1U2cTdSMEZ3WjJUbTlaTE8wcFVGV3VQNkdGTjV1LTctYWd0TmxwZF8yS3BtZXdwYVNuLUJfeWozZmkweU9GNU9KZHNGQ3JWSjZ1V09oTEZtWUo4cWRUUG5KSlVsU2h4emxiZC0yaG9VMm5Wak1MaTl3eUxERXBrQ0pURzk2NmM5NVlucTZmMlJ1OVZWZWVOWVE4R2g3UXJZUWNjOHJyVkpQazk0MHfSAbMBQVVfeXFMTndaWXU4NVZESXpaNUN3QjlSU3l2ZjRPcUZoa2xoem5xVkhoUjZHUkhPWlN1X2JIRm5SSzlhTWRHc3Y1RVdkUl9HOEpCaUdqZGlneDdKWm9RMjBmT3hvd0pDdUwwbHdpT0pidllNM0JRV0d1ZTJ0RU9EV0dhT2Q2MzIxVHJvcUUtdG1ObGF4b054QmdXc1BmbW1SNUFXWnN4SjZYb2xHblZfaXBiZkNfTC1nRVU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

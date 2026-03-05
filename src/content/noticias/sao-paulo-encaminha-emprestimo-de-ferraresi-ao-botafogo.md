@@ -1,0 +1,13 @@
+---
+title: "São Paulo encaminha empréstimo de Ferraresi ao Botafogo"
+description: "São Paulo encaminha empréstimo de Ferraresi ao Botafogo  Terra"
+pubDate: "2026-03-04T23:33:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi8AFBVV95cUxOc0pGbmxudFNvN3lxdlZLbGppRTNpWkgyRTVQVWtnVVVnT1hsd0x1MUtDLVRPVkE0ZG94UG1hdWM1V2pqR0M2RGt6XzRZdjJkRFRHelJRNE9LcU5hbTR5Y1FFX0FDYXRJcWRUY0tSeUpnMWZrYTB5R0ZlRkRUbHVWQXhwdTFVUTVjX0NpbzlubnE4ZEI1NWdaY254SmhjeTNHQW14eS1wY1BDV2doZGc2V055ZkVKdXBqcjE3UjlfMjZMTnJDRDVPUjctX2FkZTVRNmVqYWtRUzZFX0hMQ19PSnNIOE1BZ3dEVjlneXZ0eEo?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi8AFBVV95cUxOc0pGbmxudFNvN3lxdlZLbGppRTNpWkgyRTVQVWtnVVVnT1hsd0x1MUtDLVRPVkE0ZG94UG1hdWM1V2pqR0M2RGt6XzRZdjJkRFRHelJRNE9LcU5hbTR5Y1FFX0FDYXRJcWRUY0tSeUpnMWZrYTB5R0ZlRkRUbHVWQXhwdTFVUTVjX0NpbzlubnE4ZEI1NWdaY254SmhjeTNHQW14eS1wY1BDV2doZGc2V055ZkVKdXBqcjE3UjlfMjZMTnJDRDVPUjctX2FkZTVRNmVqYWtRUzZFX0hMQ19PSnNIOE1BZ3dEVjlneXZ0eEo?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
