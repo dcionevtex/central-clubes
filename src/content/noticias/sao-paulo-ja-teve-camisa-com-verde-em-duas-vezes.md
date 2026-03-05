@@ -1,0 +1,13 @@
+---
+title: "São Paulo já teve camisa com verde em duas vezes"
+description: "São Paulo já teve camisa com verde em duas vezes  Portal Hortolândia"
+pubDate: "2026-03-05T15:11:56.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE9uRVRfR0kzd29wQTYwTElkNmtIeFZqOG5TSEZMYzM0dkgwVWlDSUhmQlJOdV8wejJNR01FaE0tbmxIU0pxcTZhQ0wxTjNDY3YyRnQ4Q01lRE5maTVXUklXTFR1cHpHN1M5cXZIUEpHcHNLVUg2MVNfV3V5M21VQdIBfkFVX3lxTE9uRVRfR0kzd29wQTYwTElkNmtIeFZqOG5TSEZMYzM0dkgwVWlDSUhmQlJOdV8wejJNR01FaE0tbmxIU0pxcTZhQ0wxTjNDY3YyRnQ4Q01lRE5maTVXUklXTFR1cHpHN1M5cXZIUEpHcHNLVUg2MVNfV3V5M21VQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE9uRVRfR0kzd29wQTYwTElkNmtIeFZqOG5TSEZMYzM0dkgwVWlDSUhmQlJOdV8wejJNR01FaE0tbmxIU0pxcTZhQ0wxTjNDY3YyRnQ4Q01lRE5maTVXUklXTFR1cHpHN1M5cXZIUEpHcHNLVUg2MVNfV3V5M21VQdIBfkFVX3lxTE9uRVRfR0kzd29wQTYwTElkNmtIeFZqOG5TSEZMYzM0dkgwVWlDSUhmQlJOdV8wejJNR01FaE0tbmxIU0pxcTZhQ0wxTjNDY3YyRnQ4Q01lRE5maTVXUklXTFR1cHpHN1M5cXZIUEpHcHNLVUg2MVNfV3V5M21VQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
