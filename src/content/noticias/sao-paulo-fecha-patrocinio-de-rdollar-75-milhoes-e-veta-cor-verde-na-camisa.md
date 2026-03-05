@@ -1,0 +1,13 @@
+---
+title: "São Paulo fecha patrocínio de R$ 75 milhões e veta cor verde na camisa"
+description: "São Paulo fecha patrocínio de R$ 75 milhões e veta cor verde na camisa  Bolavip"
+pubDate: "2026-03-05T11:09:46.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxOa2tqWGExbU53b1hCSnVVeFJWazluekRuNzFIZE5EaTZBNDhzdGwwZEI2c0xQS1NnWEw3YnZDMEZyd25vUTRDWTE2a0s3ek1aU0o4cHJFbXNjMjJqU0lPSHNGVGliY2xEV2JvcWcwOUpzTlZBVjI5TVRMbXRRWFpkRXVIemtGSXZFMXVPUUZVSElPTXBLMW1PZ3M0RGNNclBxWDkwQdIBqgFBVV95cUxQZjdDcjRISk1PWUhURzRVSEdLaG9CaFNKUjgwRlQ5TFBxWmZGdTNja2laejZHaDk3aGViWHBNdFRDWWV4NzU1czZjMnZxZXd3aERfbmdhRU5TQlR5a2JYTi05NHJTYTJqSTlCQWJPMFU4bHpRVXd4NXZQX1hva1QzcHBfNXhPcl9EbWI2OVZfUEwxdk5xR0pnNTBsTFhsb3ZQcTg1WG53TDdSUQ?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxOa2tqWGExbU53b1hCSnVVeFJWazluekRuNzFIZE5EaTZBNDhzdGwwZEI2c0xQS1NnWEw3YnZDMEZyd25vUTRDWTE2a0s3ek1aU0o4cHJFbXNjMjJqU0lPSHNGVGliY2xEV2JvcWcwOUpzTlZBVjI5TVRMbXRRWFpkRXVIemtGSXZFMXVPUUZVSElPTXBLMW1PZ3M0RGNNclBxWDkwQdIBqgFBVV95cUxQZjdDcjRISk1PWUhURzRVSEdLaG9CaFNKUjgwRlQ5TFBxWmZGdTNja2laejZHaDk3aGViWHBNdFRDWWV4NzU1czZjMnZxZXd3aERfbmdhRU5TQlR5a2JYTi05NHJTYTJqSTlCQWJPMFU4bHpRVXd4NXZQX1hva1QzcHBfNXhPcl9EbWI2OVZfUEwxdk5xR0pnNTBsTFhsb3ZQcTg1WG53TDdSUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
