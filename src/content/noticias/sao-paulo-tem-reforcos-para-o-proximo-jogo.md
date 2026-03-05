@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem reforços para o próximo jogo"
+description: "São Paulo tem reforços para o próximo jogo  Portal Hortolândia"
+pubDate: "2026-03-05T23:19:03.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxPLVBaOHZrUkI5LVNlQm5GY253OGo4SGRyX0tSUUpXQVRkc21KU3prcXY0Y0NtaGdsdkYzWUxrWkVjcW55ZHlRby1BTm1xVkpROE10Mm1xTVg2bHlfd2JXMTg2VU5mbk1GSXIxTkpFa1d2bHFBRWp2eTJBZUZPLUxLU2NMTHRyM2_SAYcBQVVfeXFMTy1QWjh2a1JCOS1TZUJuRmNudzhqOEhkcl9LUlFKV0FUZHNtSlN6a3F2NGNDbWhnbHZGM1lMa1pFY3FueWR5UW8tQU5tcVZKUThNdDJtcU1YNmx5X3diVzE4NlVOZm5NRklyMU5KRWtXdmxxQUVqdnkyQWVGTy1MS1NjTEx0cjNv?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxPLVBaOHZrUkI5LVNlQm5GY253OGo4SGRyX0tSUUpXQVRkc21KU3prcXY0Y0NtaGdsdkYzWUxrWkVjcW55ZHlRby1BTm1xVkpROE10Mm1xTVg2bHlfd2JXMTg2VU5mbk1GSXIxTkpFa1d2bHFBRWp2eTJBZUZPLUxLU2NMTHRyM2_SAYcBQVVfeXFMTy1QWjh2a1JCOS1TZUJuRmNudzhqOEhkcl9LUlFKV0FUZHNtSlN6a3F2NGNDbWhnbHZGM1lMa1pFY3FueWR5UW8tQU5tcVZKUThNdDJtcU1YNmx5X3diVzE4NlVOZm5NRklyMU5KRWtXdmxxQUVqdnkyQWVGTy1MS1NjTEx0cjNv?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
