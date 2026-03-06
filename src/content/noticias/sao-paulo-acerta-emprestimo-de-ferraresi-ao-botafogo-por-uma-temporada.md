@@ -1,0 +1,13 @@
+---
+title: "São Paulo acerta empréstimo de Ferraresi ao Botafogo por uma temporada"
+description: "São Paulo acerta empréstimo de Ferraresi ao Botafogo por uma temporada  jogada10.com.br"
+pubDate: "2026-03-06T13:42:49.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxQdzJYMVZEWXZhT0g1RFVjb05iWGRVdmdFS0JNaFJISWEzSkpweTF6azJ0Z0ZZd1VYWWd4aHJIVFU2RXRScXZWYlJTRW5EQTEwQ21tcXhrVzQzS0J4b3NIWDZxOXc1akxxT016OEJuSlhwa3lTak1ITldzY1lVa284dVlDQldna1BrMkJleFpLLXMxMUJKd2lFTk5sNNIBoAFBVV95cUxNeElyZVV6c0dnSUE0amVDQ01LX2hqbnhXVVdVbDZJMnNrRUxDVjVuY2JIVjh2NHg0aHd0TlZiR2xmYXB2N1F2WjE1UWdWbU9Gb2tkZzRrZm9NVHgyY3VXaWNuazFYWjdTYkRlVExmOWJGS0NJZDNfdVpHMUp1aEgzSW1zaEo3ZGhsT3JUMWh1dUNYdF96N0xYU1lBWm80azVj?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxQdzJYMVZEWXZhT0g1RFVjb05iWGRVdmdFS0JNaFJISWEzSkpweTF6azJ0Z0ZZd1VYWWd4aHJIVFU2RXRScXZWYlJTRW5EQTEwQ21tcXhrVzQzS0J4b3NIWDZxOXc1akxxT016OEJuSlhwa3lTak1ITldzY1lVa284dVlDQldna1BrMkJleFpLLXMxMUJKd2lFTk5sNNIBoAFBVV95cUxNeElyZVV6c0dnSUE0amVDQ01LX2hqbnhXVVdVbDZJMnNrRUxDVjVuY2JIVjh2NHg0aHd0TlZiR2xmYXB2N1F2WjE1UWdWbU9Gb2tkZzRrZm9NVHgyY3VXaWNuazFYWjdTYkRlVExmOWJGS0NJZDNfdVpHMUp1aEgzSW1zaEo3ZGhsT3JUMWh1dUNYdF96N0xYU1lBWm80azVj?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
