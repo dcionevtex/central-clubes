@@ -1,0 +1,13 @@
+---
+title: "São Paulo renova contrato com Marcos Antônio até o fim de 20230"
+description: "São Paulo renova contrato com Marcos Antônio até o fim de 20230  Portal Hortolândia"
+pubDate: "2026-03-05T20:28:38.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE16LWNWVjhqVVNpMTNYVTFSOThTX3dyMWY0el94WjBFUnFFUzkzeWtKOThqWmtHUWt4WGJkVl9rMXNVakRQcXhMME9uYnhDdHgyWk1yOXVxaWFJWHdVWFI5M08wZ1Jqbl8tRi04TlI2OHgwMkt6d1IzM3NSeE1NczDSAX9BVV95cUxNei1jVlY4alVTaTEzWFUxUjk4U193cjFmNHpfeFowRVJxRVM5M3lrSjk4alprR1FreFhiZFZfazFzVWpEUHF4TDBPbmJ4Q3R4MlpNcjl1cWlhSVh3VVhSOTNPMGdSam5fLUYtOE5SNjh4MDJLendSMzNzUnhNTXMw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE16LWNWVjhqVVNpMTNYVTFSOThTX3dyMWY0el94WjBFUnFFUzkzeWtKOThqWmtHUWt4WGJkVl9rMXNVakRQcXhMME9uYnhDdHgyWk1yOXVxaWFJWHdVWFI5M08wZ1Jqbl8tRi04TlI2OHgwMkt6d1IzM3NSeE1NczDSAX9BVV95cUxNei1jVlY4alVTaTEzWFUxUjk4U193cjFmNHpfeFowRVJxRVM5M3lrSjk4alprR1FreFhiZFZfazFzVWpEUHF4TDBPbmJ4Q3R4MlpNcjl1cWlhSVh3VVhSOTNPMGdSam5fLUYtOE5SNjh4MDJLendSMzNzUnhNTXMw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
