@@ -1,0 +1,13 @@
+---
+title: "São Paulo planeja economia milionária com empréstimos"
+description: "São Paulo planeja economia milionária com empréstimos  Portal Hortolândia"
+pubDate: "2026-03-06T22:28:51.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNcW96ZFlZam0yWWN3NDI1VG5ERF9vSUM2NzlLRlBoWEEwSFltQkFYVWNZd1VDdENuR0pKd1dEckE1cloxTWhrUzlmZlVveFFacjVUcW40Mm1td1MxOVdJM2FkSjBuMElGbXh0RzZZZ3U0Yzg5bk9DZ2FaeUV4WlJPeNIBgAFBVV95cUxNcW96ZFlZam0yWWN3NDI1VG5ERF9vSUM2NzlLRlBoWEEwSFltQkFYVWNZd1VDdENuR0pKd1dEckE1cloxTWhrUzlmZlVveFFacjVUcW40Mm1td1MxOVdJM2FkSjBuMElGbXh0RzZZZ3U0Yzg5bk9DZ2FaeUV4WlJPeA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNcW96ZFlZam0yWWN3NDI1VG5ERF9vSUM2NzlLRlBoWEEwSFltQkFYVWNZd1VDdENuR0pKd1dEckE1cloxTWhrUzlmZlVveFFacjVUcW40Mm1td1MxOVdJM2FkSjBuMElGbXh0RzZZZ3U0Yzg5bk9DZ2FaeUV4WlJPeNIBgAFBVV95cUxNcW96ZFlZam0yWWN3NDI1VG5ERF9vSUM2NzlLRlBoWEEwSFltQkFYVWNZd1VDdENuR0pKd1dEckE1cloxTWhrUzlmZlVveFFacjVUcW40Mm1td1MxOVdJM2FkSjBuMElGbXh0RzZZZ3U0Yzg5bk9DZ2FaeUV4WlJPeA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
