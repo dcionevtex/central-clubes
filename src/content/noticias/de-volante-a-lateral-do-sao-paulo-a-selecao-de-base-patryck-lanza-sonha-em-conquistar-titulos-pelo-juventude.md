@@ -1,0 +1,13 @@
+---
+title: "De volante à lateral, do São Paulo à Seleção de base: Patryck Lanza sonha em conquistar títulos pelo Juventude"
+description: "De volante à lateral, do São Paulo à Seleção de base: Patryck Lanza sonha em conquistar títulos pelo Juventude  GZH"
+pubDate: "2026-03-06T09:31:37.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMirgJBVV95cUxOQU4wWkE2XzRXVmN2dDZUdVhESVZLZkxsWlFQcWxHY0I3LVRWc1pPYmVZTUJfb2gzSFVVTlowUTBkZzRJVk9tQ19yVjYzWFN4c0ZxQUE4TEdpeHlFemNXc3M1OGtzZDVteWlieGxhOFg1eHo4eklmbEFoSy1XcVNlT21lNXNEeXpPTkJQLTJrZXU0Q3llTW9ETVhwLTk1WE1MNWVZMmNsdEI3ZThuSk41UWhxZUJQaG01d0VlZ3R4TElMejVxTlpLc2l0aTRSektBRFNzbkg1VWxLemJLdFJrTzIxUmNSVE9mSUhEUlM4UExReWF1Q2VVRHR4MEc0SGVpaG1zVUIyM1JjYWZvSTF0emxhdFd5a0p3dHE5OG5IbUszTFJVZHE3cGFSYjhYdw?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgJBVV95cUxOQU4wWkE2XzRXVmN2dDZUdVhESVZLZkxsWlFQcWxHY0I3LVRWc1pPYmVZTUJfb2gzSFVVTlowUTBkZzRJVk9tQ19yVjYzWFN4c0ZxQUE4TEdpeHlFemNXc3M1OGtzZDVteWlieGxhOFg1eHo4eklmbEFoSy1XcVNlT21lNXNEeXpPTkJQLTJrZXU0Q3llTW9ETVhwLTk1WE1MNWVZMmNsdEI3ZThuSk41UWhxZUJQaG01d0VlZ3R4TElMejVxTlpLc2l0aTRSektBRFNzbkg1VWxLemJLdFJrTzIxUmNSVE9mSUhEUlM4UExReWF1Q2VVRHR4MEc0SGVpaG1zVUIyM1JjYWZvSTF0emxhdFd5a0p3dHE5OG5IbUszTFJVZHE3cGFSYjhYdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
