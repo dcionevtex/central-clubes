@@ -1,0 +1,13 @@
+---
+title: "São Paulo deve ser \"copiado\" pelo Flamengo"
+description: "São Paulo deve ser \"copiado\" pelo Flamengo  Portal Hortolândia"
+pubDate: "2026-03-06T18:47:32.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxNa2QtdlpDSDloQlJOdnhlR0FPRlVOUEJHVVlWbENpYzRpYW4xT2xrRkdpUXlOUEdrU2VzblpJLXkybUh3WVdJcm5XbGQ3b09SaDBSeGREYWd5THhLeXhKNGxfMjZNZ3ZxWVBmTFFuUDNOUE5UTkJPT0ZsLXJvY3FGOTZ30gGCAUFVX3lxTE1rZC12WkNIOWhCUk52eGVHQU9GVU5QQkdVWVZsQ2ljNGlhbjFPbGtGR2lReU5QR2tTZXNuWkkteTJtSHdZV0lybldsZDdvT1JoMFJ4ZERhZ3lMeEt5eEo0bF8yNk1ndnFZUGZMUW5QM05QTlROQk9PRmwtcm9jcUY5Nnc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxNa2QtdlpDSDloQlJOdnhlR0FPRlVOUEJHVVlWbENpYzRpYW4xT2xrRkdpUXlOUEdrU2VzblpJLXkybUh3WVdJcm5XbGQ3b09SaDBSeGREYWd5THhLeXhKNGxfMjZNZ3ZxWVBmTFFuUDNOUE5UTkJPT0ZsLXJvY3FGOTZ30gGCAUFVX3lxTE1rZC12WkNIOWhCUk52eGVHQU9GVU5QQkdVWVZsQ2ljNGlhbjFPbGtGR2lReU5QR2tTZXNuWkkteTJtSHdZV0lybldsZDdvT1JoMFJ4ZERhZ3lMeEt5eEo0bF8yNk1ndnFZUGZMUW5QM05QTlROQk9PRmwtcm9jcUY5Nnc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
