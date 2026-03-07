@@ -1,0 +1,13 @@
+---
+title: "São Paulo busca novo zagueiro após saída de Ferraresi"
+description: "São Paulo busca novo zagueiro após saída de Ferraresi  Jogada 10"
+pubDate: "2026-03-07T01:24:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiigFBVV95cUxNaVhvOXpjdi15ZFdXLWtDaXpkTWRucEw0bi1yOGNfczdfVWJiU1hSUlVJV2RYcllhM1J3UTJ4ODIxWGY3ekladXBWX1MwT01rWHd0Q0MxUlNEVXVQNThRQ2Z6VjZCRVNxWng2Q1ZsNzlBRWNFZDVZNENGaUVacWF4RXR1NVJ6aGY2N3fSAYoBQVVfeXFMTWlYbzl6Y3YteWRXVy1rQ2l6ZE1kbnBMNG4tcjhjX3M3X1ViYlNYUlJVSVdkWHJZYTNSd1EyeDgyMVhmN3pJWnVwVl9TME9Na1h3dENDMVJTRFV1UDU4UUNmelY2QkVTcVp4NkNWbDc5QUVjRWQ1WTRDRmlFWnFheEV0dTVSemhmNjd3?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigFBVV95cUxNaVhvOXpjdi15ZFdXLWtDaXpkTWRucEw0bi1yOGNfczdfVWJiU1hSUlVJV2RYcllhM1J3UTJ4ODIxWGY3ekladXBWX1MwT01rWHd0Q0MxUlNEVXVQNThRQ2Z6VjZCRVNxWng2Q1ZsNzlBRWNFZDVZNENGaUVacWF4RXR1NVJ6aGY2N3fSAYoBQVVfeXFMTWlYbzl6Y3YteWRXVy1rQ2l6ZE1kbnBMNG4tcjhjX3M3X1ViYlNYUlJVSVdkWHJZYTNSd1EyeDgyMVhmN3pJWnVwVl9TME9Na1h3dENDMVJTRFV1UDU4UUNmelY2QkVTcVp4NkNWbDc5QUVjRWQ1WTRDRmlFWnFheEV0dTVSemhmNjd3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
