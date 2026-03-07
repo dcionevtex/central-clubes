@@ -1,0 +1,13 @@
+---
+title: "São Paulo avalia contratação de zagueiro"
+description: "São Paulo avalia contratação de zagueiro  Portal Hortolândia"
+pubDate: "2026-03-07T15:43:07.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxOTVZVNjY0Nm4yRGF3aHk4UVA2c1BXMnZqRWp6dVU0alpGZlQtX29RZ0NYcVlENlR3UHJQcGFRX2ZzYjhUWDZuTXI4UTAxLTdCOTZOTzdEVGxrQ3hOYm9PV3BmOEdVaERFeWthbGExX254Q3M2WENBY1lMNFFyZzhVLVRsRFVLREXSAYcBQVVfeXFMTk1WVTY2NDZuMkRhd2h5OFFQNnNQVzJ2akVqenVVNGpaRmZULV9vUWdDWHFZRDZUd1ByUHBhUV9mc2I4VFg2bk1yOFEwMS03Qjk2Tk83RFRsa0N4TmJvT1dwZjhHVWhERXlrYWxhMV9ueENzNlhDQWNZTDRRcmc4VS1UbERVS0RF?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxOTVZVNjY0Nm4yRGF3aHk4UVA2c1BXMnZqRWp6dVU0alpGZlQtX29RZ0NYcVlENlR3UHJQcGFRX2ZzYjhUWDZuTXI4UTAxLTdCOTZOTzdEVGxrQ3hOYm9PV3BmOEdVaERFeWthbGExX254Q3M2WENBY1lMNFFyZzhVLVRsRFVLREXSAYcBQVVfeXFMTk1WVTY2NDZuMkRhd2h5OFFQNnNQVzJ2akVqenVVNGpaRmZULV9vUWdDWHFZRDZUd1ByUHBhUV9mc2I4VFg2bk1yOFEwMS03Qjk2Tk83RFRsa0N4TmJvT1dwZjhHVWhERXlrYWxhMV9ueENzNlhDQWNZTDRRcmc4VS1UbERVS0RF?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
