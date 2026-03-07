@@ -1,0 +1,13 @@
+---
+title: "São Paulo avança na preparação para enfrentar a Chape"
+description: "São Paulo avança na preparação para enfrentar a Chape  Portal Hortolândia"
+pubDate: "2026-03-07T18:29:42.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxQTEVyR2NyMV9LcWduZXlmN3Nib1RhdDFpNUQ5YjE4a2RPVDJXYW5mSzFCVWgzbVpXTzFkUnRfTEhoN0ZXVE1mcWJJNmx2LS1YWThnb2l5RXN2a0NMbUFWRzlPTW1pd0pyNE9ZdWVPZjV3X1ZkUVdvVEVOZHNkQVB2NGVR0gGCAUFVX3lxTFBMRXJHY3IxX0txZ25leWY3c2JvVGF0MWk1RDliMThrZE9UMldhbmZLMUJVaDNtWldPMWRSdF9MSGg3RldUTWZxYkk2bHYtLVhZOGdvaXlFc3ZrQ0xtQVZHOU9NbWl3SnI0T1l1ZU9mNXdfVmRRV29URU5kc2RBUHY0ZVE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxQTEVyR2NyMV9LcWduZXlmN3Nib1RhdDFpNUQ5YjE4a2RPVDJXYW5mSzFCVWgzbVpXTzFkUnRfTEhoN0ZXVE1mcWJJNmx2LS1YWThnb2l5RXN2a0NMbUFWRzlPTW1pd0pyNE9ZdWVPZjV3X1ZkUVdvVEVOZHNkQVB2NGVR0gGCAUFVX3lxTFBMRXJHY3IxX0txZ25leWY3c2JvVGF0MWk1RDliMThrZE9UMldhbmZLMUJVaDNtWldPMWRSdF9MSGg3RldUTWZxYkk2bHYtLVhZOGdvaXlFc3ZrQ0xtQVZHOU9NbWl3SnI0T1l1ZU9mNXdfVmRRV29URU5kc2RBUHY0ZVE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
