@@ -1,0 +1,13 @@
+---
+title: "São Paulo treina finalizações antes de retornar ao Brasileirão"
+description: "São Paulo treina finalizações antes de retornar ao Brasileirão  Portal Hortolândia"
+pubDate: "2026-03-08T22:32:43.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE9IeU5Jd3VpOHNEcVR5NkhnUVRBQVVNUWNGYlNZbDhMQnNoWGZXQk5YS0FseXdUSkZwVnZQdUJ6Z3Q1emZJQ2gxS19xdkg5aG05ZVdWdEduQXM5M3B3QmVobWpkQkJtR1YxYkpFLU5fOGpLMnhEV1A5MGlSN2tCSGvSAX9BVV95cUxPSHlOSXd1aThzRHFUeTZIZ1FUQUFVTVFjRmJTWWw4TEJzaFhmV0JOWEtBbHl3VEpGcFZ2UHVCemd0NXpmSUNoMUtfcXZIOWhtOWVXVnRHbkFzOTNwd0JlaG1qZEJCbUdWMWJKRS1OXzhqSzJ4RFdQOTBpUjdrQkhr?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE9IeU5Jd3VpOHNEcVR5NkhnUVRBQVVNUWNGYlNZbDhMQnNoWGZXQk5YS0FseXdUSkZwVnZQdUJ6Z3Q1emZJQ2gxS19xdkg5aG05ZVdWdEduQXM5M3B3QmVobWpkQkJtR1YxYkpFLU5fOGpLMnhEV1A5MGlSN2tCSGvSAX9BVV95cUxPSHlOSXd1aThzRHFUeTZIZ1FUQUFVTVFjRmJTWWw4TEJzaFhmV0JOWEtBbHl3VEpGcFZ2UHVCemd0NXpmSUNoMUtfcXZIOWhtOWVXVnRHbkFzOTNwd0JlaG1qZEJCbUdWMWJKRS1OXzhqSzJ4RFdQOTBpUjdrQkhr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
