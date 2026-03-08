@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Veja possíveis rivais na Sul-Americana 2026"
+description: "São Paulo: Veja possíveis rivais na Sul-Americana 2026  Portal Hortolândia"
+pubDate: "2026-03-08T14:00:36.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQb3FJVEFlMllwY2tmSXhjRzlFX0Y2WGx5czRoVFctTnJyV3lkX2ZPV25DTGNMVkxxQWx6ZGY5QlViNEVaM21udEd3TnhsNFdackxoRTRvX21YUGpYWU5QX242VzRrY0tCcW9YTl94M0lXSFlEWHR4TnZCX3RETGZhOXduNNIBgwFBVV95cUxQb3FJVEFlMllwY2tmSXhjRzlFX0Y2WGx5czRoVFctTnJyV3lkX2ZPV25DTGNMVkxxQWx6ZGY5QlViNEVaM21udEd3TnhsNFdackxoRTRvX21YUGpYWU5QX242VzRrY0tCcW9YTl94M0lXSFlEWHR4TnZCX3RETGZhOXduNA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQb3FJVEFlMllwY2tmSXhjRzlFX0Y2WGx5czRoVFctTnJyV3lkX2ZPV25DTGNMVkxxQWx6ZGY5QlViNEVaM21udEd3TnhsNFdackxoRTRvX21YUGpYWU5QX242VzRrY0tCcW9YTl94M0lXSFlEWHR4TnZCX3RETGZhOXduNNIBgwFBVV95cUxQb3FJVEFlMllwY2tmSXhjRzlFX0Y2WGx5czRoVFctTnJyV3lkX2ZPV25DTGNMVkxxQWx6ZGY5QlViNEVaM21udEd3TnhsNFdackxoRTRvX21YUGpYWU5QX242VzRrY0tCcW9YTl94M0lXSFlEWHR4TnZCX3RETGZhOXduNA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
