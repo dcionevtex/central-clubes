@@ -1,0 +1,13 @@
+---
+title: "São Paulo demite técnico Hernán Crespo após derrota no Paulista"
+description: "São Paulo demite técnico Hernán Crespo após derrota no Paulista  RP10"
+pubDate: "2026-03-09T20:51:00.000Z"
+source: "RP10"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxPZFdlUGlKSWNkR2JaSWY0ZUFZaldwSGpFTTBUZkJKR3duMlpXdUN4OVJkNGx2RmY0elY2X3RJMnZuanRiVVZfRmUtY3lYS21JamNsdGJLRXBUQjNhM0NSQW9FY3N6Z0V4a214M0RZVXIwU0NaSnBjODg5M0R3VVpnSUp4MmUySUpVd3pYN0J6eEZRSFRWZXhnU24yeGzSAaIBQVVfeXFMTjQxclhYQXljcGxSOE1tQTZ2bjN5Vk5KTUZUMDFzRzJ3RndhNUFHQlVkMUo5WE8xdHUwSGV1TEVjVm45ckh4VXRnelJaV3FUbk5iOThlZlkwOTZDWHFQbUxrQi15ZmlmWldBWUc5TGRfUkhCbVRDaFFFMElWRGpCQ3BhLWhjRXk4S1N0X1NRdFpsRlkyb2hORmJkdi00ZGhLTHJn?oc=5"
+---
+
+### Fonte Original: RP10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxPZFdlUGlKSWNkR2JaSWY0ZUFZaldwSGpFTTBUZkJKR3duMlpXdUN4OVJkNGx2RmY0elY2X3RJMnZuanRiVVZfRmUtY3lYS21JamNsdGJLRXBUQjNhM0NSQW9FY3N6Z0V4a214M0RZVXIwU0NaSnBjODg5M0R3VVpnSUp4MmUySUpVd3pYN0J6eEZRSFRWZXhnU24yeGzSAaIBQVVfeXFMTjQxclhYQXljcGxSOE1tQTZ2bjN5Vk5KTUZUMDFzRzJ3RndhNUFHQlVkMUo5WE8xdHUwSGV1TEVjVm45ckh4VXRnelJaV3FUbk5iOThlZlkwOTZDWHFQbUxrQi15ZmlmWldBWUc5TGRfUkhCbVRDaFFFMElWRGpCQ3BhLWhjRXk4S1N0X1NRdFpsRlkyb2hORmJkdi00ZGhLTHJn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

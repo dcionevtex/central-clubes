@@ -1,0 +1,13 @@
+---
+title: "São Paulo faz sondagem a Roger Machado para o lugar de Crespo"
+description: "São Paulo faz sondagem a Roger Machado para o lugar de Crespo  Jogada 10"
+pubDate: "2026-03-09T21:07:43.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxNSlhLWFRlazQwMnVNTGRGM1pNMU5VT014SEN5TU5sWm9BcXNlUUFhMEFCeXh4VW5ucTlpQ3BIcWVCV0pTU3Jsd3JaOUZWUmlvMHNLODlGRHBVeVpoaGIwaWlabXZsbUJoYy1kUC0zcXRxTXYyU201MFdCWVNOQS1ZUVZabDdjaVRndXcwRlQzZ9IBlAFBVV95cUxQM2lqZGpETnJMUEk4LTR4MjR0ZDVWVk9kRUJWMjU1bnNuNWpjSldsSXNTRFRVQlpjaE04V01YNkhCam9icWRtNkktY2RFb3ppdGZyUHdqMUY4ZjkyU3FxNWJSRmljVHFWbzB0ZmQyQUtYLWFNYmY1VGtFTkNWR2I5ekhVZmpZUXBMTzA2Z2c5eGdXbTVw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSlhLWFRlazQwMnVNTGRGM1pNMU5VT014SEN5TU5sWm9BcXNlUUFhMEFCeXh4VW5ucTlpQ3BIcWVCV0pTU3Jsd3JaOUZWUmlvMHNLODlGRHBVeVpoaGIwaWlabXZsbUJoYy1kUC0zcXRxTXYyU201MFdCWVNOQS1ZUVZabDdjaVRndXcwRlQzZ9IBlAFBVV95cUxQM2lqZGpETnJMUEk4LTR4MjR0ZDVWVk9kRUJWMjU1bnNuNWpjSldsSXNTRFRVQlpjaE04V01YNkhCam9icWRtNkktY2RFb3ppdGZyUHdqMUY4ZjkyU3FxNWJSRmljVHFWbzB0ZmQyQUtYLWFNYmY1VGtFTkNWR2I5ekhVZmpZUXBMTzA2Z2c5eGdXbTVw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
