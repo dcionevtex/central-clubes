@@ -1,0 +1,13 @@
+---
+title: "Invicto no Brasileirão, Hernán Crespo deixa o São Paulo"
+description: "Invicto no Brasileirão, Hernán Crespo deixa o São Paulo  Bem Paraná"
+pubDate: "2026-03-09T18:26:00.000Z"
+source: "Bem Paraná"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxOVUd5Y3dLMWU1MnBsWU1STV9XOHpfTUhiQUhnbWstSjd3ZlhidGd4ekU4b09NVXZBa1lKRjZXd3FMU3JyZmoyQ1QxT2RBckVWZGNzMWlsTXhfbV9MektOakdndjZieXBYc2ZHN3JEanl5Z0pmckJ2bWxZbTlHN2VrRWlnN2ZtM3BtWmlYQnpLZ3BGSzRaeDVaZtIBngFBVV95cUxPVVhqdTI2amFEU29nOFk2QVhYQlFrNDRsZE1sZ1VCMnNzQWs2TkZ5eUtzSzhMZkVQRTlyd2w0ZXVsQUswVzAwUW03N0tRQmQ1R09PUFpjVTR5V1BKUWNNUnhEUk5ZTlRGQWFRcmVwY3BfSVZSTEkyY1A0MTRHblc4ZWlkS0pib0h1N1UxU2tVUUtJQXpzSDVOWThqaFkyQQ?oc=5"
+---
+
+### Fonte Original: Bem Paraná
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVUd5Y3dLMWU1MnBsWU1STV9XOHpfTUhiQUhnbWstSjd3ZlhidGd4ekU4b09NVXZBa1lKRjZXd3FMU3JyZmoyQ1QxT2RBckVWZGNzMWlsTXhfbV9MektOakdndjZieXBYc2ZHN3JEanl5Z0pmckJ2bWxZbTlHN2VrRWlnN2ZtM3BtWmlYQnpLZ3BGSzRaeDVaZtIBngFBVV95cUxPVVhqdTI2amFEU29nOFk2QVhYQlFrNDRsZE1sZ1VCMnNzQWs2TkZ5eUtzSzhMZkVQRTlyd2w0ZXVsQUswVzAwUW03N0tRQmQ1R09PUFpjVTR5V1BKUWNNUnhEUk5ZTlRGQWFRcmVwY3BfSVZSTEkyY1A0MTRHblc4ZWlkS0pib0h1N1UxU2tVUUtJQXpzSDVOWThqaFkyQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

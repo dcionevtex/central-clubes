@@ -1,0 +1,13 @@
+---
+title: "São Paulo surpreende e demite Hernán Crespo mesmo brigando no topo do Brasileirão"
+description: "São Paulo surpreende e demite Hernán Crespo mesmo brigando no topo do Brasileirão  Terra"
+pubDate: "2026-03-09T18:55:31.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMigAJBVV95cUxQYVhIRVJXMmZBTFE5dHdtOGI3WkdrVERHTjItVU9fSnRjd1dxWExKdS0tWjdMdlRpNXJmU21QVUVwZDVCc09XSlExb1NTaWJSZFNuZU50b19FTnZScF9xRHE3WEFmb3FJQ3NHdVVsM1VNVUREamtPWmtsVWlxY28zSnRUVUxNaC1XUVIzUGR4Q3hVUzlSSnZMSUk0TlNLMy1KTkVWTEJHb3VPYm1ISWMzQ2ptQlFTeUI3TU9oMDNJOFZOaEFxRl9rSnVsZ1BXcWU2aDBEQVlfUlN3dDhvRFNIVDhYbm5TRzNncmVWSHhMRnlDdDJNRVVfTEFxalMyeG9y?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAJBVV95cUxQYVhIRVJXMmZBTFE5dHdtOGI3WkdrVERHTjItVU9fSnRjd1dxWExKdS0tWjdMdlRpNXJmU21QVUVwZDVCc09XSlExb1NTaWJSZFNuZU50b19FTnZScF9xRHE3WEFmb3FJQ3NHdVVsM1VNVUREamtPWmtsVWlxY28zSnRUVUxNaC1XUVIzUGR4Q3hVUzlSSnZMSUk0TlNLMy1KTkVWTEJHb3VPYm1ISWMzQ2ptQlFTeUI3TU9oMDNJOFZOaEFxRl9rSnVsZ1BXcWU2aDBEQVlfUlN3dDhvRFNIVDhYbm5TRzNncmVWSHhMRnlDdDJNRVVfTEFxalMyeG9y?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
