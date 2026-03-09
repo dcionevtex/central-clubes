@@ -1,0 +1,13 @@
+---
+title: "São Paulo surpreende e anuncia saída do técnico argentino Hernán Crespo"
+description: "São Paulo surpreende e anuncia saída do técnico argentino Hernán Crespo  Rádio Itatiaia"
+pubDate: "2026-03-09T17:28:01.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9gFBVV95cUxQb05nMlJSTWd5Z0tuX0hzWVVBVFVObEYwU1Z5eXIyWFl1aGpNM0YzbDNNME5pV1YzQVhlQzl6Y2dQa3B0ZDdtNXNrN1NYMkx5NktGY1pVQ1NYTkFYUFNmeC1Kd0NWNHV0SUZlbVBNU2lnNkgwSlBORmVuTGJjbmllUHJhWHVrWC1uaUVJdTRVWDhSQXh2bFpfSk5nWW5fYkdmNGd6NnZ6d0VYUlFkb2t0UWRTRXl3a0xYY1d6S1VwT1Z6a25zMzhpOWpUOF8zZ1Zsa2lXeEFJRGlYS1hFYl9fR2ZvcTNmdjEtNVkzdTd1QzE3UDZVekE?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9gFBVV95cUxQb05nMlJSTWd5Z0tuX0hzWVVBVFVObEYwU1Z5eXIyWFl1aGpNM0YzbDNNME5pV1YzQVhlQzl6Y2dQa3B0ZDdtNXNrN1NYMkx5NktGY1pVQ1NYTkFYUFNmeC1Kd0NWNHV0SUZlbVBNU2lnNkgwSlBORmVuTGJjbmllUHJhWHVrWC1uaUVJdTRVWDhSQXh2bFpfSk5nWW5fYkdmNGd6NnZ6d0VYUlFkb2t0UWRTRXl3a0xYY1d6S1VwT1Z6a25zMzhpOWpUOF8zZ1Zsa2lXeEFJRGlYS1hFYl9fR2ZvcTNmdjEtNVkzdTd1QzE3UDZVekE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

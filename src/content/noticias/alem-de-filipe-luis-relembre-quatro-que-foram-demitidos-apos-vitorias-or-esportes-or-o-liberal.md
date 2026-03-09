@@ -1,0 +1,13 @@
+---
+title: "Além de Filipe Luís, relembre quatro que foram demitidos após vitórias | Esportes | O Liberal"
+description: "Além de Filipe Luís, relembre quatro que foram demitidos após vitórias | Esportes | O Liberal  O Liberal"
+pubDate: "2026-03-09T15:11:28.000Z"
+source: "O Liberal"
+link: "https://news.google.com/rss/articles/CBMiswFBVV95cUxNd0lnajNpZlJScmpTcTlQbEV0UVF3MnJIbUNRV2ZCdkdIWGxiZ2pRSWt1VmRtQTNycUZKUE5CUVVOakZZazlLWXpyU21RU0x1X3RXQkdCWENaMWVHYm5yT04teEtOWlJIZkdNTmU4MEpVaC03UVNVcWtiWVlPbkxmclNrS2dYZS1HZmJib1g2N0pIUnIyOUp2LWR3a3ZXSHVaOHZ4TEFSbWl1bldXVHFpdVd3RdIBuAFBVV95cUxOMV9GeW1WbUFlMkdyRFJTVko2Z3RoUmVERE9YUzNlSzRfZ2lUQmhJd2F5cDdHeUtiOTFMTmo1N19SaVdkdmh5Rzgwb1RjWVI5SDk2MjNkWXQxWlZxVzZIWG5mTVlMeHcwZlc2YjlBOHoyZ0lyVWh4WlBIaHQ2OVV4MWx3U0x4LUNRTm4tWDh3bS01UXRoX24zYU52aFFoaGZHWGdWSGFhcVdObld3OEpuNjVWS194SGZD?oc=5"
+---
+
+### Fonte Original: O Liberal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiswFBVV95cUxNd0lnajNpZlJScmpTcTlQbEV0UVF3MnJIbUNRV2ZCdkdIWGxiZ2pRSWt1VmRtQTNycUZKUE5CUVVOakZZazlLWXpyU21RU0x1X3RXQkdCWENaMWVHYm5yT04teEtOWlJIZkdNTmU4MEpVaC03UVNVcWtiWVlPbkxmclNrS2dYZS1HZmJib1g2N0pIUnIyOUp2LWR3a3ZXSHVaOHZ4TEFSbWl1bldXVHFpdVd3RdIBuAFBVV95cUxOMV9GeW1WbUFlMkdyRFJTVko2Z3RoUmVERE9YUzNlSzRfZ2lUQmhJd2F5cDdHeUtiOTFMTmo1N19SaVdkdmh5Rzgwb1RjWVI5SDk2MjNkWXQxWlZxVzZIWG5mTVlMeHcwZlc2YjlBOHoyZ0lyVWh4WlBIaHQ2OVV4MWx3U0x4LUNRTm4tWDh3bS01UXRoX24zYU52aFFoaGZHWGdWSGFhcVdObld3OEpuNjVWS194SGZD?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

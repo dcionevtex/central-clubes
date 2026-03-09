@@ -1,0 +1,13 @@
+---
+title: "São Paulo anuncia saída do técnico Hernán Crespo"
+description: "São Paulo anuncia saída do técnico Hernán Crespo  Folha de S.Paulo"
+pubDate: "2026-03-09T17:33:00.000Z"
+source: "Folha de S.Paulo"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxNRl83UG5ybkRwOWVNSjhrUkRGRjBfWFJ6dldyWHplZ1E5dUM5aUlTOWtnMDNOdDBCUklCeU9HOFlKRDFKSkVIalNLbG1NTEFXWTB3eG14YnE3aTJKY29DUVlIbHBNZHRYS3ZLaU5RZDBzdG8zX3lNNjBjaTBPWW8xeE9IZ3VtQUFZNWh0Y3BTTUxVcF96WUJadDBrM1hJTFdpdkHSAacBQVVfeXFMUG85S0JjSTZqRlNWWVl4ekNpOXo3V1Rwb2pRbFZja19NY3o0NDVlczlONFhzRHlSc1c4WWc4a00xTmtSZGVaRENOdW5DSldtcnRvdzkxUHcwWTA3NGs2X2JyQ3JyS2VhVVd3Nnl4SlR2RkZ0c3pqTkZLeEpDaUlISWFOY0NsMXllVWtIX3JRMDlEYlFROXlaOTlRZXZNSWZKWnlWNENPQkk?oc=5"
+---
+
+### Fonte Original: Folha de S.Paulo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxNRl83UG5ybkRwOWVNSjhrUkRGRjBfWFJ6dldyWHplZ1E5dUM5aUlTOWtnMDNOdDBCUklCeU9HOFlKRDFKSkVIalNLbG1NTEFXWTB3eG14YnE3aTJKY29DUVlIbHBNZHRYS3ZLaU5RZDBzdG8zX3lNNjBjaTBPWW8xeE9IZ3VtQUFZNWh0Y3BTTUxVcF96WUJadDBrM1hJTFdpdkHSAacBQVVfeXFMUG85S0JjSTZqRlNWWVl4ekNpOXo3V1Rwb2pRbFZja19NY3o0NDVlczlONFhzRHlSc1c4WWc4a00xTmtSZGVaRENOdW5DSldtcnRvdzkxUHcwWTA3NGs2X2JyQ3JyS2VhVVd3Nnl4SlR2RkZ0c3pqTkZLeEpDaUlISWFOY0NsMXllVWtIX3JRMDlEYlFROXlaOTlRZXZNSWZKWnlWNENPQkk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
