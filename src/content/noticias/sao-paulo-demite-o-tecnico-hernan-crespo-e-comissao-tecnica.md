@@ -1,0 +1,13 @@
+---
+title: "São Paulo demite o técnico Hernán Crespo e comissão técnica"
+description: "São Paulo demite o técnico Hernán Crespo e comissão técnica - Dourado Store  douradostore.com.br"
+pubDate: "2026-03-09T17:53:44.000Z"
+source: "Dourado Store"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxNVm81N1dlVEtuM2s3NmdfNDRTN1l6ZDFIanFpVDd4T0tfM0p2VmEwSDQtUktJTVZ1VUo2Q3NmODlwV1dKZVNoSWRYVTJFbnNpMEE3Tk8zLWZZc01ETmRJZlROV0FTTEgyZDJUWUhKM1R0NHZYSnBLX0x1NE1Qa3BUSUtBYlBtSmt4WktDcVY0YUlkWHVuVDk4M2NJNG7SAZwBQVVfeXFMTVZvNTdXZVRLbjNrNzZnXzQ0UzdZemQxSGpxaVQ3eE9LXzNKdlZhMEg0LVJLSU1WdVVKNkNzZjg5cFdXSmVTaElkWFUyRW5zaTBBN05PMy1mWXNNRE5kSWZUTldBU0xIMmQyVFlISjNUdDR2WEpwS19MdTRNUGtwVElLQWJQbUpreFpLQ3FWNGFJZFh1blQ5ODNjSTRu?oc=5"
+---
+
+### Fonte Original: Dourado Store
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxNVm81N1dlVEtuM2s3NmdfNDRTN1l6ZDFIanFpVDd4T0tfM0p2VmEwSDQtUktJTVZ1VUo2Q3NmODlwV1dKZVNoSWRYVTJFbnNpMEE3Tk8zLWZZc01ETmRJZlROV0FTTEgyZDJUWUhKM1R0NHZYSnBLX0x1NE1Qa3BUSUtBYlBtSmt4WktDcVY0YUlkWHVuVDk4M2NJNG7SAZwBQVVfeXFMTVZvNTdXZVRLbjNrNzZnXzQ0UzdZemQxSGpxaVQ3eE9LXzNKdlZhMEg0LVJLSU1WdVVKNkNzZjg5cFdXSmVTaElkWFUyRW5zaTBBN05PMy1mWXNNRE5kSWZUTldBU0xIMmQyVFlISjNUdDR2WEpwS19MdTRNUGtwVElLQWJQbUpreFpLQ3FWNGFJZFh1blQ5ODNjSTRu?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

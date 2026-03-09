@@ -1,0 +1,13 @@
+---
+title: "São Paulo anuncia a saída do técnico Hernán Crespo mesmo brigando no topo do Brasileirão"
+description: "São Paulo anuncia a saída do técnico Hernán Crespo mesmo brigando no topo do Brasileirão  Terra"
+pubDate: "2026-03-09T17:54:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiigJBVV95cUxQSzdReTJnSnJ6cHUtWTRPSzZJeHU0VXN5cmJnNWl4QmYybm5Id1RWMDdXQTktQlp0OVlEQ0NscnoyRjk1eG1YajZHZUs0UTc0eHhzMDR6dEJrMzloMmtIaG12X0NtM0c1c1dVbjZOdkF5VlF4OXNaZ3k2WGlrWERsRl9xNnNzUW00eDB3emZ6MUpuOGNQUl8wSXhJNFNjanp1REFQYWYyVTR5b0FDdW1rLTJOM2NpTWhHMVJuT1dCaTlha3BidkNSWllNaTU1MmJGOHoyZGVUZXU4ckxLYnhSdmE2VVUxZzJXLXJQNF9pOFZjYzMwWHRxTmJPaDVMZ0RJZWVHNFFQOXlLdw?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigJBVV95cUxQSzdReTJnSnJ6cHUtWTRPSzZJeHU0VXN5cmJnNWl4QmYybm5Id1RWMDdXQTktQlp0OVlEQ0NscnoyRjk1eG1YajZHZUs0UTc0eHhzMDR6dEJrMzloMmtIaG12X0NtM0c1c1dVbjZOdkF5VlF4OXNaZ3k2WGlrWERsRl9xNnNzUW00eDB3emZ6MUpuOGNQUl8wSXhJNFNjanp1REFQYWYyVTR5b0FDdW1rLTJOM2NpTWhHMVJuT1dCaTlha3BidkNSWllNaTU1MmJGOHoyZGVUZXU4ckxLYnhSdmE2VVUxZzJXLXJQNF9pOFZjYzMwWHRxTmJPaDVMZ0RJZWVHNFFQOXlLdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Crespo é demitido do São Paulo"
+description: "Crespo é demitido do São Paulo  Portal Hortolândia"
+pubDate: "2026-03-09T17:46:36.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPVkhnYU9uajVwQkUySG5pNS1zWmEzQjhxeldOZjZSUXlSTEZsWHlxVEM3aFg1SkRySXpOSnd1a0w2TE5jdzVnUk1zSk9qMUtiWDR1NzZVZEhqekppeGdYdjZ0QmVfdEhNTUpiSVdtWldlYm9EaFlseml3Q2xTdGZlZGtB0gGCAUFVX3lxTE9WSGdhT25qNXBCRTJIbmk1LXNaYTNCOHF6V05mNlJReVJMRmxYeXFUQzdoWDVKRHJJek5Kd3VrTDZMTmN3NWdSTXNKT2oxS2JYNHU3NlVkSGp6Sml4Z1h2NnRCZV90SE1NSmJJV21aV2Vib0RoWWx6aXdDbFN0ZmVka0E?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPVkhnYU9uajVwQkUySG5pNS1zWmEzQjhxeldOZjZSUXlSTEZsWHlxVEM3aFg1SkRySXpOSnd1a0w2TE5jdzVnUk1zSk9qMUtiWDR1NzZVZEhqekppeGdYdjZ0QmVfdEhNTUpiSVdtWldlYm9EaFlseml3Q2xTdGZlZGtB0gGCAUFVX3lxTE9WSGdhT25qNXBCRTJIbmk1LXNaYTNCOHF6V05mNlJReVJMRmxYeXFUQzdoWDVKRHJJek5Kd3VrTDZMTmN3NWdSTXNKT2oxS2JYNHU3NlVkSGp6Sml4Z1h2NnRCZV90SE1NSmJJV21aV2Vib0RoWWx6aXdDbFN0ZmVka0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
