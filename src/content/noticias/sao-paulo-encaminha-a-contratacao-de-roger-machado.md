@@ -1,0 +1,13 @@
+---
+title: "São Paulo encaminha a contratação de Roger Machado"
+description: "São Paulo encaminha a contratação de Roger Machado  iG Esportes"
+pubDate: "2026-03-09T23:56:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxNd2w2bWhYRUJ3WW9QTTY4LVJsOXV3RFVadVRWVXoyT0JwdmkwTVhHSUV2d1ZMdkYxdzBGU3lyWF9sa0x3YlluMjFPLUpRdTV3SUVLWVdhckc4THRQUmNQOEMtdVBhMHN5UFB2endpVDdELWNVcE1jRk1MNDgtcWxJQjdiX3NOdE5rZUM4dElxbl9pa0lNc0pqQ0t3WdIBoAFBVV95cUxNSk9ZdGNnS2lUZkt0em5RTTAzenRiT0trWS1ybTgyUUNuQ01JRGFKNEsxUXNFeldqeGdFS1JMam5nUWN6VjBlV25iQWJhRlRsT05QV2FQYmtQeDJacTFNb3oya24ycmkwQ3A3ZVpuSTdjWjB6QlAtX0V3VTkwRExqQUJkZGhtbzRWMUtJVWh4SENicnc2WTRFMmRvTnp3YzhT?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxNd2w2bWhYRUJ3WW9QTTY4LVJsOXV3RFVadVRWVXoyT0JwdmkwTVhHSUV2d1ZMdkYxdzBGU3lyWF9sa0x3YlluMjFPLUpRdTV3SUVLWVdhckc4THRQUmNQOEMtdVBhMHN5UFB2endpVDdELWNVcE1jRk1MNDgtcWxJQjdiX3NOdE5rZUM4dElxbl9pa0lNc0pqQ0t3WdIBoAFBVV95cUxNSk9ZdGNnS2lUZkt0em5RTTAzenRiT0trWS1ybTgyUUNuQ01JRGFKNEsxUXNFeldqeGdFS1JMam5nUWN6VjBlV25iQWJhRlRsT05QV2FQYmtQeDJacTFNb3oya24ycmkwQ3A3ZVpuSTdjWjB6QlAtX0V3VTkwRExqQUJkZGhtbzRWMUtJVWh4SENicnc2WTRFMmRvTnp3YzhT?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
