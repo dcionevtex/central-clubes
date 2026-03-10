@@ -1,0 +1,13 @@
+---
+title: "Alisson posta indireta após Crespo ser demitido do São Paulo"
+description: "Alisson posta indireta após Crespo ser demitido do São Paulo  Esporte News Mundo"
+pubDate: "2026-03-10T11:03:45.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxNNzFZd1lmbHhiMjlKdTZTaER1dkhtZ0pVamI4RlA5MTdTQkwyUExrWkJFWFJDWkxnM2V5a1k4cjNJdDdmQVQ0aTIzT2xHbzc1ZGlUZFdpcU1jUzUtM1JuTlJlWkNubnB6SVUwemR2eUpaWDJyeVdmNXFnQ3A4S3YybTFRYzB3dUpDNmoyXzhGOE81dFFFbWJPU9IBngFBVV95cUxOU0NhbG0xZV8tc3dnclR2UFNLemJIYnZtaGIxMjNWUWMtMW5wUzZXN1ZTaDBkc1Z2MWFDaFB4bVVXZmZJVVVrQnFFMkZpcjBxNzZFeWdCRDlCQndIa1paR3UtNU95elh1d2pDb29xSElwMkp4SzlaUUt3aUpxRTBWd0dGdmI1TkVWelFtX1hYb2wtcndtTlF6NVRxYWM0QQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxNNzFZd1lmbHhiMjlKdTZTaER1dkhtZ0pVamI4RlA5MTdTQkwyUExrWkJFWFJDWkxnM2V5a1k4cjNJdDdmQVQ0aTIzT2xHbzc1ZGlUZFdpcU1jUzUtM1JuTlJlWkNubnB6SVUwemR2eUpaWDJyeVdmNXFnQ3A4S3YybTFRYzB3dUpDNmoyXzhGOE81dFFFbWJPU9IBngFBVV95cUxOU0NhbG0xZV8tc3dnclR2UFNLemJIYnZtaGIxMjNWUWMtMW5wUzZXN1ZTaDBkc1Z2MWFDaFB4bVVXZmZJVVVrQnFFMkZpcjBxNzZFeWdCRDlCQndIa1paR3UtNU95elh1d2pDb29xSElwMkp4SzlaUUt3aUpxRTBWd0dGdmI1TkVWelFtX1hYb2wtcndtTlF6NVRxYWM0QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
