@@ -1,0 +1,13 @@
+---
+title: "Quem você acha que deve ser o novo técnico do São Paulo? Vote"
+description: "Quem você acha que deve ser o novo técnico do São Paulo? Vote  DPF » De torcedor para torcedor"
+pubDate: "2026-03-10T00:09:47.000Z"
+source: "DPF » De torcedor para torcedor"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxOM1JiSmQtdVFtTFktQ29pcERQSzhvLWpuZ3NKSlVpTG5XSlNxdzdjTWowVFRNaVdHWHNYaDZhMXpCOEtMc1pqU2g4OElBcXR4Ql9EQXdJQUthT1FMeHRsdGtfTEVRVHQ0ZDVzUjZ1M1FzOUtERXBoTmcwbEFaWW5tcXdyMUtwV0FCeFJqVEtZNk9ROTFqM1VQNUF30gGaAUFVX3lxTE4zUmJKZC11UW1MWS1Db2lwRFBLOG8tam5nc0pKVWlMbldKU3F3N2NNajBUVE1pV0dYc1hoNmExekI4S0xzWmpTaDg4SUFxdHhCX0RBd0lBS2FPUUx4dGx0a19MRVFUdDRkNXNSNnUzUXM5S0RFcGhOZzBsQVpZbm1xd3IxS3BXQUJ4UmpUS1k2T1E5MWozVVA1QXc?oc=5"
+---
+
+### Fonte Original: DPF » De torcedor para torcedor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxOM1JiSmQtdVFtTFktQ29pcERQSzhvLWpuZ3NKSlVpTG5XSlNxdzdjTWowVFRNaVdHWHNYaDZhMXpCOEtMc1pqU2g4OElBcXR4Ql9EQXdJQUthT1FMeHRsdGtfTEVRVHQ0ZDVzUjZ1M1FzOUtERXBoTmcwbEFaWW5tcXdyMUtwV0FCeFJqVEtZNk9ROTFqM1VQNUF30gGaAUFVX3lxTE4zUmJKZC11UW1MWS1Db2lwRFBLOG8tam5nc0pKVWlMbldKU3F3N2NNajBUVE1pV0dYc1hoNmExekI4S0xzWmpTaDg4SUFxdHhCX0RBd0lBS2FPUUx4dGx0a19MRVFUdDRkNXNSNnUzUXM5S0RFcGhOZzBsQVpZbm1xd3IxS3BXQUJ4UmpUS1k2T1E5MWozVVA1QXc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
