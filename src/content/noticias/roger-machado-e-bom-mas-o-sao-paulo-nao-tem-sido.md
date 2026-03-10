@@ -1,0 +1,13 @@
+---
+title: "Roger Machado é bom, mas o São Paulo não tem sido"
+description: "Roger Machado é bom, mas o São Paulo não tem sido  Estadão"
+pubDate: "2026-03-10T20:50:00.000Z"
+source: "Estadão"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQRlE3TFZDVGVoRkFzUEp1bzJDU1NMQ3ROaWl4SzN2MEJGMVQtRlIwMGhhQTFxVG1MR2NsOFRUX2pzSm1oVkpOTkNuTGZPcVg3Qll6UWJHaEU0dmVWdXQwY0g5eEdkY2ZialI2WDJ2ZUFTY3JCWVBmQVdFMVlWcHBHYUc4RXNkaG5NNldiYUhQbTB4NE5LMEJGdnA5dE1BeDTSAaQBQVVfeXFMTlJ0Z2VIRm1iM0hubGJ2ZWJidXVjVUVsUGxyQnNvZzNlS3hKdWJXdFR5bWJWLTAzRGVIRjg0ZGxIWUllWU5QaEtLRVo3bjJBQmk4TUNNUDd2dWt3RTVyTUwxdGdEMW5MTjlsU0pBVTdtZ01za1Yya3JkS1hSOHR0ZDJJYk15aGZTcm8tQlhhNFQ5WUZRa1d3eHJvTm10R3dESFZfRmU?oc=5"
+---
+
+### Fonte Original: Estadão
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQRlE3TFZDVGVoRkFzUEp1bzJDU1NMQ3ROaWl4SzN2MEJGMVQtRlIwMGhhQTFxVG1MR2NsOFRUX2pzSm1oVkpOTkNuTGZPcVg3Qll6UWJHaEU0dmVWdXQwY0g5eEdkY2ZialI2WDJ2ZUFTY3JCWVBmQVdFMVlWcHBHYUc4RXNkaG5NNldiYUhQbTB4NE5LMEJGdnA5dE1BeDTSAaQBQVVfeXFMTlJ0Z2VIRm1iM0hubGJ2ZWJidXVjVUVsUGxyQnNvZzNlS3hKdWJXdFR5bWJWLTAzRGVIRjg0ZGxIWUllWU5QaEtLRVo3bjJBQmk4TUNNUDd2dWt3RTVyTUwxdGdEMW5MTjlsU0pBVTdtZ01za1Yya3JkS1hSOHR0ZDJJYk15aGZTcm8tQlhhNFQ5WUZRa1d3eHJvTm10R3dESFZfRmU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
