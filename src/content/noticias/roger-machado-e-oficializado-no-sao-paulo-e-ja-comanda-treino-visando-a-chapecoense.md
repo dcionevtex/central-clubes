@@ -1,0 +1,13 @@
+---
+title: "Roger Machado é oficializado no São Paulo e já comanda treino visando a Chapecoense"
+description: "Roger Machado é oficializado no São Paulo e já comanda treino visando a Chapecoense  Terra"
+pubDate: "2026-03-10T17:16:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMigAJBVV95cUxOOGRFdlgwdUFQVzVqMTZKakJSU0w2UnluOHVOdWRzMlZoOW0xZC0yMWpHV25ycWlmUHR6SGtHMERZQUlLMGFKYTlqQmxXZWMwcDZlQlpERzFZM0pQTDYwM3JqQTVDTWhxcTd6RUdpNXNDSlVPc3RfSEt4VjFZRHAyeHFfS0h0X2lpNTQzc2tJM1pqOFlTc0U2bVc3NFQ5TmdrQ09fU3dkNXlVWmhHYi04WWkzaHkxaHlpUEdmdTg3SEhLSk83RTluVnlZZkVtd3pfVTFNUlRHWWxXcTdzdGxGeFlGMk5lNFZ2QWY5UHA1UXdEN2tfcHJJQjA3c1JrX3lL?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAJBVV95cUxOOGRFdlgwdUFQVzVqMTZKakJSU0w2UnluOHVOdWRzMlZoOW0xZC0yMWpHV25ycWlmUHR6SGtHMERZQUlLMGFKYTlqQmxXZWMwcDZlQlpERzFZM0pQTDYwM3JqQTVDTWhxcTd6RUdpNXNDSlVPc3RfSEt4VjFZRHAyeHFfS0h0X2lpNTQzc2tJM1pqOFlTc0U2bVc3NFQ5TmdrQ09fU3dkNXlVWmhHYi04WWkzaHkxaHlpUEdmdTg3SEhLSk83RTluVnlZZkVtd3pfVTFNUlRHWWxXcTdzdGxGeFlGMk5lNFZ2QWY5UHA1UXdEN2tfcHJJQjA3c1JrX3lL?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
