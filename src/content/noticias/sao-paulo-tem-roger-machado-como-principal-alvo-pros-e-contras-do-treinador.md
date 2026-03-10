@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem Roger Machado como principal alvo: prós e contras do treinador"
+description: "São Paulo tem Roger Machado como principal alvo: prós e contras do treinador  Gazeta Esportiva"
+pubDate: "2026-03-10T13:30:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxNOVZPQ1paQktBLUd2d1JVMFlQQ3B5SWp2ajQ3b3BDUjJRbGF5NnRYZmp4OVJaVnVLRXF6R05GbVhmMTFfMjlHRHFRd0dzTjdpYkpJa0RrSVlPQmpCSWdlbS1kbGgxZ3Y2eUt6ZVE5Ry1nMDhUeTFlOWUtVWJOOTB0NW9ueC1DTWlkXzhoeHBTVHMzTHpjWHZJ0gGcAUFVX3lxTE8xWDI4SndnS3pUZjdfSWprRDVzU1BsRUhaMU5zMG1jcDloQm9LOFVIOGdUOWdzclE3dkxfUklXa2ZLcUJaQW5yWU1PZkNKbVF3Z2xUcjhQS3BudENIMGRsMnZZYzIyelM2aFpuRTFDRzY5SndScHJ0YmtUaklFaVJTbkpES05ubUlQelpKZ3NsVFMwYWpqSkZVQTVFWg?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxNOVZPQ1paQktBLUd2d1JVMFlQQ3B5SWp2ajQ3b3BDUjJRbGF5NnRYZmp4OVJaVnVLRXF6R05GbVhmMTFfMjlHRHFRd0dzTjdpYkpJa0RrSVlPQmpCSWdlbS1kbGgxZ3Y2eUt6ZVE5Ry1nMDhUeTFlOWUtVWJOOTB0NW9ueC1DTWlkXzhoeHBTVHMzTHpjWHZJ0gGcAUFVX3lxTE8xWDI4SndnS3pUZjdfSWprRDVzU1BsRUhaMU5zMG1jcDloQm9LOFVIOGdUOWdzclE3dkxfUklXa2ZLcUJaQW5yWU1PZkNKbVF3Z2xUcjhQS3BudENIMGRsMnZZYzIyelM2aFpuRTFDRzY5SndScHJ0YmtUaklFaVJTbkpES05ubUlQelpKZ3NsVFMwYWpqSkZVQTVFWg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
