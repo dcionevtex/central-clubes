@@ -1,0 +1,13 @@
+---
+title: "Roger Machado é regularizado no BID e pode estrear no comando do São Paulo"
+description: "Roger Machado é regularizado no BID e pode estrear no comando do São Paulo  UOL"
+pubDate: "2026-03-10T22:21:58.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMijAJBVV95cUxPSExoOTB1VENkbDRpWkwtZ09Fb2VlM2ZTY2trRnFRR0JEZ2daSWNQc2pDOFlBWE5ocGdkdmNYZFhxaEd0WUo0MUdNSU9Ibkl0Y0VaNkVBVmJ0YmkzTWVHSjlwcXpzZG5XVlU0bmVFY0x6LXB5Rl9HSzItYlNyeXl1eHhVSVFDT0NienoxMlFQS2pMazBHcFN1VUgxajlQRjJvZGdxa3dpYV9ZZkE2aHpCVjRCZ1lkM1dhdnA1RnRzLUFrZkVMMXpyRzRoY2NqaXcxeXg1VDRWOGtPLURBTTh2SGZibXU4cTNMZ2ZnVHZvbVlFZDlPQlZ4WktyRzdlZ3hQa3g3ZWVqZEFTaVFr?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAJBVV95cUxPSExoOTB1VENkbDRpWkwtZ09Fb2VlM2ZTY2trRnFRR0JEZ2daSWNQc2pDOFlBWE5ocGdkdmNYZFhxaEd0WUo0MUdNSU9Ibkl0Y0VaNkVBVmJ0YmkzTWVHSjlwcXpzZG5XVlU0bmVFY0x6LXB5Rl9HSzItYlNyeXl1eHhVSVFDT0NienoxMlFQS2pMazBHcFN1VUgxajlQRjJvZGdxa3dpYV9ZZkE2aHpCVjRCZ1lkM1dhdnA1RnRzLUFrZkVMMXpyRzRoY2NqaXcxeXg1VDRWOGtPLURBTTh2SGZibXU4cTNMZ2ZnVHZvbVlFZDlPQlZ4WktyRzdlZ3hQa3g3ZWVqZEFTaVFr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

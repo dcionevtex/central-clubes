@@ -1,0 +1,13 @@
+---
+title: "São Paulo explica motivo para saída de Crespo"
+description: "São Paulo explica motivo para saída de Crespo  Portal Hortolândia"
+pubDate: "2026-03-10T22:40:20.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxOZlRhR1pvbWdpYmxmanB5THZWekFFcHY0eGhHRThFbWU3UFhrcGJYSEVZWXRYZ2p2YVJUTjg2ZlZOaGhQbXc2VHdsQXIxMW90R1VwMHNGOW1qbDFiZm5nbm5Sa0dYeUJRb2Q0eV84eE9oVWxxVHpHd2U0SGFfbWs0ctIBgAFBVV95cUxOZlRhR1pvbWdpYmxmanB5THZWekFFcHY0eGhHRThFbWU3UFhrcGJYSEVZWXRYZ2p2YVJUTjg2ZlZOaGhQbXc2VHdsQXIxMW90R1VwMHNGOW1qbDFiZm5nbm5Sa0dYeUJRb2Q0eV84eE9oVWxxVHpHd2U0SGFfbWs0cg?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxOZlRhR1pvbWdpYmxmanB5THZWekFFcHY0eGhHRThFbWU3UFhrcGJYSEVZWXRYZ2p2YVJUTjg2ZlZOaGhQbXc2VHdsQXIxMW90R1VwMHNGOW1qbDFiZm5nbm5Sa0dYeUJRb2Q0eV84eE9oVWxxVHpHd2U0SGFfbWs0ctIBgAFBVV95cUxOZlRhR1pvbWdpYmxmanB5THZWekFFcHY0eGhHRThFbWU3UFhrcGJYSEVZWXRYZ2p2YVJUTjg2ZlZOaGhQbXc2VHdsQXIxMW90R1VwMHNGOW1qbDFiZm5nbm5Sa0dYeUJRb2Q0eV84eE9oVWxxVHpHd2U0SGFfbWs0cg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Roger Machado diz como ganhar confiança da torcida do São Paulo e visa fazer história"
+description: "Roger Machado diz como ganhar confiança da torcida do São Paulo e visa fazer história  Rádio Itatiaia"
+pubDate: "2026-03-10T22:20:11.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiiAJBVV95cUxPbF9heGtDaFk1QmRvTlZVb1J3RGZEelFJNDdNSE5wYjE0UzdQLXlILXI5MGRJSWJIMHptWHRaVVdzWkZVNVNEUzFuV01QeGFPRnEwNUgxeURQVEZMVjNyZ29zeldMTWdiUkpST1pGejhGQ2JIWE1WdmZHcXNIS3VHeDhKZ0YzVzV2cU5KRWZjVnRvdWZqN2ljUHhTVzB5dVFnRXI2bEcxWWR2dVVVRGhPdDFmWHRFZzRXSXQwMjlVbV9GVXg5bG93djg2X2NhRjViT2ZCbjBkRXQ5RFdTZmJJdHlmWUlVUWt5SzgxdUlrMzZJTWV1cHd5VUtBdkh0NVV1d2l2eElrNDc?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAJBVV95cUxPbF9heGtDaFk1QmRvTlZVb1J3RGZEelFJNDdNSE5wYjE0UzdQLXlILXI5MGRJSWJIMHptWHRaVVdzWkZVNVNEUzFuV01QeGFPRnEwNUgxeURQVEZMVjNyZ29zeldMTWdiUkpST1pGejhGQ2JIWE1WdmZHcXNIS3VHeDhKZ0YzVzV2cU5KRWZjVnRvdWZqN2ljUHhTVzB5dVFnRXI2bEcxWWR2dVVVRGhPdDFmWHRFZzRXSXQwMjlVbV9GVXg5bG93djg2X2NhRjViT2ZCbjBkRXQ5RFdTZmJJdHlmWUlVUWt5SzgxdUlrMzZJTWV1cHd5VUtBdkh0NVV1d2l2eElrNDc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
