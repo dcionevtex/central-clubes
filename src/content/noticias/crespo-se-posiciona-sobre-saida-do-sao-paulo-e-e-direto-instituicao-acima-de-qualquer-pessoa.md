@@ -1,0 +1,13 @@
+---
+title: "Crespo se posiciona sobre saída do São Paulo e é direto: “Instituição acima de qualquer pessoa”"
+description: "Crespo se posiciona sobre saída do São Paulo e é direto: “Instituição acima de qualquer pessoa”  Bolavip"
+pubDate: "2026-03-11T22:36:44.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxNWUtleEpaalhqdzBWYTloRV9FaW8yaVdIc1Vpd05hWjlyN1JwUXIwRmZvX2R5QkZqVURjaV9PWHR5RVpmMGw3QVhtYWR3RFB2eFU1REJaVm1jUHExR0wzejlzYjIzc3ZPNzR4bzZORzk2eG5hTmQ4eURDRXdRblYzV3pyd3NzeVZxQ1ZLTEVlQkgzcjV0Mzg3SnNLT3Npd0JE0gGmAUFVX3lxTE44NG94WXcySGM5VjV5VjE0bHlKVmdwakNGb2l0RVkyUC0wSS1GZU90d3hnblZoQnBGczZhNmhmX042ZjBJQzlOMlRVUXNEVFQ1QXZ2ZmZfNFNSUUtpZGtNQW5xWjc2aTNqaF9xdU9lTzZENERaV1FvaTVPY2VvREZkVFFWaXlpd2haMEk2U01qR2xaRzZUQ2owVjFtemZaeDI5eDViTHc?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWUtleEpaalhqdzBWYTloRV9FaW8yaVdIc1Vpd05hWjlyN1JwUXIwRmZvX2R5QkZqVURjaV9PWHR5RVpmMGw3QVhtYWR3RFB2eFU1REJaVm1jUHExR0wzejlzYjIzc3ZPNzR4bzZORzk2eG5hTmQ4eURDRXdRblYzV3pyd3NzeVZxQ1ZLTEVlQkgzcjV0Mzg3SnNLT3Npd0JE0gGmAUFVX3lxTE44NG94WXcySGM5VjV5VjE0bHlKVmdwakNGb2l0RVkyUC0wSS1GZU90d3hnblZoQnBGczZhNmhmX042ZjBJQzlOMlRVUXNEVFQ1QXZ2ZmZfNFNSUUtpZGtNQW5xWjc2aTNqaF9xdU9lTzZENERaV1FvaTVPY2VvREZkVFFWaXlpd2haMEk2U01qR2xaRzZUQ2owVjFtemZaeDI5eDViTHc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
