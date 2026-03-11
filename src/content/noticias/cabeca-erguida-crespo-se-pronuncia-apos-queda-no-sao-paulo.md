@@ -1,0 +1,13 @@
+---
+title: "'Cabeça erguida': Crespo se pronuncia após queda no São Paulo"
+description: "'Cabeça erguida': Crespo se pronuncia após queda no São Paulo  iG Esportes"
+pubDate: "2026-03-11T21:22:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxPVV9Pb0tpME1Kd1BSSU9TVGZqVUhCak5IY0NUWEFMMXduZWhFVF9JYldPcUEwTlpEYldWQ0t4MnBlNzMyeUh5ZDZ2OTRKcEF0VG5aNEpFTUQxYWgzc1dSQzRaTGFYSzAxcUFzLU5tbTRpZk5IY3lRaktUTmFiZTFYblQ3VVpfeGZtR3N4bFhVb01XWnB5WmlYWtIBngFBVV95cUxPVmxLWWMyN1NQRDVCS0FwNEx3SEo0UzZGUE1XajZVY0ZmMGhoWEQ4R2FpLVkwNVBtclJXYnlPRDB5TTIyUlU5dklSN2doU1UtUGZKcjVZMkxxY0tHQk1fR3BMWEpqalROdXd4STRVVGp3cmVZdzhPN29WakxZX19mdnlXNlNGS1gyLTl4emZpM3k5Ml90dUN2dDB3VU5EQQ?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxPVV9Pb0tpME1Kd1BSSU9TVGZqVUhCak5IY0NUWEFMMXduZWhFVF9JYldPcUEwTlpEYldWQ0t4MnBlNzMyeUh5ZDZ2OTRKcEF0VG5aNEpFTUQxYWgzc1dSQzRaTGFYSzAxcUFzLU5tbTRpZk5IY3lRaktUTmFiZTFYblQ3VVpfeGZtR3N4bFhVb01XWnB5WmlYWtIBngFBVV95cUxPVmxLWWMyN1NQRDVCS0FwNEx3SEo0UzZGUE1XajZVY0ZmMGhoWEQ4R2FpLVkwNVBtclJXYnlPRDB5TTIyUlU5dklSN2doU1UtUGZKcjVZMkxxY0tHQk1fR3BMWEpqalROdXd4STRVVGp3cmVZdzhPN29WakxZX19mdnlXNlNGS1gyLTl4emZpM3k5Ml90dUN2dDB3VU5EQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
