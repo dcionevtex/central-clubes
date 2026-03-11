@@ -1,0 +1,13 @@
+---
+title: "São Paulo e Santos poderão enfrentar Botafogo na Sula"
+description: "São Paulo e Santos poderão enfrentar Botafogo na Sula  Portal Hortolândia"
+pubDate: "2026-03-11T02:59:51.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE1LR1hRdE5ZYXFhRVJyUHhGTUxMX2d6SnZSVnVJbE80eE1reFdGYmRGNGlzLVRPZ0lnR1A3SVQzVUFUQkZVWmlNNFVNb1hjbEpvdEZZV3lKQTN2a0xmVVR2ZGxXVVhQZVpTOTZpLXlFYTJiYk56TDVId1Bn0gF6QVVfeXFMTUtHWFF0TllhcWFFUnJQeEZNTExfZ3pKdlJWdUlsTzR4TWt4V0ZiZEY0aXMtVE9nSWdHUDdJVDNVQVRCRlVaaU00VU1vWGNsSm90RllXeUpBM3ZrTGZVVHZkbFdVWFBlWlM5NmkteUVhMmJiTnpMNUh3UGc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE1LR1hRdE5ZYXFhRVJyUHhGTUxMX2d6SnZSVnVJbE80eE1reFdGYmRGNGlzLVRPZ0lnR1A3SVQzVUFUQkZVWmlNNFVNb1hjbEpvdEZZV3lKQTN2a0xmVVR2ZGxXVVhQZVpTOTZpLXlFYTJiYk56TDVId1Bn0gF6QVVfeXFMTUtHWFF0TllhcWFFUnJQeEZNTExfZ3pKdlJWdUlsTzR4TWt4V0ZiZEY0aXMtVE9nSWdHUDdJVDNVQVRCRlVaaU00VU1vWGNsSm90RllXeUpBM3ZrTGZVVHZkbFdVWFBlWlM5NmkteUVhMmJiTnpMNUh3UGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
