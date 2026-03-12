@@ -1,0 +1,13 @@
+---
+title: "São Paulo reduz drasticamente gastos com comissão técnica após troca no comando"
+description: "São Paulo reduz drasticamente gastos com comissão técnica após troca no comando  Terra"
+pubDate: "2026-03-12T13:09:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi_gFBVV95cUxQUi1IMzc3V3RZeE1Sdl9UdC1yaERvNEtRME15dVI5TEpxUmd2bUZSdEdMMjVBQUk2alVYUkNFbENEcUFNRHR4NXlxV0ZzeTI2d0ExQkZ1eWdVTW03RHF5S2pRYlhpM2h6RkdRUEZ5Zld0cEZXbzBwampLLXQtN2VaXzUzWVRHLWRYTGtBWW05VzdFWUpqUnJ2Q2h2blI5dk81bVBNQWhNYXpmOHBnMjNWUmZHUlNMVnVJZW9Oem5MOU1JNWJmQlhSYU9aZTFGbW9PUm15RGdULXIzdTJpM0FBWV8zZm9wUjVvODdoWWZMX201cERGdE5xWWE1YXpmUQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_gFBVV95cUxQUi1IMzc3V3RZeE1Sdl9UdC1yaERvNEtRME15dVI5TEpxUmd2bUZSdEdMMjVBQUk2alVYUkNFbENEcUFNRHR4NXlxV0ZzeTI2d0ExQkZ1eWdVTW03RHF5S2pRYlhpM2h6RkdRUEZ5Zld0cEZXbzBwampLLXQtN2VaXzUzWVRHLWRYTGtBWW05VzdFWUpqUnJ2Q2h2blI5dk81bVBNQWhNYXpmOHBnMjNWUmZHUlNMVnVJZW9Oem5MOU1JNWJmQlhSYU9aZTFGbW9PUm15RGdULXIzdTJpM0FBWV8zZm9wUjVvODdoWWZMX201cERGdE5xWWE1YXpmUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
