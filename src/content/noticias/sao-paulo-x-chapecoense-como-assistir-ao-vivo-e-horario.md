@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Chapecoense: Como assistir ao vivo e horário"
+description: "São Paulo x Chapecoense: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-03-12T00:29:35.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTFBPX0F0UFhianpOLTVtbE9vbk1DcFlWUldhaVlCQ3ZHX3hibGFhWjZnOFY1eThLRWdNR1dHMTN6Y3I2NmVjZU9ISEJFMmE3UGdJcXJTR2RjY3Vud01rdmktaFBMdTZzalFlV0s3Y2NHSWdqYzljSEJQR3ozdmpVUdIBfkFVX3lxTFBPX0F0UFhianpOLTVtbE9vbk1DcFlWUldhaVlCQ3ZHX3hibGFhWjZnOFY1eThLRWdNR1dHMTN6Y3I2NmVjZU9ISEJFMmE3UGdJcXJTR2RjY3Vud01rdmktaFBMdTZzalFlV0s3Y2NHSWdqYzljSEJQR3ozdmpVUQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTFBPX0F0UFhianpOLTVtbE9vbk1DcFlWUldhaVlCQ3ZHX3hibGFhWjZnOFY1eThLRWdNR1dHMTN6Y3I2NmVjZU9ISEJFMmE3UGdJcXJTR2RjY3Vud01rdmktaFBMdTZzalFlV0s3Y2NHSWdqYzljSEJQR3ozdmpVUdIBfkFVX3lxTFBPX0F0UFhianpOLTVtbE9vbk1DcFlWUldhaVlCQ3ZHX3hibGFhWjZnOFY1eThLRWdNR1dHMTN6Y3I2NmVjZU9ISEJFMmE3UGdJcXJTR2RjY3Vud01rdmktaFBMdTZzalFlV0s3Y2NHSWdqYzljSEJQR3ozdmpVUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
