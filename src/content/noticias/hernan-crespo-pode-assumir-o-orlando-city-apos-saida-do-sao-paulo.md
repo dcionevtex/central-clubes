@@ -1,0 +1,13 @@
+---
+title: "Hernán Crespo pode assumir o Orlando City após saída do São Paulo"
+description: "Hernán Crespo pode assumir o Orlando City após saída do São Paulo  Bolavip"
+pubDate: "2026-03-12T15:20:02.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQTGF1VzNrVzdPU1p4VFdhYWRScjBxYzJhM3YyVjg2bVh3dFZGbUdjbzdRTjY3Q3JWeVVkTmE2dERERHRuOXRqVTdMN3Mxa0tQS1BfcWFmNGlmelYyNXBFanhaelJYcHVhYXVTUG1sbmxFR0wzZWhfSEFxNXU1cXJ2YjV1cUlTNndDVkI4NHRwZzJaVTJZQlRjZW9hMXJfcHfSAaQBQVVfeXFMUHZkdEtVY0ZfV1pHVDhEa045ZkpVVGJZbWRLTkJBdkxuTFUzRWJjR1ZNemJ5Mlp1YnQzc0NaRXVDR3dGWTljeUtxM0VrMnFuemJzMUtsS2lYVGotaXQ2emNHZ0JXRFBldUthOXVIbTBGWFRsSnZIUnJGeDZUUFctMjZZRUhZb2w1TTNBNWE5X3RVVzk4R01RODU3VU5EWVk3Nnk4RlI?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQTGF1VzNrVzdPU1p4VFdhYWRScjBxYzJhM3YyVjg2bVh3dFZGbUdjbzdRTjY3Q3JWeVVkTmE2dERERHRuOXRqVTdMN3Mxa0tQS1BfcWFmNGlmelYyNXBFanhaelJYcHVhYXVTUG1sbmxFR0wzZWhfSEFxNXU1cXJ2YjV1cUlTNndDVkI4NHRwZzJaVTJZQlRjZW9hMXJfcHfSAaQBQVVfeXFMUHZkdEtVY0ZfV1pHVDhEa045ZkpVVGJZbWRLTkJBdkxuTFUzRWJjR1ZNemJ5Mlp1YnQzc0NaRXVDR3dGWTljeUtxM0VrMnFuemJzMUtsS2lYVGotaXQ2emNHZ0JXRFBldUthOXVIbTBGWFRsSnZIUnJGeDZUUFctMjZZRUhZb2w1TTNBNWE5X3RVVzk4R01RODU3VU5EWVk3Nnk4RlI?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
