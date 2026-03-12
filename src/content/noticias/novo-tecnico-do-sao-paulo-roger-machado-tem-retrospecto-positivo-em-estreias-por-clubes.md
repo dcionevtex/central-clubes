@@ -1,0 +1,13 @@
+---
+title: "Novo técnico do São Paulo, Roger Machado tem retrospecto positivo em estreias por clubes"
+description: "Novo técnico do São Paulo, Roger Machado tem retrospecto positivo em estreias por clubes  UOL"
+pubDate: "2026-03-12T08:00:51.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMihgJBVV95cUxOZ2dNVHZvMzREQVllUm9LRE16T0V3NmhDdXpZSlRWTUgybUMxMVRLaW0zTWVIS0huUXdvQmxsTVU5ajNTNmExdzJJTjdxMDRMZ1JPbFkzYmN6WEd2c2Y0bE1mSnpSRTVNTTBTY19zYXpMM054bk9zRjlZUjRSSkhKZVIyWlVzQmNXNWRYclpvaWZCNVM5V2p2UkZrenQzU3VoNlhOWjFaSVhubi01YWViM3ZKR0dkSzVaaWZmMEp2VWhyZ1JOdmI4dDNSeHJyZGZuWldFWHcwY3ZXTHlpTU55ZlFiQk4zX0xUUGNsblBYUE1rMmY5Vnlrc2xiMDRtWE1aT0Y5aWF3?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgJBVV95cUxOZ2dNVHZvMzREQVllUm9LRE16T0V3NmhDdXpZSlRWTUgybUMxMVRLaW0zTWVIS0huUXdvQmxsTVU5ajNTNmExdzJJTjdxMDRMZ1JPbFkzYmN6WEd2c2Y0bE1mSnpSRTVNTTBTY19zYXpMM054bk9zRjlZUjRSSkhKZVIyWlVzQmNXNWRYclpvaWZCNVM5V2p2UkZrenQzU3VoNlhOWjFaSVhubi01YWViM3ZKR0dkSzVaaWZmMEp2VWhyZ1JOdmI4dDNSeHJyZGZuWldFWHcwY3ZXTHlpTU55ZlFiQk4zX0xUUGNsblBYUE1rMmY5Vnlrc2xiMDRtWE1aT0Y5aWF3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
