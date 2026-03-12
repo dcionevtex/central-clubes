@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Marcos Antônio comenta sobre mudança para Roger"
+description: "São Paulo: Marcos Antônio comenta sobre mudança para Roger  Portal Hortolândia"
+pubDate: "2026-03-11T23:35:18.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE9WUVVfMzlWelh5M1Z0MS05RUFWM2IzT1h3TllQaFlUYVlnWms1YmxQWGNaVzJGWkZibkxvQTYtOC1Ib1pObTcwQUVnUVU4Y1BRU3phU09hRkdscTlZMWFYeXJTaEd6dll6elcyRnlzbXBoa1prX2lVcjVRTzlvSkXSAX9BVV95cUxPVlFVXzM5VnpYeTNWdDEtOUVBVjNiM09Yd05ZUGhZVGFZZ1prNWJsUFhjWlcyRlpGYm5Mb0E2LTgtSG9aTm03MEFFZ1FVOGNQUVN6YVNPYUZHbHE5WTFhWHlyU2hHenZZenpXMkZ5c21waGtaa19pVXI1UU85b0pF?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE9WUVVfMzlWelh5M1Z0MS05RUFWM2IzT1h3TllQaFlUYVlnWms1YmxQWGNaVzJGWkZibkxvQTYtOC1Ib1pObTcwQUVnUVU4Y1BRU3phU09hRkdscTlZMWFYeXJTaEd6dll6elcyRnlzbXBoa1prX2lVcjVRTzlvSkXSAX9BVV95cUxPVlFVXzM5VnpYeTNWdDEtOUVBVjNiM09Yd05ZUGhZVGFZZ1prNWJsUFhjWlcyRlpGYm5Mb0E2LTgtSG9aTm03MEFFZ1FVOGNQUVN6YVNPYUZHbHE5WTFhWHlyU2hHenZZenpXMkZ5c21waGtaa19pVXI1UU85b0pF?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
