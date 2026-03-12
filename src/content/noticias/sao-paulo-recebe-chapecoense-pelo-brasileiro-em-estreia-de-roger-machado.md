@@ -1,0 +1,13 @@
+---
+title: "São Paulo recebe Chapecoense pelo Brasileiro em estreia de Roger Machado"
+description: "São Paulo recebe Chapecoense pelo Brasileiro em estreia de Roger Machado  Rádio Itatiaia"
+pubDate: "2026-03-12T09:00:00.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9wFBVV95cUxQSXZ4eEJuWTVubExUY1ZReVpoRDFMcXpZZktNNDNPVUJhTjBLUEg2c0U2YW5PemxGU2Vwdl8yaElUTTNoaGRaX2xpN25TR3hQSlBhYzRqSEI0RW93TFFXUlpLMFJXYmxrVkV5U0tqdk9ISWFuNDJTQUNOMUltQlN1d0JNYjViY3hEeFJWQy1lT1pDclZaenQ5SGpvZzB3VWkyTFMtUl9ZVXlZSUx5X2NzNE9rLVJBT094SzNPaVJubjlFRmVpWkxzb2FqeHVrUlhHX0VYUHFHVGNpQm1pX0VvLXV0SVZCbS1XdFczNFRPUTVWdnhBSnhN?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9wFBVV95cUxQSXZ4eEJuWTVubExUY1ZReVpoRDFMcXpZZktNNDNPVUJhTjBLUEg2c0U2YW5PemxGU2Vwdl8yaElUTTNoaGRaX2xpN25TR3hQSlBhYzRqSEI0RW93TFFXUlpLMFJXYmxrVkV5U0tqdk9ISWFuNDJTQUNOMUltQlN1d0JNYjViY3hEeFJWQy1lT1pDclZaenQ5SGpvZzB3VWkyTFMtUl9ZVXlZSUx5X2NzNE9rLVJBT094SzNPaVJubjlFRmVpWkxzb2FqeHVrUlhHX0VYUHFHVGNpQm1pX0VvLXV0SVZCbS1XdFczNFRPUTVWdnhBSnhN?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
