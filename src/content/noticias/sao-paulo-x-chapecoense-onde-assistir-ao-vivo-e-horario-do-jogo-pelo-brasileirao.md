@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Chapecoense: onde assistir ao vivo e horário do jogo pelo Brasileirão"
+description: "São Paulo x Chapecoense: onde assistir ao vivo e horário do jogo pelo Brasileirão  GZH"
+pubDate: "2026-03-12T21:03:14.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMijAJBVV95cUxNV09yUTBnbU5LTmVROEFRa2lreTktMlRwRnRwXzVjaXZONkU0QzlXcVY2ZEZIYW1IYmpqbnE3anBLTHhtU2lEQ3N4MUthWUZQQkxzWm5rZHZwcHdmVVJjZ1I1djhpWTc4NF9MX1o1SVBuSmUtalVwdnltc3hUcUkyYnp1RDlyRktwcXllaUwwRTc1Z0ZDeWtIZDVmTHVoRFdBeXRDMlpKelA0R1lpamhzcXBiYTJsajRCMGh0VXpDTUhwcGZTclFqZ0tDWDdIWEhIcTF4UzdleEFfcElPa2gwbk1MdGF2aVZrN3pRWVVzeklzb2NPcURVWF8zbFJzTTJaNFliVnoyR3ZDVWdq?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAJBVV95cUxNV09yUTBnbU5LTmVROEFRa2lreTktMlRwRnRwXzVjaXZONkU0QzlXcVY2ZEZIYW1IYmpqbnE3anBLTHhtU2lEQ3N4MUthWUZQQkxzWm5rZHZwcHdmVVJjZ1I1djhpWTc4NF9MX1o1SVBuSmUtalVwdnltc3hUcUkyYnp1RDlyRktwcXllaUwwRTc1Z0ZDeWtIZDVmTHVoRFdBeXRDMlpKelA0R1lpamhzcXBiYTJsajRCMGh0VXpDTUhwcGZTclFqZ0tDWDdIWEhIcTF4UzdleEFfcElPa2gwbk1MdGF2aVZrN3pRWVVzeklzb2NPcURVWF8zbFJzTTJaNFliVnoyR3ZDVWdq?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
