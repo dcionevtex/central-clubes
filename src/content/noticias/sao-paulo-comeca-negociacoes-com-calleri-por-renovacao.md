@@ -1,0 +1,13 @@
+---
+title: "São Paulo começa negociações com Calleri por renovação"
+description: "São Paulo começa negociações com Calleri por renovação  Portal Hortolândia"
+pubDate: "2026-03-13T18:24:15.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE9KVGJzRWkzeF9TYnZ6WEJPa1dZMUI5YjhuSlJVRVloR2V1WE9Xd2tRM2V3UDRPLVR1NHVtWlEtZnlrZ2gzTjE3M0lPQ1ZFRkhDOGswR0lJQ2xNb2k0VGNzMnd4dm41S3VRckZVd1k0ck50SHhRSWNORVNXY9IBe0FVX3lxTE9KVGJzRWkzeF9TYnZ6WEJPa1dZMUI5YjhuSlJVRVloR2V1WE9Xd2tRM2V3UDRPLVR1NHVtWlEtZnlrZ2gzTjE3M0lPQ1ZFRkhDOGswR0lJQ2xNb2k0VGNzMnd4dm41S3VRckZVd1k0ck50SHhRSWNORVNXYw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE9KVGJzRWkzeF9TYnZ6WEJPa1dZMUI5YjhuSlJVRVloR2V1WE9Xd2tRM2V3UDRPLVR1NHVtWlEtZnlrZ2gzTjE3M0lPQ1ZFRkhDOGswR0lJQ2xNb2k0VGNzMnd4dm41S3VRckZVd1k0ck50SHhRSWNORVNXY9IBe0FVX3lxTE9KVGJzRWkzeF9TYnZ6WEJPa1dZMUI5YjhuSlJVRVloR2V1WE9Xd2tRM2V3UDRPLVR1NHVtWlEtZnlrZ2gzTjE3M0lPQ1ZFRkhDOGswR0lJQ2xNb2k0VGNzMnd4dm41S3VRckZVd1k0ck50SHhRSWNORVNXYw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
