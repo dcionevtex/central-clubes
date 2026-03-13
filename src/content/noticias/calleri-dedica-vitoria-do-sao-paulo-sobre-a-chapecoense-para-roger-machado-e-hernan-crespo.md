@@ -1,0 +1,13 @@
+---
+title: "Calleri dedica vitória do São Paulo sobre a Chapecoense para Roger Machado e Hernán Crespo"
+description: "Calleri dedica vitória do São Paulo sobre a Chapecoense para Roger Machado e Hernán Crespo  Terra"
+pubDate: "2026-03-13T01:58:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiigJBVV95cUxQX1lQVlpUbEdaaG1qNTE0SFAtc1hpZlBUOHBoMGZJcHNxWGZsTmtFZkpNUjE3TU1TUDBqbWxtTlZ6YVp3Y0YtZERYVGVrd3VFNWhYRDRmM2ZyTFZ6YVVXMDNXbF9rSUtHbldXZjFNbklPaTExSkZYdm05cjZuRzhxaTBxb3FNMlZxQVZtdTg5RkJKWFB0UkREMFU0ZXpiMXI2b1NGc3Fub0tzWDg0LW5HYURIVE56VTVFWWVZbzlUQWxsN1ZXdGQyUmh5RGtLNEh6bFlqV3Zob1U5NW9pLU9xYWxWaktoMFV6a0t1T29Oa0w1cW8wcU9kaUE2WUkyVnhvcWRxMlVQS19SUQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigJBVV95cUxQX1lQVlpUbEdaaG1qNTE0SFAtc1hpZlBUOHBoMGZJcHNxWGZsTmtFZkpNUjE3TU1TUDBqbWxtTlZ6YVp3Y0YtZERYVGVrd3VFNWhYRDRmM2ZyTFZ6YVVXMDNXbF9rSUtHbldXZjFNbklPaTExSkZYdm05cjZuRzhxaTBxb3FNMlZxQVZtdTg5RkJKWFB0UkREMFU0ZXpiMXI2b1NGc3Fub0tzWDg0LW5HYURIVE56VTVFWWVZbzlUQWxsN1ZXdGQyUmh5RGtLNEh6bFlqV3Zob1U5NW9pLU9xYWxWaktoMFV6a0t1T29Oa0w1cW8wcU9kaUE2WUkyVnhvcWRxMlVQS19SUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

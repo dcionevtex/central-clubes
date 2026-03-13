@@ -1,0 +1,13 @@
+---
+title: "Como foram os jogos da quinta rodada do Brasileirão 2026"
+description: "Como foram os jogos da quinta rodada do Brasileirão 2026  DPF » De torcedor para torcedor"
+pubDate: "2026-03-13T02:54:36.000Z"
+source: "DPF » De torcedor para torcedor"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxPTzZ1SVlDaGNOVy15eHFjUjYwSGJsbG5JR0w5SktmcjZod0JXeUlvRG14bk16THd3LUtXaEtOUVhhTDJNWnNZQ1c5VEtmeUVlTGtNZV9lWjdqekpqdVlHQVlrYTRlYXgyQkJwRW4zX25yWVhSOEhwU3NWVFZ2SGhLa1NraGZDWFR2U2hZR25kdWdacDVMdFlEMmpHWE7SAZwBQVVfeXFMT082dUlZQ2hjTlcteXhxY1I2MEhibGxuSUdMOUpLZnI2aHdCV3lJb0RteG5Nekx3dy1LV2hLTlFYYUwyTVpzWUNXOVRLZnlFZUxrTWVfZVo3anpKanVZR0FZa2E0ZWF4MkJCcEVuM19ucllYUjhIcFNzVlRWdkhoS2tTa2hmQ1hUdlNoWUduZHVnWnA1THRZRDJqR1hO?oc=5"
+---
+
+### Fonte Original: DPF » De torcedor para torcedor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxPTzZ1SVlDaGNOVy15eHFjUjYwSGJsbG5JR0w5SktmcjZod0JXeUlvRG14bk16THd3LUtXaEtOUVhhTDJNWnNZQ1c5VEtmeUVlTGtNZV9lWjdqekpqdVlHQVlrYTRlYXgyQkJwRW4zX25yWVhSOEhwU3NWVFZ2SGhLa1NraGZDWFR2U2hZR25kdWdacDVMdFlEMmpHWE7SAZwBQVVfeXFMT082dUlZQ2hjTlcteXhxY1I2MEhibGxuSUdMOUpLZnI2aHdCV3lJb0RteG5Nekx3dy1LV2hLTlFYYUwyTVpzWUNXOVRLZnlFZUxrTWVfZVo3anpKanVZR0FZa2E0ZWF4MkJCcEVuM19ucllYUjhIcFNzVlRWdkhoS2tTa2hmQ1hUdlNoWUduZHVnWnA1THRZRDJqR1hO?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Roger Machado exalta tranquilidade após vitória na estreia pelo São Paulo"
+description: "Roger Machado exalta tranquilidade após vitória na estreia pelo São Paulo  Terra"
+pubDate: "2026-03-13T03:18:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi9gFBVV95cUxPdjdRZHdLbW1OSTJxdGpBakJUcHAzY3NOeG4tN29idXVJQzJRREJUU0dxQ1hKb2EyYy1NWURiWEt6aUk1S2FhdmtndVZZekZzTF9HdGhGWTJLMXQwSFVXUmNudVNPVlNPT05xcmQ4RlBMV05QTnl0M0NzR0NHUnlpWi1fYnVpRUp2eU9iS3RyMmFkdjZ3ZmwwWXZQQVA1cl8yOFlvRFY3UlFWVTVKcXM5ZFdyWUF5MXdwb1lkb0lrN1N1WHVKeWphbzktSVpyZlU1dTRzOWpWTDVIeFA3RWJCNmxod0JxSFhHMEJZRUFQTmZEWEdiYkE?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9gFBVV95cUxPdjdRZHdLbW1OSTJxdGpBakJUcHAzY3NOeG4tN29idXVJQzJRREJUU0dxQ1hKb2EyYy1NWURiWEt6aUk1S2FhdmtndVZZekZzTF9HdGhGWTJLMXQwSFVXUmNudVNPVlNPT05xcmQ4RlBMV05QTnl0M0NzR0NHUnlpWi1fYnVpRUp2eU9iS3RyMmFkdjZ3ZmwwWXZQQVA1cl8yOFlvRFY3UlFWVTVKcXM5ZFdyWUF5MXdwb1lkb0lrN1N1WHVKeWphbzktSVpyZlU1dTRzOWpWTDVIeFA3RWJCNmxod0JxSFhHMEJZRUFQTmZEWEdiYkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

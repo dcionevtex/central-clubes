@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence Chapecoense na estreia de Roger Machado e assume a liderança do Brasileirão"
+description: "São Paulo vence Chapecoense na estreia de Roger Machado e assume a liderança do Brasileirão  Terra"
+pubDate: "2026-03-13T01:16:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiiwJBVV95cUxOZF9PY2ozcjAyTG5FT0NONnVWWEtVaUFkVWxWUFVoT1BQS0dyVlVHLUtVVHFCWDRhYl9IU0hLbmVVRWhXcDRWZ0JXVkVrdW1LdzFISjFvR3R1c1V3ekpGaXFxMlpYb2hobGVnaC1NNTNFeVdLTnQyZUNWU21CYWQtcXpmU1hTbEwwQU9yaEpmRl9FeW1nZEhodWdubU9HOHlRVTlkbDBHbmoyTmtQTXdmcU1ySzVZbVNUWDRnaXQxc0t0YkxTLWM1aWNaWjhITWV0SVUwZ3J5Z1J3WHBmQW1aYlZBbWpFOENzQ1o5Z1d6bmh3RnZ2OUZrSU1lZTVET2tIaHIxTDd1VHZnSFk?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwJBVV95cUxOZF9PY2ozcjAyTG5FT0NONnVWWEtVaUFkVWxWUFVoT1BQS0dyVlVHLUtVVHFCWDRhYl9IU0hLbmVVRWhXcDRWZ0JXVkVrdW1LdzFISjFvR3R1c1V3ekpGaXFxMlpYb2hobGVnaC1NNTNFeVdLTnQyZUNWU21CYWQtcXpmU1hTbEwwQU9yaEpmRl9FeW1nZEhodWdubU9HOHlRVTlkbDBHbmoyTmtQTXdmcU1ySzVZbVNUWDRnaXQxc0t0YkxTLWM1aWNaWjhITWV0SVUwZ3J5Z1J3WHBmQW1aYlZBbWpFOENzQ1o5Z1d6bmh3RnZ2OUZrSU1lZTVET2tIaHIxTDd1VHZnSFk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
