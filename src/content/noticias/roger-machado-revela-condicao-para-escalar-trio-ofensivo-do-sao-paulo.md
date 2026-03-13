@@ -1,0 +1,13 @@
+---
+title: "Roger Machado revela condição para escalar trio ofensivo do São Paulo"
+description: "Roger Machado revela condição para escalar trio ofensivo do São Paulo  Gazeta Esportiva"
+pubDate: "2026-03-13T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxPbGtINzBTbm9hTEFJWVZaeXhWOHBmMFVTeTM1VTlOdk1NemRkYklTSGNxdm5TekN3anN6WEpWX2dYQWJ4Wm5LWG9ERThLTVhoZFFfSGFBVEhxZzFhSnliSkttRlFYdFM0WFRZckFCeTFjT2M5Q2lENExjdlZEV2tCeUhiQWdOMjdoMU9TMnBIcFB1WW96VmZGclpwQdIBoAFBVV95cUxNQmxRUzNxZkxYd2NPQXBzOEc5dEh1QW9wdUI5RGlzRkE1MUkzMDlUUW0wUWtQMWJtMk94aEpEZmxvMWNFRWpUSnVsNmVINEQwZ0NBYU1IeE5uR0JoYlg2cUF5d3ZieVp2MDlXOEs4ZDlRVjdWeHR2ckFMSUY2SU8tNVh3RWtKVzl0RldwdHhGc2Q2Y01DeDd1ZTVtYlVSYlc0?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxPbGtINzBTbm9hTEFJWVZaeXhWOHBmMFVTeTM1VTlOdk1NemRkYklTSGNxdm5TekN3anN6WEpWX2dYQWJ4Wm5LWG9ERThLTVhoZFFfSGFBVEhxZzFhSnliSkttRlFYdFM0WFRZckFCeTFjT2M5Q2lENExjdlZEV2tCeUhiQWdOMjdoMU9TMnBIcFB1WW96VmZGclpwQdIBoAFBVV95cUxNQmxRUzNxZkxYd2NPQXBzOEc5dEh1QW9wdUI5RGlzRkE1MUkzMDlUUW0wUWtQMWJtMk94aEpEZmxvMWNFRWpUSnVsNmVINEQwZ0NBYU1IeE5uR0JoYlg2cUF5d3ZieVp2MDlXOEs4ZDlRVjdWeHR2ckFMSUY2SU8tNVh3RWtKVzl0RldwdHhGc2Q2Y01DeDd1ZTVtYlVSYlc0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem o melhor início de Brasileirão dos últimos 15 anos"
+description: "São Paulo tem o melhor início de Brasileirão dos últimos 15 anos  Jogada 10"
+pubDate: "2026-03-13T10:08:47.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxOWXRCXzZMUExwSmMyVS1IS0ZJN3o5MU9mZEtQcjFEYUJockhNVlJXRGhVeVdaRUF2ZzlTSV9uQnkwdkc0OXY4VTJZNVFTN0NSTWZQS3Ewb2VsQl82bThlYnR2MmNjQ0JEQ0tqX2NKNUE3YURUVTRkdU1mWFZ6cXB5SFR3ZHduZ3RhZTNsd1Q3VzVYTkHSAZgBQVVfeXFMUGhKODMtaWtpYUYwdGdNYzIzNjRISVRvb21wT2lGZFFXbVc1WUZfb05xVGpKMDJDQTNjRFUwbVQwa3dkTG5qWG4tbnpUSEdKNHZpTjlCT2RWYWVOZFZ4RF9iSzA3d3R2RUZNRE54c1pHX0JnT1lYLVl6UFRGVTdPdWlmMnlvdVd1TjUzR0ZjZVQ0a1RncDV4UTY?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxOWXRCXzZMUExwSmMyVS1IS0ZJN3o5MU9mZEtQcjFEYUJockhNVlJXRGhVeVdaRUF2ZzlTSV9uQnkwdkc0OXY4VTJZNVFTN0NSTWZQS3Ewb2VsQl82bThlYnR2MmNjQ0JEQ0tqX2NKNUE3YURUVTRkdU1mWFZ6cXB5SFR3ZHduZ3RhZTNsd1Q3VzVYTkHSAZgBQVVfeXFMUGhKODMtaWtpYUYwdGdNYzIzNjRISVRvb21wT2lGZFFXbVc1WUZfb05xVGpKMDJDQTNjRFUwbVQwa3dkTG5qWG4tbnpUSEdKNHZpTjlCT2RWYWVOZFZ4RF9iSzA3d3R2RUZNRE54c1pHX0JnT1lYLVl6UFRGVTdPdWlmMnlvdVd1TjUzR0ZjZVQ0a1RncDV4UTY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
