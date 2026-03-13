@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem possíveis rivais definidos na Sul-Americana; confira"
+description: "São Paulo tem possíveis rivais definidos na Sul-Americana; confira  Portal Hortolândia"
+pubDate: "2026-03-13T12:50:27.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE1falZibkdGMFlMTGVJcTJ5Wkl5cHZwU0dBM2ZUMVJ4UEFkaGg2eDlwcFJCQXdjb2FtNjU5VjRaaW1LWkZvVXFMUVBEenEzOUJ0SDFRUXphbTVFLXhHYjU4dEotdVRxbkhRN09OZHY4Zl9HU2R2ZTh4NkR4a9IBe0FVX3lxTE1falZibkdGMFlMTGVJcTJ5Wkl5cHZwU0dBM2ZUMVJ4UEFkaGg2eDlwcFJCQXdjb2FtNjU5VjRaaW1LWkZvVXFMUVBEenEzOUJ0SDFRUXphbTVFLXhHYjU4dEotdVRxbkhRN09OZHY4Zl9HU2R2ZTh4NkR4aw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE1falZibkdGMFlMTGVJcTJ5Wkl5cHZwU0dBM2ZUMVJ4UEFkaGg2eDlwcFJCQXdjb2FtNjU5VjRaaW1LWkZvVXFMUVBEenEzOUJ0SDFRUXphbTVFLXhHYjU4dEotdVRxbkhRN09OZHY4Zl9HU2R2ZTh4NkR4a9IBe0FVX3lxTE1falZibkdGMFlMTGVJcTJ5Wkl5cHZwU0dBM2ZUMVJ4UEFkaGg2eDlwcFJCQXdjb2FtNjU5VjRaaW1LWkZvVXFMUVBEenEzOUJ0SDFRUXphbTVFLXhHYjU4dEotdVRxbkhRN09OZHY4Zl9HU2R2ZTh4NkR4aw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
