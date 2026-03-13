@@ -1,0 +1,13 @@
+---
+title: "Empresa retira processo contra o São Paulo por rescisão de contrato no Morumbis"
+description: "Empresa retira processo contra o São Paulo por rescisão de contrato no Morumbis  Terra"
+pubDate: "2026-03-13T21:22:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi_gFBVV95cUxPam41YXdSbml3RWRfTW5TRkNSaERWNVRHcklZTGY3ZjNTc1hOTWl6VE1sQVJaaGFlTnBBQWw2MW5lY1ZMM3pJbWdfM3dtZDI5ckJINWF3U3dQcVlRTHBIWGlEbWlyNEhxTnk4VV9zbkFXZWxDMFgta1RPdG9Rc3RSZmNfNkJmMDloRjF0Ti02OGJodkJiZmdxUk1WRm1XVEVERTEtbmxabXdwN2M0d19ScU95eS0yUkxHcW1HZHI5RjJCcXBUdEQyLVdQbTdmLVU0RnNxVUtRb19GVXRrcmFrTEtzRUNJTF9LQ0hlejVoRnhmM2N4aGhLZFlzZjk3QQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_gFBVV95cUxPam41YXdSbml3RWRfTW5TRkNSaERWNVRHcklZTGY3ZjNTc1hOTWl6VE1sQVJaaGFlTnBBQWw2MW5lY1ZMM3pJbWdfM3dtZDI5ckJINWF3U3dQcVlRTHBIWGlEbWlyNEhxTnk4VV9zbkFXZWxDMFgta1RPdG9Rc3RSZmNfNkJmMDloRjF0Ti02OGJodkJiZmdxUk1WRm1XVEVERTEtbmxabXdwN2M0d19ScU95eS0yUkxHcW1HZHI5RjJCcXBUdEQyLVdQbTdmLVU0RnNxVUtRb19GVXRrcmFrTEtzRUNJTF9LQ0hlejVoRnhmM2N4aGhLZFlzZjk3QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo treina e Enzo retorna após desfalque"
+description: "São Paulo treina e Enzo retorna após desfalque  Portal Hortolândia"
+pubDate: "2026-03-13T21:40:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPaXpyM3dLZTk5QVRTMzM4ZWJVZF9hT2ZzT2JHZEJabnYxal9wMHd1bVZOTlZLYVJ1dksyaVNVRDhMMG12ZlRpOU9GSW5YMlB6SDJvWFhKeXNiSlNmOEpfVEtCN0JYXzFJejQ4d2RScHlVbHRweE1wTC1fM0JfQ3VJN09R0gGCAUFVX3lxTE9penIzd0tlOTlBVFMzMzhlYlVkX2FPZnNPYkdkQlpudjFqX3Awd3VtVk5OVkthUnV2SzJpU1VEOEwwbXZmVGk5T0ZJblgyUHpIMm9YWEp5c2JKU2Y4Sl9US0I3QlhfMUl6NDh3ZFJweVVsdHB4TXBMLV8zQl9DdUk3T1E?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPaXpyM3dLZTk5QVRTMzM4ZWJVZF9hT2ZzT2JHZEJabnYxal9wMHd1bVZOTlZLYVJ1dksyaVNVRDhMMG12ZlRpOU9GSW5YMlB6SDJvWFhKeXNiSlNmOEpfVEtCN0JYXzFJejQ4d2RScHlVbHRweE1wTC1fM0JfQ3VJN09R0gGCAUFVX3lxTE9penIzd0tlOTlBVFMzMzhlYlVkX2FPZnNPYkdkQlpudjFqX3Awd3VtVk5OVkthUnV2SzJpU1VEOEwwbXZmVGk5T0ZJblgyUHpIMm9YWEp5c2JKU2Y4Sl9US0I3QlhfMUl6NDh3ZFJweVVsdHB4TXBMLV8zQl9DdUk3T1E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
