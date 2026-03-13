@@ -1,0 +1,13 @@
+---
+title: "São Paulo negocia permanência de atacante"
+description: "São Paulo negocia permanência de atacante  Esporte News Mundo"
+pubDate: "2026-03-13T19:17:35.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTFAxLTQ3c1hlWXpnRlZvM2tXSG9sb0hlQWdXa2I0Q2FjQkVBSk8xSTFJRTljTXFlbWl0b3dxVnBKcFYtdWwwQXJmbzZmOUJUZlgtOU9iUmRqTzROVUNpMFFrdmVXS0l2VS01dkZ6bmc3b2ZZQzJsUjEwbWl2VFNyTHfSAYQBQVVfeXFMTkViUmxqSFZQcm56SzJyZUh2UGxjUEpwd3B4MERvZ3hPX0ctektLS1NKd1RDVGZGQ2d1bS1OWWd3SlRTQnNnOGVZS1prN0ZlLVJwZE94Ri0zd01TRXBjREQwcThtaWlhdEpLenBMdnBmZjlsUnB6TjRwYy01S3NxdkFSNzN5?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTFAxLTQ3c1hlWXpnRlZvM2tXSG9sb0hlQWdXa2I0Q2FjQkVBSk8xSTFJRTljTXFlbWl0b3dxVnBKcFYtdWwwQXJmbzZmOUJUZlgtOU9iUmRqTzROVUNpMFFrdmVXS0l2VS01dkZ6bmc3b2ZZQzJsUjEwbWl2VFNyTHfSAYQBQVVfeXFMTkViUmxqSFZQcm56SzJyZUh2UGxjUEpwd3B4MERvZ3hPX0ctektLS1NKd1RDVGZGQ2d1bS1OWWd3SlRTQnNnOGVZS1prN0ZlLVJwZE94Ri0zd01TRXBjREQwcThtaWlhdEpLenBMdnBmZjlsUnB6TjRwYy01S3NxdkFSNzN5?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
