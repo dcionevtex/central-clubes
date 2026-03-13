@@ -1,0 +1,13 @@
+---
+title: "São Paulo consegue resultado financeiro surpreendente após economia milionária"
+description: "São Paulo consegue resultado financeiro surpreendente após economia milionária  Rádio Itatiaia"
+pubDate: "2026-03-13T16:18:22.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_gFBVV95cUxORFNSeGRQWlBCdzNPeDRIbk5Na2JoTXZubkVubUdBLVhaVDRxZDN5SjRudlZ3bG93MlVjRXlIQ2lxakxrbzZGNkFOWUlzbUdIdjFrRW5aQUhucUNSZ3VYM3AzRG1nNmxrbEZPRnZLX2JSVWw3SlIwcHJEQ1lUY3RNLVNCWVY3eWs0dlg1M2pLVHVTRUpRZ05sU2ZmRVhrYVpDOGRZWnZBZWNtMlRKa3ZSWnRLQ3EyMF82RHAyMmY4aWpqNDFmXzU1ckN6bjRGYnRYMENDY3BaQTRWUFJHMDRhM2x0eE9mWnB0V0ZIT25jenR1Q0JTM1FhcGxkUHZQUQ?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_gFBVV95cUxORFNSeGRQWlBCdzNPeDRIbk5Na2JoTXZubkVubUdBLVhaVDRxZDN5SjRudlZ3bG93MlVjRXlIQ2lxakxrbzZGNkFOWUlzbUdIdjFrRW5aQUhucUNSZ3VYM3AzRG1nNmxrbEZPRnZLX2JSVWw3SlIwcHJEQ1lUY3RNLVNCWVY3eWs0dlg1M2pLVHVTRUpRZ05sU2ZmRVhrYVpDOGRZWnZBZWNtMlRKa3ZSWnRLQ3EyMF82RHAyMmY4aWpqNDFmXzU1ckN6bjRGYnRYMENDY3BaQTRWUFJHMDRhM2x0eE9mWnB0V0ZIT25jenR1Q0JTM1FhcGxkUHZQUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
