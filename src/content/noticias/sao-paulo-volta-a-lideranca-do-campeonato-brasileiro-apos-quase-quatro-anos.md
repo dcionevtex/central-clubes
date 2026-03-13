@@ -1,0 +1,13 @@
+---
+title: "São Paulo volta à liderança do Campeonato Brasileiro após quase quatro anos"
+description: "São Paulo volta à liderança do Campeonato Brasileiro após quase quatro anos  Jogada 10"
+pubDate: "2026-03-13T14:53:47.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxNMDQxa2hKSi1nNzAwcklYR0JlOE5xcEx0RUh3TVZPd2NQanpGdHI2ZVZQd3ItdXNQN0l5TE5oZzFSYzNYelA0eURKOXpMNTBQN0J5ckxFMUNfQml2eU5Lb241U2QyTUpkZk9razQzdDBkbERHOFVNak1Jbm9QekVZOG8ycG1OZXAwZHlJT2xOX3lCNjhzRGUzM1l3ODhUSnpxZGfSAacBQVVfeXFMT0MxcEdlQVVTOVc5WWdPU1Fha2stZ3NJQXFtYmM2bVlPajZBcWZ1UTZtWlByN1BpQ3g5RzFSMlZmUWYzSUIxT3kxUktsYm1JcGhxQ1hsWENqRUIwc2RZbnYwWS1ieXRocV9adWFRSFI5T1lGd01sa283VGtYaG1DVWp1TDlDYXVnZm9aanNURmNyaEFPZWJ1cENsazNCVUEyMVFDSnJxMk0?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxNMDQxa2hKSi1nNzAwcklYR0JlOE5xcEx0RUh3TVZPd2NQanpGdHI2ZVZQd3ItdXNQN0l5TE5oZzFSYzNYelA0eURKOXpMNTBQN0J5ckxFMUNfQml2eU5Lb241U2QyTUpkZk9razQzdDBkbERHOFVNak1Jbm9QekVZOG8ycG1OZXAwZHlJT2xOX3lCNjhzRGUzM1l3ODhUSnpxZGfSAacBQVVfeXFMT0MxcEdlQVVTOVc5WWdPU1Fha2stZ3NJQXFtYmM2bVlPajZBcWZ1UTZtWlByN1BpQ3g5RzFSMlZmUWYzSUIxT3kxUktsYm1JcGhxQ1hsWENqRUIwc2RZbnYwWS1ieXRocV9adWFRSFI5T1lGd01sa283VGtYaG1DVWp1TDlDYXVnZm9aanNURmNyaEFPZWJ1cENsazNCVUEyMVFDSnJxMk0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
