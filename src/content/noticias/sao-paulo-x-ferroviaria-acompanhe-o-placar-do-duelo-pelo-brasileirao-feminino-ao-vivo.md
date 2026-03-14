@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Ferroviária: acompanhe o placar do duelo pelo Brasileirão feminino ao vivo"
+description: "São Paulo x Ferroviária: acompanhe o placar do duelo pelo Brasileirão feminino ao vivo  Gazeta Esportiva"
+pubDate: "2026-03-14T18:55:46.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxPenV2TXpkQ2NoUWUzV1g3UE9LUzVMZDdwUktpaWY4OXJ5WkIxa244RmQ2aDRFTWVVbm5mQmRxMllJVmdVbUlscFVEMEx3RV9QZVhJdFJ5Ylc3TXdSd3ZsMjRuSUFiTXFJVmVsUGp6Q0dsbW1kVjg5X3ZGejZCeVNORV9rV01xbXhIQmNjUjlMWkcwUFZQcUg2YVRXU2E5d9IBngFBVV95cUxPenV2TXpkQ2NoUWUzV1g3UE9LUzVMZDdwUktpaWY4OXJ5WkIxa244RmQ2aDRFTWVVbm5mQmRxMllJVmdVbUlscFVEMEx3RV9QZVhJdFJ5Ylc3TXdSd3ZsMjRuSUFiTXFJVmVsUGp6Q0dsbW1kVjg5X3ZGejZCeVNORV9rV01xbXhIQmNjUjlMWkcwUFZQcUg2YVRXU2E5dw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxPenV2TXpkQ2NoUWUzV1g3UE9LUzVMZDdwUktpaWY4OXJ5WkIxa244RmQ2aDRFTWVVbm5mQmRxMllJVmdVbUlscFVEMEx3RV9QZVhJdFJ5Ylc3TXdSd3ZsMjRuSUFiTXFJVmVsUGp6Q0dsbW1kVjg5X3ZGejZCeVNORV9rV01xbXhIQmNjUjlMWkcwUFZQcUg2YVRXU2E5d9IBngFBVV95cUxPenV2TXpkQ2NoUWUzV1g3UE9LUzVMZDdwUktpaWY4OXJ5WkIxa244RmQ2aDRFTWVVbm5mQmRxMllJVmdVbUlscFVEMEx3RV9QZVhJdFJ5Ylc3TXdSd3ZsMjRuSUFiTXFJVmVsUGp6Q0dsbW1kVjg5X3ZGejZCeVNORV9rV01xbXhIQmNjUjlMWkcwUFZQcUg2YVRXU2E5dw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
