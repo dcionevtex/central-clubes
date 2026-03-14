@@ -1,0 +1,13 @@
+---
+title: "Bragantino x São Paulo: Como assistir ao vivo e horário"
+description: "Bragantino x São Paulo: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-03-14T15:46:56.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTFBoOVNKNW53UFZDM204ZzdNc1djNWwwZktLaTNZSzlVUVNCal84UVJYQnloNkphZk5DaHFfWGFETEZZVzRPYTJDSjhTaFZrY2lWTGFHanlUTW5jVFRqcDdOMml2eVdsYUVoVUJzUV90LUlvZzBwZkFjNW1SbTBhd9IBfkFVX3lxTFBoOVNKNW53UFZDM204ZzdNc1djNWwwZktLaTNZSzlVUVNCal84UVJYQnloNkphZk5DaHFfWGFETEZZVzRPYTJDSjhTaFZrY2lWTGFHanlUTW5jVFRqcDdOMml2eVdsYUVoVUJzUV90LUlvZzBwZkFjNW1SbTBhdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTFBoOVNKNW53UFZDM204ZzdNc1djNWwwZktLaTNZSzlVUVNCal84UVJYQnloNkphZk5DaHFfWGFETEZZVzRPYTJDSjhTaFZrY2lWTGFHanlUTW5jVFRqcDdOMml2eVdsYUVoVUJzUV90LUlvZzBwZkFjNW1SbTBhd9IBfkFVX3lxTFBoOVNKNW53UFZDM204ZzdNc1djNWwwZktLaTNZSzlVUVNCal84UVJYQnloNkphZk5DaHFfWGFETEZZVzRPYTJDSjhTaFZrY2lWTGFHanlUTW5jVFRqcDdOMml2eVdsYUVoVUJzUV90LUlvZzBwZkFjNW1SbTBhdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
