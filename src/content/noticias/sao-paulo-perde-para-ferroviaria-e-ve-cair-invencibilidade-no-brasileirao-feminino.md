@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde para Ferroviária e vê cair invencibilidade no Brasileirão Feminino"
+description: "São Paulo perde para Ferroviária e vê cair invencibilidade no Brasileirão Feminino  Terra"
+pubDate: "2026-03-14T22:55:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiggJBVV95cUxQbG8zZnh4TW1PSjBnZVBBRjBxc04wT2R5Q3o3WElpZ3kxVDNCeHNLd3BOTmtNWG16NjdzQVUwWDQ1bVJMSVdBcGVOcVVLejhFMWc4ZVZsTXV5NWhKVXRpZkU5VVVMY3RwTXMyTDNFOWhXVng1VnZ5NEZYWXhsNXhFakE5RXFFOXJraG5kUFZFT0xYWVF0dERvSlZNOU5aelVjSnFiY2RGUlpISEY1WVNYMDE1MXdSY1Rab1g0ZGQ2alRpV19oVXZFYlBPdS01RGNVNnJBbHZPZTFKU2dLdmRtWnZTMHg1V3ZRYnVvZkFFeW5rZWVzRFprWDJMdW9wV3RId3c?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggJBVV95cUxQbG8zZnh4TW1PSjBnZVBBRjBxc04wT2R5Q3o3WElpZ3kxVDNCeHNLd3BOTmtNWG16NjdzQVUwWDQ1bVJMSVdBcGVOcVVLejhFMWc4ZVZsTXV5NWhKVXRpZkU5VVVMY3RwTXMyTDNFOWhXVng1VnZ5NEZYWXhsNXhFakE5RXFFOXJraG5kUFZFT0xYWVF0dERvSlZNOU5aelVjSnFiY2RGUlpISEY1WVNYMDE1MXdSY1Rab1g0ZGQ2alRpV19oVXZFYlBPdS01RGNVNnJBbHZPZTFKU2dLdmRtWnZTMHg1V3ZRYnVvZkFFeW5rZWVzRFprWDJMdW9wV3RId3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
