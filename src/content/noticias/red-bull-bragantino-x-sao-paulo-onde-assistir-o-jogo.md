@@ -1,0 +1,13 @@
+---
+title: "Red Bull Bragantino x São Paulo: onde assistir o jogo"
+description: "Red Bull Bragantino x São Paulo: onde assistir o jogo  iG Esportes"
+pubDate: "2026-03-15T20:03:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxPQktwU2w5TE9ISXdGT1FJMjU0UHFSYlluMHdzRERlTTB3MlRBX0RyeDcxWnRyWkhNdlpjRW05YTZHSzdnc0RNbjhybUNkcURrWU9DYW5tNEVuTlNvUUFCVnhUM0RNaGFjYUZsU2ZMaWphTlA5SzdOYzFFZWRBZF95RUhZSzIzVFdMbXo4QmNDT2t4X0hu0gGaAUFVX3lxTE9rMWRSUTRqMlNxZkxxWjZkRDRoLV9EY0ZwdWRqdGdWZ2lrV1g3QzVGY0FVLWdyU1NqMlZWclBQaDBPVkMwcWM4Y1BMMVhmRkk2cERhYjhRNHhGckhhR25UbGNaU0s0WTEtVVVnMERaVTY1TVBDVzc5bEVZeDlyZFU0YTNWWUE3Y3FyRTMtVFd3OGtLaC1zTlk5ZHc?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxPQktwU2w5TE9ISXdGT1FJMjU0UHFSYlluMHdzRERlTTB3MlRBX0RyeDcxWnRyWkhNdlpjRW05YTZHSzdnc0RNbjhybUNkcURrWU9DYW5tNEVuTlNvUUFCVnhUM0RNaGFjYUZsU2ZMaWphTlA5SzdOYzFFZWRBZF95RUhZSzIzVFdMbXo4QmNDT2t4X0hu0gGaAUFVX3lxTE9rMWRSUTRqMlNxZkxxWjZkRDRoLV9EY0ZwdWRqdGdWZ2lrV1g3QzVGY0FVLWdyU1NqMlZWclBQaDBPVkMwcWM4Y1BMMVhmRkk2cERhYjhRNHhGckhhR25UbGNaU0s0WTEtVVVnMERaVTY1TVBDVzc5bEVZeDlyZFU0YTNWWUE3Y3FyRTMtVFd3OGtLaC1zTlk5ZHc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
