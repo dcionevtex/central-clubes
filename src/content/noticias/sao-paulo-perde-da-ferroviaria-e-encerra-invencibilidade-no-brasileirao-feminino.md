@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde da Ferroviária e encerra invencibilidade no Brasileirão feminino"
+description: "São Paulo perde da Ferroviária e encerra invencibilidade no Brasileirão feminino  Gazeta Esportiva"
+pubDate: "2026-03-14T21:03:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxQZVdfMEJiWDR0RDRFTXl6WlFfV056ZkdHYUxxWWxCd2hEZkVoSWFyMXp5M2d5a3VPaGFGUUd2alY2M05leF9CSTZxTWF6MWxOLXFWdl9ZaFpuWURic2pBS2ZkZEhVVWtGSmhoX0otd0xVMnRVYjFkLTNDQy04aDVhdHhfUjl3ZmxmUlliZ2VDeWVVWXJKSWJDc9IBngFBVV95cUxPenV2TXpkQ2NoUWUzV1g3UE9LUzVMZDdwUktpaWY4OXJ5WkIxa244RmQ2aDRFTWVVbm5mQmRxMllJVmdVbUlscFVEMEx3RV9QZVhJdFJ5Ylc3TXdSd3ZsMjRuSUFiTXFJVmVsUGp6Q0dsbW1kVjg5X3ZGejZCeVNORV9rV01xbXhIQmNjUjlMWkcwUFZQcUg2YVRXU2E5dw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxQZVdfMEJiWDR0RDRFTXl6WlFfV056ZkdHYUxxWWxCd2hEZkVoSWFyMXp5M2d5a3VPaGFGUUd2alY2M05leF9CSTZxTWF6MWxOLXFWdl9ZaFpuWURic2pBS2ZkZEhVVWtGSmhoX0otd0xVMnRVYjFkLTNDQy04aDVhdHhfUjl3ZmxmUlliZ2VDeWVVWXJKSWJDc9IBngFBVV95cUxPenV2TXpkQ2NoUWUzV1g3UE9LUzVMZDdwUktpaWY4OXJ5WkIxa244RmQ2aDRFTWVVbm5mQmRxMllJVmdVbUlscFVEMEx3RV9QZVhJdFJ5Ylc3TXdSd3ZsMjRuSUFiTXFJVmVsUGp6Q0dsbW1kVjg5X3ZGejZCeVNORV9rV01xbXhIQmNjUjlMWkcwUFZQcUg2YVRXU2E5dw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
