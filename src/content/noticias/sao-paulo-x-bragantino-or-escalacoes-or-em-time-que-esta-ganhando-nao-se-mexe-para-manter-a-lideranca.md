@@ -1,0 +1,13 @@
+---
+title: "SÃO PAULO x BRAGANTINO | ESCALAÇÕES | EM TIME QUE ESTÁ GANHANDO NÃO SE MEXE PARA MANTER A LIDERANÇA"
+description: "SÃO PAULO x BRAGANTINO | ESCALAÇÕES | EM TIME QUE ESTÁ GANHANDO NÃO SE MEXE PARA MANTER A LIDERANÇA  Avante Meu Tricolor"
+pubDate: "2026-03-15T22:48:00.000Z"
+source: "Avante Meu Tricolor"
+link: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxQQ3A0bXl3SEhlRWtYTHJPVzQ4ZktPdnRsd3R4Z0t1UnAtLWxVT1JSZTlzaHRsWm9LaHh0V2RYZWJ0bGNFUXdZd0x6LVRrYURRTHdzbjJOaVc5Ny1GdXJYX2ZYVFJQazhJaEhSM0h1VjNpNlRZRExXNk1nUmptY0dzcXVuTEZVZWtwWWl0aXdDSGhYVVFMbkFwbDdpVWU4R291M25ON1Y4YjFpcnNHWWhRdW4wcE1IMHNTN0NzVjNJUi1fY3J3ZmVuLU82RVVOQjlsWjcyRm5TTDh0dw?oc=5"
+---
+
+### Fonte Original: Avante Meu Tricolor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi2gFBVV95cUxQQ3A0bXl3SEhlRWtYTHJPVzQ4ZktPdnRsd3R4Z0t1UnAtLWxVT1JSZTlzaHRsWm9LaHh0V2RYZWJ0bGNFUXdZd0x6LVRrYURRTHdzbjJOaVc5Ny1GdXJYX2ZYVFJQazhJaEhSM0h1VjNpNlRZRExXNk1nUmptY0dzcXVuTEZVZWtwWWl0aXdDSGhYVVFMbkFwbDdpVWU4R291M25ON1Y4YjFpcnNHWWhRdW4wcE1IMHNTN0NzVjNJUi1fY3J3ZmVuLU82RVVOQjlsWjcyRm5TTDh0dw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
