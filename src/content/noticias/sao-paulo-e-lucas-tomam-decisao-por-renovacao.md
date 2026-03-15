@@ -1,0 +1,13 @@
+---
+title: "São Paulo e Lucas tomam decisão por renovação"
+description: "São Paulo e Lucas tomam decisão por renovação  Portal Hortolândia"
+pubDate: "2026-03-15T14:45:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE5KbXctUkd6azJCWWxWSnNpdi1Ndk9wcGtoZW45NUxFVDdkQ0Z5cDluRjJDNDNiYk84eGVTYkw5aFFDX21GLUI4dHQ4S2tJbnFyM1ZTN3JCZFNTN3N6RmdybmJnSmctX0NMNDB0Y25odTltcmRRQ1d6aFVLWTdfZ9IBfkFVX3lxTE5KbXctUkd6azJCWWxWSnNpdi1Ndk9wcGtoZW45NUxFVDdkQ0Z5cDluRjJDNDNiYk84eGVTYkw5aFFDX21GLUI4dHQ4S2tJbnFyM1ZTN3JCZFNTN3N6RmdybmJnSmctX0NMNDB0Y25odTltcmRRQ1d6aFVLWTdfZw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE5KbXctUkd6azJCWWxWSnNpdi1Ndk9wcGtoZW45NUxFVDdkQ0Z5cDluRjJDNDNiYk84eGVTYkw5aFFDX21GLUI4dHQ4S2tJbnFyM1ZTN3JCZFNTN3N6RmdybmJnSmctX0NMNDB0Y25odTltcmRRQ1d6aFVLWTdfZ9IBfkFVX3lxTE5KbXctUkd6azJCWWxWSnNpdi1Ndk9wcGtoZW45NUxFVDdkQ0Z5cDluRjJDNDNiYk84eGVTYkw5aFFDX21GLUI4dHQ4S2tJbnFyM1ZTN3JCZFNTN3N6RmdybmJnSmctX0NMNDB0Y25odTltcmRRQ1d6aFVLWTdfZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
