@@ -1,0 +1,13 @@
+---
+title: "Líder do Brasileirão, São Paulo visita o RB Bragantino para ampliar vantagem na ponta"
+description: "Líder do Brasileirão, São Paulo visita o RB Bragantino para ampliar vantagem na ponta  Rádio Itatiaia"
+pubDate: "2026-03-15T08:03:00.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMihwJBVV95cUxPYkhobHRNRnY1YVUzUG8xcG9POENiM05oNGNsM0w5Y3FQeFlyX2VQUlNRZVRlX3gyZUl6c1lwMGpPQjMzLV9IYVhUbHBIcUV1LVBQbkJ5d2lCc2ZZaDFaczRDS0N6bmo5cVVjUDFqN1Z5N205dDJ6dllqSmZWLXhCVWxOSFM4MmNLdGpxUG9aVXVTUl9NaElpQVFhQnVCeUk0T1I3WHo4THFNakR5N28tYjQ2dmU2UF9NUVZNbzZMRzZJMmhlR0VfMS1yWlo5M2N3MUdXV2kxZ3BMRFl6T1E1NkdZRVZNa1lwRldwYWtLZjdjRVJZYW84UXc5OUJaekZUUlk4NHVWNA?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwJBVV95cUxPYkhobHRNRnY1YVUzUG8xcG9POENiM05oNGNsM0w5Y3FQeFlyX2VQUlNRZVRlX3gyZUl6c1lwMGpPQjMzLV9IYVhUbHBIcUV1LVBQbkJ5d2lCc2ZZaDFaczRDS0N6bmo5cVVjUDFqN1Z5N205dDJ6dllqSmZWLXhCVWxOSFM4MmNLdGpxUG9aVXVTUl9NaElpQVFhQnVCeUk0T1I3WHo4THFNakR5N28tYjQ2dmU2UF9NUVZNbzZMRzZJMmhlR0VfMS1yWlo5M2N3MUdXV2kxZ3BMRFl6T1E1NkdZRVZNa1lwRldwYWtLZjdjRVJZYW84UXc5OUJaekZUUlk4NHVWNA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
