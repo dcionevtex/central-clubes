@@ -1,0 +1,13 @@
+---
+title: "São Paulo inicia preparação para enfrentar Atlético após confirmar liderança"
+description: "São Paulo inicia preparação para enfrentar Atlético após confirmar liderança  Rádio Itatiaia"
+pubDate: "2026-03-16T18:10:55.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_AFBVV95cUxQbXkyZ3dWNUwzOENGdUhnaURuZUpwQWdfc2JUbV92OUFkYTkwVzJJSXdyLVpsRHpCU0tQRksteF91R2R2dEV6ZmJKYUl2cVhwLWtla2hDeGpVVE9sa0ZXWjJxa0hseDRhMlp1TEZxOFZhQzFKam14ZkFZOWk1N3NZQnZtc3Zmb3IwNUlHeGlTZjBBTFVmY2tuM0tCa1BzR3Bwb1NIYmFlSi1Yd1ZwNVh3OXRLOW5VVnNWbHJCdWYwdTJuTWpucVBQYmRGQTlwRllodnl0Mm9vaHA2ZHhVakNTZDRxanlMLWMtTG9sSGFZQmRpXzE3ZEE4b0pra3I?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_AFBVV95cUxQbXkyZ3dWNUwzOENGdUhnaURuZUpwQWdfc2JUbV92OUFkYTkwVzJJSXdyLVpsRHpCU0tQRksteF91R2R2dEV6ZmJKYUl2cVhwLWtla2hDeGpVVE9sa0ZXWjJxa0hseDRhMlp1TEZxOFZhQzFKam14ZkFZOWk1N3NZQnZtc3Zmb3IwNUlHeGlTZjBBTFVmY2tuM0tCa1BzR3Bwb1NIYmFlSi1Yd1ZwNVh3OXRLOW5VVnNWbHJCdWYwdTJuTWpucVBQYmRGQTlwRllodnl0Mm9vaHA2ZHhVakNTZDRxanlMLWMtTG9sSGFZQmRpXzE3ZEE4b0pra3I?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
