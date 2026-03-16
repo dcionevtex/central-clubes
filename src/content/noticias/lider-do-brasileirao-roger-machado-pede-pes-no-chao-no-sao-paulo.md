@@ -1,0 +1,13 @@
+---
+title: "Líder do Brasileirão, Roger Machado pede ‘pés no chão’ no São Paulo"
+description: "Líder do Brasileirão, Roger Machado pede ‘pés no chão’ no São Paulo  Gazeta Esportiva"
+pubDate: "2026-03-16T14:14:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxQSGRTejdwTHZnakFQXzhMQ0RrcUk4YkxfTVpXZmhhSDZvNzJHb243SV9SOFU4QndDcU5QdkdYSHZnbUdoeFpKNjdCcnNtazNTMEdhOGpvUjhRc3ByZzFXaGtVSlpFLWs2cnJGMmpJVUN5dDVVX1kteUN1X3VjaS1JMXd2UV91ZWpSYlZRdE9DSDl1SE1QaXBjSVJR0gGfAUFVX3lxTFBxY2dpa0hQVnZ4dmkyNmxKcDRrNVNOZUY4eXRFNjZZZXFseS1uT2FpMHgwQ1NtVWRBb2s0c1hMSHRQbHc5aEJsYnVOZUVPSmpVdUU3NjhQZ1NyWmxFTjBfV0VWSGxFUlVEVlhuZ2NORWJxWEowLXZfM0p2ZkdFazFLWHdzc2RvRFJlVGdVUHVKNjdZbEVSZnJTVzFDaDdyTQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxQSGRTejdwTHZnakFQXzhMQ0RrcUk4YkxfTVpXZmhhSDZvNzJHb243SV9SOFU4QndDcU5QdkdYSHZnbUdoeFpKNjdCcnNtazNTMEdhOGpvUjhRc3ByZzFXaGtVSlpFLWs2cnJGMmpJVUN5dDVVX1kteUN1X3VjaS1JMXd2UV91ZWpSYlZRdE9DSDl1SE1QaXBjSVJR0gGfAUFVX3lxTFBxY2dpa0hQVnZ4dmkyNmxKcDRrNVNOZUY4eXRFNjZZZXFseS1uT2FpMHgwQ1NtVWRBb2s0c1hMSHRQbHc5aEJsYnVOZUVPSmpVdUU3NjhQZ1NyWmxFTjBfV0VWSGxFUlVEVlhuZ2NORWJxWEowLXZfM0p2ZkdFazFLWHdzc2RvRFJlVGdVUHVKNjdZbEVSZnJTVzFDaDdyTQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
