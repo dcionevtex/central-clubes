@@ -1,0 +1,13 @@
+---
+title: "Cria do São Paulo, Pedro Ferreira celebra convocação inédita à Seleção Sub-20"
+description: "Cria do São Paulo, Pedro Ferreira celebra convocação inédita à Seleção Sub-20  UOL"
+pubDate: "2026-03-16T22:02:15.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMi2AJBVV95cUxPUXJKUWZCR0VYdkYxajNTVWNOenNqMEZpc0I0N3REdnltRnpfZ3VUcUNQR21vd084UXB4eUdDRlRvWHdLTGd2TllQSk1rZ2s0bVVhQjd1em1FakxMb1Axbnl6TmJqdXlWWkx5VXdjZUd2TW5SalVXODVRUV9QSG9vaWRPS1plTFB5MlFvUTYyU2tRWk5FSU1FaVBkRVJ1YmpCZkJ5M3phXzUtN19nRWl3dGxhcWkwUk4yOUhya2xQQUhnT09Hdm85dDh1M3UyamNOZENmRkFvMWpBTnRWV09aVUxFc09LS090OHZOWVA1UEVlX25yUTJTOGhzVXF3ZG1HTXZQUGF5TWtiQnhnSlVvbF84NUZPYWMwakkzMWdRVXJ0TFN4WVRWMnZmVmRJR09nbFY0MEc0Zk9rbWdqdkRuU01DOGJOMW5JLTljZ2RSTTdwNC1SeU04TA?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi2AJBVV95cUxPUXJKUWZCR0VYdkYxajNTVWNOenNqMEZpc0I0N3REdnltRnpfZ3VUcUNQR21vd084UXB4eUdDRlRvWHdLTGd2TllQSk1rZ2s0bVVhQjd1em1FakxMb1Axbnl6TmJqdXlWWkx5VXdjZUd2TW5SalVXODVRUV9QSG9vaWRPS1plTFB5MlFvUTYyU2tRWk5FSU1FaVBkRVJ1YmpCZkJ5M3phXzUtN19nRWl3dGxhcWkwUk4yOUhya2xQQUhnT09Hdm85dDh1M3UyamNOZENmRkFvMWpBTnRWV09aVUxFc09LS090OHZOWVA1UEVlX25yUTJTOGhzVXF3ZG1HTXZQUGF5TWtiQnhnSlVvbF84NUZPYWMwakkzMWdRVXJ0TFN4WVRWMnZmVmRJR09nbFY0MEc0Zk9rbWdqdkRuU01DOGJOMW5JLTljZ2RSTTdwNC1SeU04TA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
