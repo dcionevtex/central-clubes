@@ -1,0 +1,13 @@
+---
+title: "São Paulo fecha novo acordo e faz operação para substituir empresa no Morumbis"
+description: "São Paulo fecha novo acordo e faz operação para substituir empresa no Morumbis  Rádio Itatiaia"
+pubDate: "2026-03-16T21:20:33.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_wFBVV95cUxOQ0pfenlIWjBSWm9WTXRiN1hQT2YtOU4xeTZCS2RNTkx0eTNBd2RpSUEzLXFvQnVaMHJkY0ZRSnRoWkdueVVPQUpMSkpZSlQ1bXFjMF9RUDdRcjFYM3J5V21CS2FWQ0hqMzhaX28zdk83bVd6YzFuODBvTkFKY21hOFFwMDg0UnBINm9XM21UQ3AzTlhaMjFBQy1NRmloa3BXZlpyWG55dmhRbTJleEltdVVlX2FJd3N0MG1zTHdzSjhlZFVJdXhyVXNUN1haVUhjai1WMXc2U0puTFlBSVFDWU5yUjVDOHFCQ3JES2YzVDNCR1JtNF9TaU4zRXNjNEk?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_wFBVV95cUxOQ0pfenlIWjBSWm9WTXRiN1hQT2YtOU4xeTZCS2RNTkx0eTNBd2RpSUEzLXFvQnVaMHJkY0ZRSnRoWkdueVVPQUpMSkpZSlQ1bXFjMF9RUDdRcjFYM3J5V21CS2FWQ0hqMzhaX28zdk83bVd6YzFuODBvTkFKY21hOFFwMDg0UnBINm9XM21UQ3AzTlhaMjFBQy1NRmloa3BXZlpyWG55dmhRbTJleEltdVVlX2FJd3N0MG1zTHdzSjhlZFVJdXhyVXNUN1haVUhjai1WMXc2U0puTFlBSVFDWU5yUjVDOHFCQ3JES2YzVDNCR1JtNF9TaU4zRXNjNEk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

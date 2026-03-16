@@ -1,0 +1,13 @@
+---
+title: "São Paulo despacha itens de antiga fornecedora do MorumBis e estreia empresa parceira do Allianz"
+description: "São Paulo despacha itens de antiga fornecedora do MorumBis e estreia empresa parceira do Allianz  Terra"
+pubDate: "2026-03-16T20:50:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMilAJBVV95cUxPWkQ2RnJjNFZoQ2x4ck8xb3pRQjRfWndvVGJEeGZqcE01azRnZUNlVnNXWjR2LW9lU0RFSVBaR3E2OEVpSkJQRVRPNVU1cGlQQnNZc21PMlFTSGo0czBGUmVoR0FQa1pQdlh1amdoa2IyZXFNRUxjY2VnZERfVzhwM2U3TEFUUGpKWW1yRVBUZC1ZZDBNdFAtcVRFNlF5Z1hiU0dTeDR6dU0zYUE5STdBSnBrUkxHMUJNMVRBT2ZyVWctMnpEcWh4a2tMRGVxOVNqT0VrZTU0N2s0TVZxcFhPUTF1Tlk1bXdCQUlvMFNiU0NGSEo5NmFxd0RZWE1NanhlRFI2YnNnMGt6V0ZvUlY4NGZyWVA?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAJBVV95cUxPWkQ2RnJjNFZoQ2x4ck8xb3pRQjRfWndvVGJEeGZqcE01azRnZUNlVnNXWjR2LW9lU0RFSVBaR3E2OEVpSkJQRVRPNVU1cGlQQnNZc21PMlFTSGo0czBGUmVoR0FQa1pQdlh1amdoa2IyZXFNRUxjY2VnZERfVzhwM2U3TEFUUGpKWW1yRVBUZC1ZZDBNdFAtcVRFNlF5Z1hiU0dTeDR6dU0zYUE5STdBSnBrUkxHMUJNMVRBT2ZyVWctMnpEcWh4a2tMRGVxOVNqT0VrZTU0N2s0TVZxcFhPUTF1Tlk1bXdCQUlvMFNiU0NGSEo5NmFxd0RZWE1NanhlRFI2YnNnMGt6V0ZvUlY4NGZyWVA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
