@@ -1,0 +1,13 @@
+---
+title: "São Paulo vira sobre o Bragantino fora de casa e segue líder"
+description: "São Paulo vira sobre o Bragantino fora de casa e segue líder  Esporte News Mundo"
+pubDate: "2026-03-16T10:14:08.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxQQVFFVVc3SEdCUDlxdWdPeElKV3JvWkhERWtDc1NSanZaWkFIdXJNQ0ltcElON3ZJRHVDZTRlMWVLQjR2MS00N3JfWlFrT19xdXpDdUxRVmUxeVZ1OXBoNmRXLXpsLU5HRXJEVllOeUtqZ1liRjhiVnd2eWQzVEpuVGFaMGRzU09Ha3h0bnFfb3VSbFRBekNkUnZpMzRQUdIBngFBVV95cUxQQVFFVVc3SEdCUDlxdWdPeElKV3JvWkhERWtDc1NSanZaWkFIdXJNQ0ltcElON3ZJRHVDZTRlMWVLQjR2MS00N3JfWlFrT19xdXpDdUxRVmUxeVZ1OXBoNmRXLXpsLU5HRXJEVllOeUtqZ1liRjhiVnd2eWQzVEpuVGFaMGRzU09Ha3h0bnFfb3VSbFRBekNkUnZpMzRQUQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxQQVFFVVc3SEdCUDlxdWdPeElKV3JvWkhERWtDc1NSanZaWkFIdXJNQ0ltcElON3ZJRHVDZTRlMWVLQjR2MS00N3JfWlFrT19xdXpDdUxRVmUxeVZ1OXBoNmRXLXpsLU5HRXJEVllOeUtqZ1liRjhiVnd2eWQzVEpuVGFaMGRzU09Ha3h0bnFfb3VSbFRBekNkUnZpMzRQUdIBngFBVV95cUxQQVFFVVc3SEdCUDlxdWdPeElKV3JvWkhERWtDc1NSanZaWkFIdXJNQ0ltcElON3ZJRHVDZTRlMWVLQjR2MS00N3JfWlFrT19xdXpDdUxRVmUxeVZ1OXBoNmRXLXpsLU5HRXJEVllOeUtqZ1liRjhiVnd2eWQzVEpuVGFaMGRzU09Ha3h0bnFfb3VSbFRBekNkUnZpMzRQUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
