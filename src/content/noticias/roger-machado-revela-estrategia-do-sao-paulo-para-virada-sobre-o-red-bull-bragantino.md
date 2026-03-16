@@ -1,0 +1,13 @@
+---
+title: "Roger Machado revela estratégia do São Paulo para virada sobre o Red Bull Bragantino"
+description: "Roger Machado revela estratégia do São Paulo para virada sobre o Red Bull Bragantino  Terra"
+pubDate: "2026-03-16T03:12:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiggJBVV95cUxOVS1mNHFNUDRqWEc5YnpXWUF4eEZRSWNkYzc2MW5oMmRNRW5WQ0xRTFVzX0lmSC1LQThNN2Y5VUg0a0EwTk9nOV9sUl82NC1kaE52c1lTdUxRUzNVM0hGUk92YVhhSGowTTN1Zy1KOWN5Wl9tV1hqSnhVX09OUjZUUnVqOTJ6eWsxdHQ1akhtTTNZMFBJY1I2U1ZQbHRYcEQ5c3hqaWgtVHFQUFY1SXktLWJ1VTJxRlJuVlp3ajVvSDQwSU01V0dQbzVxd215eVRaOHdWSTg1bHQwdkRveHdRSmltbndZUXFvVjJUcDBaMUhUczFfYk94OEhjQTRoSUVhOGc?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggJBVV95cUxOVS1mNHFNUDRqWEc5YnpXWUF4eEZRSWNkYzc2MW5oMmRNRW5WQ0xRTFVzX0lmSC1LQThNN2Y5VUg0a0EwTk9nOV9sUl82NC1kaE52c1lTdUxRUzNVM0hGUk92YVhhSGowTTN1Zy1KOWN5Wl9tV1hqSnhVX09OUjZUUnVqOTJ6eWsxdHQ1akhtTTNZMFBJY1I2U1ZQbHRYcEQ5c3hqaWgtVHFQUFY1SXktLWJ1VTJxRlJuVlp3ajVvSDQwSU01V0dQbzVxd215eVRaOHdWSTg1bHQwdkRveHdRSmltbndZUXFvVjJUcDBaMUhUczFfYk94OEhjQTRoSUVhOGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

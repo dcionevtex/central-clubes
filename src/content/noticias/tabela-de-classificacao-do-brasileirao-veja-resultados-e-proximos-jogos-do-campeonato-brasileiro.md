@@ -1,0 +1,13 @@
+---
+title: "Tabela de classificação do Brasileirão: veja resultados e próximos jogos do Campeonato Brasileiro"
+description: "Tabela de classificação do Brasileirão: veja resultados e próximos jogos do Campeonato Brasileiro  JC"
+pubDate: "2026-03-16T11:55:00.000Z"
+source: "JC"
+link: "https://news.google.com/rss/articles/CBMigAJBVV95cUxOUHdjZHFwN1h5YWp2YVU4ZU1VZDlXd3Z0SVNEMjMxMUFDSXZ0OFB6cTBYalJQWkhIYmFEanFhZzdXRl9VRG5lcW9LbWs3T2g1UUZVQkFCSXZvVmQ0dHpkSnMyaDVQWnRQc1d2Y1prSEV6MEMwa2RiSlh6czNrcU5jcGJUckY5Q1gyajJfbWNyaGJiMWV6NXUtRmN1cHRsVVVSY3N0eGJuNDBmdkNiWUs4LVdzeUMzVUVyMmFuOVBXN2lJSnY4QVIzR1RrOHhnTTNhOFJ4NzdJcmVTUTNvcFdMaDk3UXRPTGJ0Vm1HTUlpWDZlU0Nfc2E3eWxENGY5Y2h3?oc=5"
+---
+
+### Fonte Original: JC
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAJBVV95cUxOUHdjZHFwN1h5YWp2YVU4ZU1VZDlXd3Z0SVNEMjMxMUFDSXZ0OFB6cTBYalJQWkhIYmFEanFhZzdXRl9VRG5lcW9LbWs3T2g1UUZVQkFCSXZvVmQ0dHpkSnMyaDVQWnRQc1d2Y1prSEV6MEMwa2RiSlh6czNrcU5jcGJUckY5Q1gyajJfbWNyaGJiMWV6NXUtRmN1cHRsVVVSY3N0eGJuNDBmdkNiWUs4LVdzeUMzVUVyMmFuOVBXN2lJSnY4QVIzR1RrOHhnTTNhOFJ4NzdJcmVTUTNvcFdMaDk3UXRPTGJ0Vm1HTUlpWDZlU0Nfc2E3eWxENGY5Y2h3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
