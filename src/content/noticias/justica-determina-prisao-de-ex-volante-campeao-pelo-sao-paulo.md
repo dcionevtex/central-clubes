@@ -1,0 +1,13 @@
+---
+title: "Justiça determina prisão de ex-volante campeão pelo São Paulo"
+description: "Justiça determina prisão de ex-volante campeão pelo São Paulo  jogada10.com.br"
+pubDate: "2026-03-16T16:22:00.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxQV3NHZW1saVBfOE1YenVRbG0yOWJvUkx2TTQxUUdyeTJLR2RacGFXY0lwenBrMk5ZdFROdkQ0cGhTVTU3X3l5UXNmdm9FbnJ2RmlMN0t2TjZiR0pTTmQwdjAyMG9DMFJSRlF2OF9rd25xTFNSSk1KaEFWN2VGQ3ZSUi1lcWlzUWlOVVpfM3c1R2pwMndy0gGUAUFVX3lxTFBXc0dlbWxpUF84TVh6dVFsbTI5Ym9STHZNNDFRR3J5MktHZFpwYVdjSXB6cGsyTll0VE52RDRwaFNVNTdfeXlRc2Z2b0VucnZGaUw3S3ZONmJHSlNOZDB2MDIwb0MwUlJGUXY4X2t3bnFMU1JKTUpoQVY3ZUZDdlJSLWVxaXNRaU5VWl8zdzVHanAyd3I?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxQV3NHZW1saVBfOE1YenVRbG0yOWJvUkx2TTQxUUdyeTJLR2RacGFXY0lwenBrMk5ZdFROdkQ0cGhTVTU3X3l5UXNmdm9FbnJ2RmlMN0t2TjZiR0pTTmQwdjAyMG9DMFJSRlF2OF9rd25xTFNSSk1KaEFWN2VGQ3ZSUi1lcWlzUWlOVVpfM3c1R2pwMndy0gGUAUFVX3lxTFBXc0dlbWxpUF84TVh6dVFsbTI5Ym9STHZNNDFRR3J5MktHZFpwYVdjSXB6cGsyTll0VE52RDRwaFNVNTdfeXlRc2Z2b0VucnZGaUw3S3ZONmJHSlNOZDB2MDIwb0MwUlJGUXY4X2t3bnFMU1JKTUpoQVY3ZUZDdlJSLWVxaXNRaU5VWl8zdzVHanAyd3I?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
