@@ -1,0 +1,13 @@
+---
+title: "SEGUE O LÍDER: VEJA OS GOLS QUE MANTIVERAM O SÃO PAULO INVICTO E NA PONTA DO BRASILEIRÃO"
+description: "SEGUE O LÍDER: VEJA OS GOLS QUE MANTIVERAM O SÃO PAULO INVICTO E NA PONTA DO BRASILEIRÃO  Avante Meu Tricolor"
+pubDate: "2026-03-16T02:47:00.000Z"
+source: "Avante Meu Tricolor"
+link: "https://news.google.com/rss/articles/CBMizwFBVV95cUxPdGpqdmZoVDJLRUNXTHBwcndqSWpaZ1lReDd4X3ZadFVKS2JUQmxYVG1uR0c5LW1WS2tmV1gwVVNYVTBGWDRwX3ptTGN5ZzRTRGx0R21mTXZ4bV83RnNtaUxqWk4tZkVrRzBtVEZzbFNEM0tOWjF6SG9EVHV1RnRRajNURHRqTy12NU5UUG5lSmVpTkZNVU5sUmxmak9SQTRZaTQxNWRKdnlEY3JlWFJidG5TZ1U0ZzIwbXJyMmZkc05GRW8yazhXV29SZlhsSGM?oc=5"
+---
+
+### Fonte Original: Avante Meu Tricolor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMizwFBVV95cUxPdGpqdmZoVDJLRUNXTHBwcndqSWpaZ1lReDd4X3ZadFVKS2JUQmxYVG1uR0c5LW1WS2tmV1gwVVNYVTBGWDRwX3ptTGN5ZzRTRGx0R21mTXZ4bV83RnNtaUxqWk4tZkVrRzBtVEZzbFNEM0tOWjF6SG9EVHV1RnRRajNURHRqTy12NU5UUG5lSmVpTkZNVU5sUmxmak9SQTRZaTQxNWRKdnlEY3JlWFJidG5TZ1U0ZzIwbXJyMmZkc05GRW8yazhXV29SZlhsSGM?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

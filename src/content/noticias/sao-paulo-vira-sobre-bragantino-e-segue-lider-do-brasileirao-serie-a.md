@@ -1,0 +1,13 @@
+---
+title: "São Paulo vira sobre Bragantino e segue líder do Brasileirão Série A"
+description: "São Paulo vira sobre Bragantino e segue líder do Brasileirão Série A  Campo Grande News"
+pubDate: "2026-03-16T01:40:00.000Z"
+source: "Campo Grande News"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxOZ242X3k2WEUyT1FZbER3NEE5bllYV0JRUFczaEhrQ1lvVmlzNE5zUXVyVUdud1hJUFJhdVcySDBZVEdsVV9vTWI2a0VhMDRuLTJEeWswUlU4a3NyLTFPTVp2RUQ5ZnE4S1FUUTNEODVPSFhuN01yeGdSZ2xXVkxxUENOS1V0V2tOZk1WNkoxNEFydHJaN2pDcUZtRHhTMG5GS0h1cFVOUXHSAagBQVVfeXFMTmUtYkhtMHh3dzRDZGxFQi1MbmFsYllFdUJQS2JtblRsYmZvLUVfR2l4V3F1VTJrZDREVEdISU1vUHRESHVEdTQwSmRzd0hkQ2lPM1lLSW1hM201OFhjR2YxVnVZZjdWekdGaURjVkoxcXhjeW5SSEtNbl91YlJKQUNOZ2FMQ2FxSlJOMlhVYVdQTlhLbm5kdXFmS2Y3UU5rUjV3M3IyazAt?oc=5"
+---
+
+### Fonte Original: Campo Grande News
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOZ242X3k2WEUyT1FZbER3NEE5bllYV0JRUFczaEhrQ1lvVmlzNE5zUXVyVUdud1hJUFJhdVcySDBZVEdsVV9vTWI2a0VhMDRuLTJEeWswUlU4a3NyLTFPTVp2RUQ5ZnE4S1FUUTNEODVPSFhuN01yeGdSZ2xXVkxxUENOS1V0V2tOZk1WNkoxNEFydHJaN2pDcUZtRHhTMG5GS0h1cFVOUXHSAagBQVVfeXFMTmUtYkhtMHh3dzRDZGxFQi1MbmFsYllFdUJQS2JtblRsYmZvLUVfR2l4V3F1VTJrZDREVEdISU1vUHRESHVEdTQwSmRzd0hkQ2lPM1lLSW1hM201OFhjR2YxVnVZZjdWekdGaURjVkoxcXhjeW5SSEtNbl91YlJKQUNOZ2FMQ2FxSlJOMlhVYVdQTlhLbm5kdXFmS2Y3UU5rUjV3M3IyazAt?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Calleri marca e São Paulo vira sobre o Bragantino fora de casa"
+description: "Calleri marca e São Paulo vira sobre o Bragantino fora de casa  iG Esportes"
+pubDate: "2026-03-16T01:35:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxQb0VTem5ON3lyQjNPNXJHMC1XZkJJcTVKb0pTTk53dWFGME1oZGN2YjlLaHd5cDJXT0JiUmFBSVlSSURjMF80OXdjaUtlc0J3M2NzZllnRUxfM2E5SDdTUkJheS1YOGN2eEUyVkhtT1NHV0FGVkRCWkFsX21QQkNWdEQtSXFTZ2diOWVOdm5VTG9zRGlueThzZTZqT3pwZ9IBowFBVV95cUxOVmZCRjRUOEJBeUVYWVNZUXU5cGxVV1N5TTgyc0Y2bG50TFhMeEhYRHhwUkFnelZNejAwcXpIcGZGcE91VjZDNWlTLXNNZ2FiTGZxWFdUTXdDNEdmanVzWS1GY1hqNGc2bVJVd0lPMjgxVkZwZjkzWjloeUZaa1RBZkZnTTdSNTJpbUoxSGNHMUxCQTJCclFWdlBxaXJCaWZyZHhj?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxQb0VTem5ON3lyQjNPNXJHMC1XZkJJcTVKb0pTTk53dWFGME1oZGN2YjlLaHd5cDJXT0JiUmFBSVlSSURjMF80OXdjaUtlc0J3M2NzZllnRUxfM2E5SDdTUkJheS1YOGN2eEUyVkhtT1NHV0FGVkRCWkFsX21QQkNWdEQtSXFTZ2diOWVOdm5VTG9zRGlueThzZTZqT3pwZ9IBowFBVV95cUxOVmZCRjRUOEJBeUVYWVNZUXU5cGxVV1N5TTgyc0Y2bG50TFhMeEhYRHhwUkFnelZNejAwcXpIcGZGcE91VjZDNWlTLXNNZ2FiTGZxWFdUTXdDNEdmanVzWS1GY1hqNGc2bVJVd0lPMjgxVkZwZjkzWjloeUZaa1RBZkZnTTdSNTJpbUoxSGNHMUxCQTJCclFWdlBxaXJCaWZyZHhj?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

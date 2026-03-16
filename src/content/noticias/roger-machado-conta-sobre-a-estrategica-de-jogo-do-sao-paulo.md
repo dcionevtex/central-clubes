@@ -1,0 +1,13 @@
+---
+title: "Roger Machado conta sobre a estratégica de jogo do São Paulo"
+description: "Roger Machado conta sobre a estratégica de jogo do São Paulo  Esporte News Mundo"
+pubDate: "2026-03-16T03:12:33.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxPWXpadDNpWTItOW03ZlVmX2hJRWg2dnBKNlV6WXhNaEd3MkN6OThFUmxabkh2RlNSYURPQXRsRXZHdWxKd0VSaUU5NDdHX2cyTnVtVTdjN0ZCWXJOVXUwSGQ0TURrMWVVbVAyY3VkSjdxeTBRLUtWeEFOaEJLSU80X2hMUlRNMUR6WEZQSHo2NGJVNUhrdml4TtIBngFBVV95cUxQOTgwSXMtTXd1anpReUNYTDJvZjJ0dzBzZVo1SXVwSGNJVlkyXzdLUm1LTlZiZ3BjZ2NWZ3FLNF9oYWJTaHVvbGJqTzF4ZlEwVkN3dl9IaFBIeGxOV2FUZXg5cHhYOXprdUJOM2x0aks5aEF6QXNXZkFzV05kQzRNOXNHQ0p2V3NwcWlaSTlSQTBMSzJjaHhfRUlrLUc1QQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxPWXpadDNpWTItOW03ZlVmX2hJRWg2dnBKNlV6WXhNaEd3MkN6OThFUmxabkh2RlNSYURPQXRsRXZHdWxKd0VSaUU5NDdHX2cyTnVtVTdjN0ZCWXJOVXUwSGQ0TURrMWVVbVAyY3VkSjdxeTBRLUtWeEFOaEJLSU80X2hMUlRNMUR6WEZQSHo2NGJVNUhrdml4TtIBngFBVV95cUxQOTgwSXMtTXd1anpReUNYTDJvZjJ0dzBzZVo1SXVwSGNJVlkyXzdLUm1LTlZiZ3BjZ2NWZ3FLNF9oYWJTaHVvbGJqTzF4ZlEwVkN3dl9IaFBIeGxOV2FUZXg5cHhYOXprdUJOM2x0aks5aEF6QXNXZkFzV05kQzRNOXNHQ0p2V3NwcWlaSTlSQTBMSzJjaHhfRUlrLUc1QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
