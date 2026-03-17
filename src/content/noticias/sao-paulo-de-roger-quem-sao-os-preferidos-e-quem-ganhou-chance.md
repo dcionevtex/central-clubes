@@ -1,0 +1,13 @@
+---
+title: "São Paulo de Roger: quem são 'os preferidos' e quem ganhou chance"
+description: "São Paulo de Roger: quem são 'os preferidos' e quem ganhou chance  iG Esportes"
+pubDate: "2026-03-17T14:02:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMirAFBVV95cUxQTWZwMDJaTHJkZ1hucERQRjhSOEtOVllrVVdMUm5sdVFsQndSSmdTNUhGOTNnYi1nWlc4c3FESVNEMTIwNVZ5dlFNMnhYZnVRUUlFV2ExVVZVZks5UFpzc0duLW1VTXFzQUlVZW04QW41ZXVmZy01TjduMVNPNUZLVHNELVpvUjNtZTNIc21RUmJXczc1RG02Mk1pUlVtenZyaDltQU1rQjVYcnBW0gGyAUFVX3lxTE5NaG1FMWdFWkRJVFFLaE1nM3NQeUJ3S2NVU2NrQWgyTlRXVEVueTQ3VzY3R0NBMjlIWG9iZ2xhc0YzSEhRaFpDNEx4bkY4VGxKRVRfTlR5LXlMLXRRdG90Qm5OMFNXOWdPRkxkQjd4LS1FS3FvOGotY3RJLUNOLXRuN2g4Sm1XRVRVdUU2TVNEV2dsbW83M1liZm8wVmxkbVd0LTcwdEkzZDQwZXQ2VmxtSkE?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirAFBVV95cUxQTWZwMDJaTHJkZ1hucERQRjhSOEtOVllrVVdMUm5sdVFsQndSSmdTNUhGOTNnYi1nWlc4c3FESVNEMTIwNVZ5dlFNMnhYZnVRUUlFV2ExVVZVZks5UFpzc0duLW1VTXFzQUlVZW04QW41ZXVmZy01TjduMVNPNUZLVHNELVpvUjNtZTNIc21RUmJXczc1RG02Mk1pUlVtenZyaDltQU1rQjVYcnBW0gGyAUFVX3lxTE5NaG1FMWdFWkRJVFFLaE1nM3NQeUJ3S2NVU2NrQWgyTlRXVEVueTQ3VzY3R0NBMjlIWG9iZ2xhc0YzSEhRaFpDNEx4bkY4VGxKRVRfTlR5LXlMLXRRdG90Qm5OMFNXOWdPRkxkQjd4LS1FS3FvOGotY3RJLUNOLXRuN2g4Sm1XRVRVdUU2TVNEV2dsbW83M1liZm8wVmxkbVd0LTcwdEkzZDQwZXQ2VmxtSkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
