@@ -1,0 +1,13 @@
+---
+title: "Atlético terá mudança para enfrentar o São Paulo pelo Brasileirão"
+description: "Atlético terá mudança para enfrentar o São Paulo pelo Brasileirão  jogada10.com.br"
+pubDate: "2026-03-17T21:38:27.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxPNVpXOEp5ZzJvUUxBNzlOem5xVWx2R252NEljNlpIdC1ZQjhKa0lCNVBlTmZiV2JnWHZKendqRE9ITkVKdFVFN3JuVGNxeHpqQjUybDF4UGxzemoxRUlBeEQ1LUcyOG9zcHMxc29nWVJXU05hQnc0YV9hZjhfbXMtb1d0NVV0a1l5RDJpLVF0emg0N1V60gGaAUFVX3lxTE1pQkZwYl9YM2ZWVTdmU3JuRGZTTjVFX0cxX0FTZUNtODdCVHZxZVE3V2pKZm5vRmljLWU2cjB2T0hheEQ3Ynh6d20yYmI2ejI1TnR1bWUzOGdkVDQzbjdpNkE2V2ctenF5VUFmSVN3cXVNYjZWaVdCZUpBbHhBSFBLTnN0Yl9UYlVkRjVXU2l3aFJhdFZXYks5Q1E?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxPNVpXOEp5ZzJvUUxBNzlOem5xVWx2R252NEljNlpIdC1ZQjhKa0lCNVBlTmZiV2JnWHZKendqRE9ITkVKdFVFN3JuVGNxeHpqQjUybDF4UGxzemoxRUlBeEQ1LUcyOG9zcHMxc29nWVJXU05hQnc0YV9hZjhfbXMtb1d0NVV0a1l5RDJpLVF0emg0N1V60gGaAUFVX3lxTE1pQkZwYl9YM2ZWVTdmU3JuRGZTTjVFX0cxX0FTZUNtODdCVHZxZVE3V2pKZm5vRmljLWU2cjB2T0hheEQ3Ynh6d20yYmI2ejI1TnR1bWUzOGdkVDQzbjdpNkE2V2ctenF5VUFmSVN3cXVNYjZWaVdCZUpBbHhBSFBLTnN0Yl9UYlVkRjVXU2l3aFJhdFZXYks5Q1E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

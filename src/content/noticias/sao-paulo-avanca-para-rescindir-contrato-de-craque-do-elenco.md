@@ -1,0 +1,13 @@
+---
+title: "São Paulo avança para rescindir contrato de craque do elenco"
+description: "São Paulo avança para rescindir contrato de craque do elenco  Esporte News Mundo"
+pubDate: "2026-03-17T22:15:54.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxNS0VNcUZhenY4YTBWc3BPQXFqZ1NLTVJrb1lGblF0NWxFS1NSblVEWnpaZGVOZmE4eFhXRUQ5bmlwVWdFalBhUEJIZUszSG50d2ZSMzdLTnpjZDk0OWw2dUJpZGc3aldzUWNXOW9IcXBBVzNBVTBNOHgwNXVOZDZrRkE3Xy00ejFHT0VWbjdydHBhbFQ1LWx2aNIBngFBVV95cUxQSVkwMjRsN3Jldmtad1NyRzNueUNwVEloU0k5Zzc5bFF0dFdlSG1BcjM3czJXVlZiTGJDMU9JdThLWXJDOUtNeTBmQU42Nl8yYkVuX1lCbXpOX3I5cHg2WW1fNXM2alg4Y2QxNHhTUmFRTFJpLWk3U0JHaDdveTROZ3prVkV4a01td1lpQUVTMFZrdng1cWlLc0xsLWh1QQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxNS0VNcUZhenY4YTBWc3BPQXFqZ1NLTVJrb1lGblF0NWxFS1NSblVEWnpaZGVOZmE4eFhXRUQ5bmlwVWdFalBhUEJIZUszSG50d2ZSMzdLTnpjZDk0OWw2dUJpZGc3aldzUWNXOW9IcXBBVzNBVTBNOHgwNXVOZDZrRkE3Xy00ejFHT0VWbjdydHBhbFQ1LWx2aNIBngFBVV95cUxQSVkwMjRsN3Jldmtad1NyRzNueUNwVEloU0k5Zzc5bFF0dFdlSG1BcjM3czJXVlZiTGJDMU9JdThLWXJDOUtNeTBmQU42Nl8yYkVuX1lCbXpOX3I5cHg2WW1fNXM2alg4Y2QxNHhTUmFRTFJpLWk3U0JHaDdveTROZ3prVkV4a01td1lpQUVTMFZrdng1cWlLc0xsLWh1QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
