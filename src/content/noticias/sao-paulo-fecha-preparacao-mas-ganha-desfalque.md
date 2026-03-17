@@ -1,0 +1,13 @@
+---
+title: "São Paulo fecha preparação, mas ganha desfalque"
+description: "São Paulo fecha preparação, mas ganha desfalque  Portal Hortolândia"
+pubDate: "2026-03-17T22:14:51.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE96WkdOTVJybjQ2cjEwejcwbFl2Vm05SFEzY3NRaF9pQ1BEalJVU0RqeGx0YTVfV2s0Q0hBa0NmSDRTMm1wcG8tMU9teVhOMEY0Qm5OM2k3UV92YzJaR2lNY1dBbkpHaXZRLXh4M0stbEZWQnQ4R185eW5n0gF6QVVfeXFMT3paR05NUnJuNDZyMTB6NzBsWXZWbTlIUTNjc1FoX2lDUERqUlVTRGp4bHRhNV9XazRDSEFrQ2ZINFMybXBwby0xT215WE4wRjRCbk4zaTdRX3ZjMlpHaU1jV0FuSkdpdlEteHgzSy1sRlZCdDhHXzl5bmc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE96WkdOTVJybjQ2cjEwejcwbFl2Vm05SFEzY3NRaF9pQ1BEalJVU0RqeGx0YTVfV2s0Q0hBa0NmSDRTMm1wcG8tMU9teVhOMEY0Qm5OM2k3UV92YzJaR2lNY1dBbkpHaXZRLXh4M0stbEZWQnQ4R185eW5n0gF6QVVfeXFMT3paR05NUnJuNDZyMTB6NzBsWXZWbTlIUTNjc1FoX2lDUERqUlVTRGp4bHRhNV9XazRDSEFrQ2ZINFMybXBwby0xT215WE4wRjRCbk4zaTdRX3ZjMlpHaU1jV0FuSkdpdlEteHgzSy1sRlZCdDhHXzl5bmc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

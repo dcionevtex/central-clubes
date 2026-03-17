@@ -1,0 +1,13 @@
+---
+title: "São Paulo confirma desfalque de titular para partida do Brasileirão"
+description: "São Paulo confirma desfalque de titular para partida do Brasileirão  Terra"
+pubDate: "2026-03-17T23:15:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi7gFBVV95cUxQYjJKaVM2bzZFdFpzMVBCX0V6SmtOQUFuejltdUtPV3RBbWR2T2VvaW05VmpHdFh0VFVxX3dudU96STlvYkZOYW4xWm05SkpxTXdyNnNCWGJkVG5KY0pKazVfc0tSZ09fQnBPZ3V6RHNJY2wya0cwb0dHbFRNYWRRenFuR29NWjJTQjFSVGFDVm9UUGw1ZlBOU3AxbGRXWXBjOThqd2Y0ZC05b05JbGxrVFJvSkV4LThFeHpWRGVLYUhEczlhMTVLNkY5WEtJRmNBX1BlZElvcVgyZXY3VERQUy1IXzVDLXVBbzdhZHhn?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi7gFBVV95cUxQYjJKaVM2bzZFdFpzMVBCX0V6SmtOQUFuejltdUtPV3RBbWR2T2VvaW05VmpHdFh0VFVxX3dudU96STlvYkZOYW4xWm05SkpxTXdyNnNCWGJkVG5KY0pKazVfc0tSZ09fQnBPZ3V6RHNJY2wya0cwb0dHbFRNYWRRenFuR29NWjJTQjFSVGFDVm9UUGw1ZlBOU3AxbGRXWXBjOThqd2Y0ZC05b05JbGxrVFJvSkV4LThFeHpWRGVLYUhEczlhMTVLNkY5WEtJRmNBX1BlZElvcVgyZXY3VERQUy1IXzVDLXVBbzdhZHhn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

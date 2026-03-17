@@ -1,0 +1,13 @@
+---
+title: "Atlético-MG x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "Atlético-MG x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações  Gazeta Esportiva"
+pubDate: "2026-03-17T23:03:43.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiiAFBVV95cUxQUHFoNWotSUZ5b1h0RzJxYkhhWjRsZFdObi1uZDh3bWZCLXlUYjU2RGZaRmRHSFFpNkVCTnBua1pBZ095eXZmTlNVdmk5SGdiRkhCaGp4TkJRdWJHUmRsSndIeFRPcDYzb3dxbmNVODJMR1Bac1o1b21xeXB1b20zSkw4eFd6NVN20gGOAUFVX3lxTFAtUnkwN3FES3RMX0oxVnRGMFN5dnN1NlNrUkZuSlBxZ214MjNoX3c4ZklYR2dadTU3Rnp0VVBIQUoxNWswZ05WcFBEZ0lBWURvUmxHSldjeVJGZVhKY1JRbHBjeExKcjJaVHhyMldVTGY0bWtrVDJQQ3pFME95X1ZLS1VtRlJONy1PSThxRUE?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAFBVV95cUxQUHFoNWotSUZ5b1h0RzJxYkhhWjRsZFdObi1uZDh3bWZCLXlUYjU2RGZaRmRHSFFpNkVCTnBua1pBZ095eXZmTlNVdmk5SGdiRkhCaGp4TkJRdWJHUmRsSndIeFRPcDYzb3dxbmNVODJMR1Bac1o1b21xeXB1b20zSkw4eFd6NVN20gGOAUFVX3lxTFAtUnkwN3FES3RMX0oxVnRGMFN5dnN1NlNrUkZuSlBxZ214MjNoX3c4ZklYR2dadTU3Rnp0VVBIQUoxNWswZ05WcFBEZ0lBWURvUmxHSldjeVJGZVhKY1JRbHBjeExKcjJaVHhyMldVTGY0bWtrVDJQQ3pFME95X1ZLS1VtRlJONy1PSThxRUE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
