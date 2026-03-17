@@ -1,0 +1,13 @@
+---
+title: "São Paulo tenta vencer Atlético-MG fora após dez anos e busca 1º triunfo na Arena MRV"
+description: "São Paulo tenta vencer Atlético-MG fora após dez anos e busca 1º triunfo na Arena MRV  Bolavip"
+pubDate: "2026-03-17T20:26:13.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxORFM3SmhhS2tJMWs2MkZCQnJabDJfTzhORzNKbVYwQlZ0RTFUSlE3SEVHTWhRYXJJZnJTWW16MWt1M05ONWN0Z1B4a0hEYnZQdXVBamQ4bUpYMmczSjZkUUhoZlRVTHQ2LVp6NjVENDQtdlZ6VGxHbmJHbTF0M0NsdXEzOUdmN0xUTXpTVlhmeHVzRmxBQl9fdTVHckROZ2h2VGxV0gGoAUFVX3lxTFBTcG1DcmFqc0FVZ21mU3pRbm5UQjRKTDhFZExwaFp2ZTVvMmFRbmZtczZJdXNDa0JqUHFoZDNqS0w2TklrS2lqSEx0MTZ3bXUtU3VUNlJ4SkUzeVJIYXN3X2p5Y05WdU9RZFpHOTlINkRpZU8xRHJTbkNqbXU4TEgxLWdIbDZLQmkyclljSEpuQVNEZnJLM2dRSTJhM2R2OGw2S09xLTl2dA?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxORFM3SmhhS2tJMWs2MkZCQnJabDJfTzhORzNKbVYwQlZ0RTFUSlE3SEVHTWhRYXJJZnJTWW16MWt1M05ONWN0Z1B4a0hEYnZQdXVBamQ4bUpYMmczSjZkUUhoZlRVTHQ2LVp6NjVENDQtdlZ6VGxHbmJHbTF0M0NsdXEzOUdmN0xUTXpTVlhmeHVzRmxBQl9fdTVHckROZ2h2VGxV0gGoAUFVX3lxTFBTcG1DcmFqc0FVZ21mU3pRbm5UQjRKTDhFZExwaFp2ZTVvMmFRbmZtczZJdXNDa0JqUHFoZDNqS0w2TklrS2lqSEx0MTZ3bXUtU3VUNlJ4SkUzeVJIYXN3X2p5Y05WdU9RZFpHOTlINkRpZU8xRHJTbkNqbXU4TEgxLWdIbDZLQmkyclljSEpuQVNEZnJLM2dRSTJhM2R2OGw2S09xLTl2dA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
