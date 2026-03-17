@@ -1,0 +1,13 @@
+---
+title: "Gabriel Sara declara que \"sonha\" em voltar ao São Paulo"
+description: "Gabriel Sara declara que \"sonha\" em voltar ao São Paulo  ABCD Jornal"
+pubDate: "2026-03-17T15:05:12.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxPS0l3SWN1NHJldkZNMkRmVVJCTUdaNlZjdWFNa0dRQnVEbW1MTVktZ1pGZ2ZBaGViQVlPeHNRY1BzZGRkMUJ3aVBOTjJXbl9oZDBuR3BGY2xPdkZCSFpmTTA4Q1VKUFMwWTRkS0dfa0IzUmw5dnNVM3lDbXVHTVQwR1lsMlJCQmhlckVJM2RWVEd3NWRsSWdxWFo1dS1rSHdSdFdaNEtBUXN2OUnSAbABQVVfeXFMT3NNQkNoX2VkWEJQS3hrRUNUbDV5ckoxaFVqbTN0a1JodmxWRjVqclFpaW01TFVka0VqT3JDMmlwTnNpa2IwYk9IcGEwVHVkVkRrY2tHU0FNcU1nOVZtakIxRTFWYzZ3dThfTFJXMjAyNmZVejg2VkFqVEFKeFhSMlpoaVgyUmI0NWhYUjBfZ1FaUXYxTG9rR01WTEpiZHdZNi1BUEUyd1ZJdjk2RXpqRWE?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPS0l3SWN1NHJldkZNMkRmVVJCTUdaNlZjdWFNa0dRQnVEbW1MTVktZ1pGZ2ZBaGViQVlPeHNRY1BzZGRkMUJ3aVBOTjJXbl9oZDBuR3BGY2xPdkZCSFpmTTA4Q1VKUFMwWTRkS0dfa0IzUmw5dnNVM3lDbXVHTVQwR1lsMlJCQmhlckVJM2RWVEd3NWRsSWdxWFo1dS1rSHdSdFdaNEtBUXN2OUnSAbABQVVfeXFMT3NNQkNoX2VkWEJQS3hrRUNUbDV5ckoxaFVqbTN0a1JodmxWRjVqclFpaW01TFVka0VqT3JDMmlwTnNpa2IwYk9IcGEwVHVkVkRrY2tHU0FNcU1nOVZtakIxRTFWYzZ3dThfTFJXMjAyNmZVejg2VkFqVEFKeFhSMlpoaVgyUmI0NWhYUjBfZ1FaUXYxTG9rR01WTEpiZHdZNi1BUEUyd1ZJdjk2RXpqRWE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo tenta quebrar tabu de 10 anos contra o Atlético-MG"
+description: "São Paulo tenta quebrar tabu de 10 anos contra o Atlético-MG  Portal Hortolândia"
+pubDate: "2026-03-17T17:28:02.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxPS2RlWk5Od0VBbE1tcUM0TThZVmZzWkU1ZXdhUnNvX1hrTUw5a3RINmpXN2RIN0N4d1ZsX3QyRmsydk5JWTJnYzg4NGZaUnNldGNYbEdORzRRRnRHQlROcFFkbmdGOWgxSXV1WVdqSkl3ZkJ3TDNvYjZablN6cDYxONIBgAFBVV95cUxPS2RlWk5Od0VBbE1tcUM0TThZVmZzWkU1ZXdhUnNvX1hrTUw5a3RINmpXN2RIN0N4d1ZsX3QyRmsydk5JWTJnYzg4NGZaUnNldGNYbEdORzRRRnRHQlROcFFkbmdGOWgxSXV1WVdqSkl3ZkJ3TDNvYjZablN6cDYxOA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxPS2RlWk5Od0VBbE1tcUM0TThZVmZzWkU1ZXdhUnNvX1hrTUw5a3RINmpXN2RIN0N4d1ZsX3QyRmsydk5JWTJnYzg4NGZaUnNldGNYbEdORzRRRnRHQlROcFFkbmdGOWgxSXV1WVdqSkl3ZkJ3TDNvYjZablN6cDYxONIBgAFBVV95cUxPS2RlWk5Od0VBbE1tcUM0TThZVmZzWkU1ZXdhUnNvX1hrTUw5a3RINmpXN2RIN0N4d1ZsX3QyRmsydk5JWTJnYzg4NGZaUnNldGNYbEdORzRRRnRHQlROcFFkbmdGOWgxSXV1WVdqSkl3ZkJ3TDNvYjZablN6cDYxOA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
