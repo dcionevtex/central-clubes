@@ -1,0 +1,13 @@
+---
+title: "Presidente do São Paulo defende volta das torcidas visitantes nos clássicos"
+description: "Presidente do São Paulo defende volta das torcidas visitantes nos clássicos  Rádio Itatiaia"
+pubDate: "2026-03-18T14:50:22.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_AFBVV95cUxPc2tvN1g4LUNRTFRiOC1IRWJsVHFHeHQ3aVJoek1GVHpwNDJkTlVVckNfZnlxYTNJWVNaQzNNWHNBRUFKR0VtSUF2RFY4WjFQNWltcHN2cUoweWN0dTJMVTFaUHROLVlSRi03MDhFZmp2MHFZLVdVSzA5TWljaWpXbDY4MEZiOE5sbXdNOEdxMm4zV2hxbHZVbktVaERxMndQMEV3eV8tYUt1UG8zVm52NXQwdXYzQ1NHMWVhbUc2eDBiT1F3dzYyRXhsWUVXMEpuRTdMX2F1cDBNcFR6RFRSeU0yWkVSMTVnMEduQTdncExMaVkxanZndDloblE?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_AFBVV95cUxPc2tvN1g4LUNRTFRiOC1IRWJsVHFHeHQ3aVJoek1GVHpwNDJkTlVVckNfZnlxYTNJWVNaQzNNWHNBRUFKR0VtSUF2RFY4WjFQNWltcHN2cUoweWN0dTJMVTFaUHROLVlSRi03MDhFZmp2MHFZLVdVSzA5TWljaWpXbDY4MEZiOE5sbXdNOEdxMm4zV2hxbHZVbktVaERxMndQMEV3eV8tYUt1UG8zVm52NXQwdXYzQ1NHMWVhbUc2eDBiT1F3dzYyRXhsWUVXMEpuRTdMX2F1cDBNcFR6RFRSeU0yWkVSMTVnMEduQTdncExMaVkxanZndDloblE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
