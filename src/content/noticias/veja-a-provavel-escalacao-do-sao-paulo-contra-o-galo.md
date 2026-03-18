@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo contra o Galo"
+description: "Veja a provável escalação do São Paulo contra o Galo  Portal Hortolândia"
+pubDate: "2026-03-18T00:04:12.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPN1BBdnpvTG5seVpOTE1TR193QlR6RHQ2dThJU3hWOGswZkpJbl9jVTBfazZDalNlODRYM0U0YXNrOFJZYkRTZUY4V3FNNkY5QkxMb2dxTWowSTYtT2VCaHFyMHl3TVJVZmxRRmphZVJobVRKVnFITXp4ODFtQ1ppb3NB0gGCAUFVX3lxTE83UEF2em9Mbmx5Wk5MTVNHX3dCVHpEdDZ1OElTeFY4azBmSkluX2NVMF9rNkNqU2U4NFgzRTRhc2s4UlliRFNlRjhXcU02RjlCTExvZ3FNajBJNi1PZUJocXIweXdNUlVmbFFGamFlUmhtVEpWcUhNeng4MW1DWmlvc0E?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPN1BBdnpvTG5seVpOTE1TR193QlR6RHQ2dThJU3hWOGswZkpJbl9jVTBfazZDalNlODRYM0U0YXNrOFJZYkRTZUY4V3FNNkY5QkxMb2dxTWowSTYtT2VCaHFyMHl3TVJVZmxRRmphZVJobVRKVnFITXp4ODFtQ1ppb3NB0gGCAUFVX3lxTE83UEF2em9Mbmx5Wk5MTVNHX3dCVHpEdDZ1OElTeFY4azBmSkluX2NVMF9rNkNqU2U4NFgzRTRhc2s4UlliRFNlRjhXcU02RjlCTExvZ3FNajBJNi1PZUJocXIweXdNUlVmbFFGamFlUmhtVEpWcUhNeng4MW1DWmlvc0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

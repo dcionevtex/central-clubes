@@ -1,0 +1,13 @@
+---
+title: "São Paulo e FGoal: Justiça suspende retirada da empresa do MorumBis em nova ação da fornecedora"
+description: "São Paulo e FGoal: Justiça suspende retirada da empresa do MorumBis em nova ação da fornecedora  Terra"
+pubDate: "2026-03-18T00:52:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMikgJBVV95cUxQdmF1bFVBMmNPNzVYeHpLV0RHVFlva2dIR0NQNU5UVjNLaXN3XzlDVlhZRFZLOThmNEtTM2xPT2hUZ1ZtWlN3bVluekxNSElhRlkxOV9icUw5bHJGNFVqcUpSQ3lwUlp0SmRuVkJuT0liQ01aVW5VVngzSnVneF9oWnBXZ3p4LUF1U3hxN3V3X1Y5WXhMbEpreEZVNkNPN3loOHc1LWM5WDQxZ0c2NUJGdm54b1FOX1dRTXlvZ1V4YzFyT0tBU3RhcFY1OW5JRGMweXRGMVQxd2gtdEJDWl9ZS3k0MlFmWmdWWHRPeW8tWjFORkxnc3BFZnhtelVQV0l1UHY5a0tSSDhQR0ZuSjBrOGNB?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgJBVV95cUxQdmF1bFVBMmNPNzVYeHpLV0RHVFlva2dIR0NQNU5UVjNLaXN3XzlDVlhZRFZLOThmNEtTM2xPT2hUZ1ZtWlN3bVluekxNSElhRlkxOV9icUw5bHJGNFVqcUpSQ3lwUlp0SmRuVkJuT0liQ01aVW5VVngzSnVneF9oWnBXZ3p4LUF1U3hxN3V3X1Y5WXhMbEpreEZVNkNPN3loOHc1LWM5WDQxZ0c2NUJGdm54b1FOX1dRTXlvZ1V4YzFyT0tBU3RhcFY1OW5JRGMweXRGMVQxd2gtdEJDWl9ZS3k0MlFmWmdWWHRPeW8tWjFORkxnc3BFZnhtelVQV0l1UHY5a0tSSDhQR0ZuSjBrOGNB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

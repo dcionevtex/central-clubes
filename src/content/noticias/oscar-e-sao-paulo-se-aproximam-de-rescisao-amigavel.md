@@ -1,0 +1,13 @@
+---
+title: "Oscar e São Paulo se aproximam de rescisão amigável"
+description: "Oscar e São Paulo se aproximam de rescisão amigável  Portal Hortolândia"
+pubDate: "2026-03-17T22:40:58.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMid0FVX3lxTFBqZDBEZWRmVGloNmJWTm16aThIS0xoRHJoaGROdDU0c3hXV0cySUZIbXJpUFZ2QnR6X3UwcFJMVFEyRGFmb1FfV2FXbFdzcWEyMDJYUndXcGwxZkprWmY2SGhfVzdZMnF2QWN4emg0dmtoakE0SF9R0gF3QVVfeXFMUGpkMERlZGZUaWg2YlZObXppOEhLTGhEcmhoZE50NTRzeFdXRzJJRkhtcmlQVnZCdHpfdTBwUkxUUTJEYWZvUV9XYVdsV3NxYTIwMlhSd1dwbDFmSmtaZjZIaF9XN1kycXZBY3h6aDR2a2hqQTRIX1E?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMid0FVX3lxTFBqZDBEZWRmVGloNmJWTm16aThIS0xoRHJoaGROdDU0c3hXV0cySUZIbXJpUFZ2QnR6X3UwcFJMVFEyRGFmb1FfV2FXbFdzcWEyMDJYUndXcGwxZkprWmY2SGhfVzdZMnF2QWN4emg0dmtoakE0SF9R0gF3QVVfeXFMUGpkMERlZGZUaWg2YlZObXppOEhLTGhEcmhoZE50NTRzeFdXRzJJRkhtcmlQVnZCdHpfdTBwUkxUUTJEYWZvUV9XYVdsV3NxYTIwMlhSd1dwbDFmSmtaZjZIaF9XN1kycXZBY3h6aDR2a2hqQTRIX1E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
