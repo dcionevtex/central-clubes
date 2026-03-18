@@ -1,0 +1,13 @@
+---
+title: "Atlético x São Paulo: Como assistir ao vivo e horário"
+description: "Atlético x São Paulo: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-03-18T19:00:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxNSXVudUt2bElJM1dfSTNqY2hUUUZISzFIdFpoTzlvU01NeWNrYkV3ZkVPSDZtQkJnZUg2dVVkSVIybmRQd21JTm1GVXNseVJBanRFWHJFUWlfazFHeXFTNVJidmpxQTY1WEVpYVBNUVN1MG9MTmlDZlZ4UUhpOTVQb1pn0gGCAUFVX3lxTE1JdW51S3ZsSUkzV19JM2pjaFRRRkhLMUh0WmhPOW9TTU15Y2tiRXdmRU9INm1CQmdlSDZ1VWRJUjJuZFB3bUlObUZVc2x5UkFqdEVYckVRaV9rMUd5cVM1UmJ2anFBNjVYRWlhUE1RU3Uwb0xOaUNmVnhRSGk5NVBvWmc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxNSXVudUt2bElJM1dfSTNqY2hUUUZISzFIdFpoTzlvU01NeWNrYkV3ZkVPSDZtQkJnZUg2dVVkSVIybmRQd21JTm1GVXNseVJBanRFWHJFUWlfazFHeXFTNVJidmpxQTY1WEVpYVBNUVN1MG9MTmlDZlZ4UUhpOTVQb1pn0gGCAUFVX3lxTE1JdW51S3ZsSUkzV19JM2pjaFRRRkhLMUh0WmhPOW9TTU15Y2tiRXdmRU9INm1CQmdlSDZ1VWRJUjJuZFB3bUlObUZVc2x5UkFqdEVYckVRaV9rMUd5cVM1UmJ2anFBNjVYRWlhUE1RU3Uwb0xOaUNmVnhRSGk5NVBvWmc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
