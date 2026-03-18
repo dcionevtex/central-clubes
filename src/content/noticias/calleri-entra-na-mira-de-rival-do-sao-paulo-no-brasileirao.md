@@ -1,0 +1,13 @@
+---
+title: "Calleri entra na mira de rival do São Paulo no Brasileirão"
+description: "Calleri entra na mira de rival do São Paulo no Brasileirão  Esporte News Mundo"
+pubDate: "2026-03-18T16:30:00.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxPVnhnbVhTQ0djZWpUZnBqVldrVXVRTzlxUnJRNW16UU9fLXUtQlNaVjY5TDJPRVAtSkZmb19VUEJ0Unl2cHRxX2pvODM5M0dOMm01MVhyM29PQkhrQlZzcFpsQVU2VU0wUTEwNzMtdG9YekVobWs4UXU5RG1BR1VuZGdCVDB1Z25yZ3VyV1pFTlVXTmhiU1HSAZsBQVVfeXFMTWdsTUJZamh6NjlSaThEU1BFNXd2TUlZREtUZ3NyNEhKM18xbnR0RElzdlhUTFQyOU52OTV2N0hjb1Axb1FyZURoOTZZcEVMbGNIRWp0UDhHSlpzaVBNRTRCbUtlY1pHbGpZRmpGVXBucG1mRkRycXpFb3JFMEFIX1NwWGFLZ0hmYmFFSTdqWkFQbWVyYVF5c2VNbjQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxPVnhnbVhTQ0djZWpUZnBqVldrVXVRTzlxUnJRNW16UU9fLXUtQlNaVjY5TDJPRVAtSkZmb19VUEJ0Unl2cHRxX2pvODM5M0dOMm01MVhyM29PQkhrQlZzcFpsQVU2VU0wUTEwNzMtdG9YekVobWs4UXU5RG1BR1VuZGdCVDB1Z25yZ3VyV1pFTlVXTmhiU1HSAZsBQVVfeXFMTWdsTUJZamh6NjlSaThEU1BFNXd2TUlZREtUZ3NyNEhKM18xbnR0RElzdlhUTFQyOU52OTV2N0hjb1Axb1FyZURoOTZZcEVMbGNIRWp0UDhHSlpzaVBNRTRCbUtlY1pHbGpZRmpGVXBucG1mRkRycXpFb3JFMEFIX1NwWGFLZ0hmYmFFSTdqWkFQbWVyYVF5c2VNbjQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
