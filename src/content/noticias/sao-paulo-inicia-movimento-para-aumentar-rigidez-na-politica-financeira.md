@@ -1,0 +1,13 @@
+---
+title: "São Paulo inicia movimento para aumentar rigidez na política financeira"
+description: "São Paulo inicia movimento para aumentar rigidez na política financeira  Rádio Itatiaia"
+pubDate: "2026-03-17T20:46:12.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9wFBVV95cUxQcVNxVVFuZm9jOUIzWlJraDNXUGpOYlJMaHNVOXZGSzVVSHBZQ2pjbXgtRnR4SWlIcHNmUWdkeUN2WmxQS3dFM3VRSHFmeWFEWjNLSDAtQ3I1WS16NXZ0YVBmeFFoNDM3UXNJR3pLYkNaZ2tQa1NuSXIyY1ZSbWtad1hDZkRUVVJ0YkdWS1hMU2h6N0o3OVB1YzZoZnF6cnZsckxkSkEwaTIxTmV4aXVjU1FSUlRZZmpqOFdRRnh6NUEzbjVPVFprRm5qakdYT2NTY2FSampja1gweU00TWtOZFIyNmc4OEU1VTdReFhjdGc3cFhXcEJr?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9wFBVV95cUxQcVNxVVFuZm9jOUIzWlJraDNXUGpOYlJMaHNVOXZGSzVVSHBZQ2pjbXgtRnR4SWlIcHNmUWdkeUN2WmxQS3dFM3VRSHFmeWFEWjNLSDAtQ3I1WS16NXZ0YVBmeFFoNDM3UXNJR3pLYkNaZ2tQa1NuSXIyY1ZSbWtad1hDZkRUVVJ0YkdWS1hMU2h6N0o3OVB1YzZoZnF6cnZsckxkSkEwaTIxTmV4aXVjU1FSUlRZZmpqOFdRRnh6NUEzbjVPVFprRm5qakdYT2NTY2FSampja1gweU00TWtOZFIyNmc4OEU1VTdReFhjdGc3cFhXcEJr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

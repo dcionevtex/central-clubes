@@ -1,0 +1,13 @@
+---
+title: "São Paulo e Oscar avançam por rescisão amigável"
+description: "São Paulo e Oscar avançam por rescisão amigável  jogada10.com.br"
+pubDate: "2026-03-18T01:51:26.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE1wSmN6YTZDWjZPcHp6bS0tUHdRODBZVm02Q001QjZjdlBNaWNPQ1kwbDR0SG1SVGQtY2JpTTN3NzM2aHl6TGtUX0p3RzJ5cV8wYldTblU1b2VON1JRMlNMSTJQaTQ0MFRXTGJ5OTloaTZ4MWtwMVpBNGJiXy3SAYIBQVVfeXFMUG8zVl9IaHNjS0ItdDJHeENDR1h6TF96cGFwc0JrOTNzeUFCMUV1S1RZb0Q0M0U2U3RiZl9UbDc1VDJhTVhxdnFVcW1WXzZtamdWTVYtNUdjbk1xVEhlR054RTVVVnJ4VGFSSzhwMTZ2NkJheTV3c3hnbGc4WkkyalUtZw?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE1wSmN6YTZDWjZPcHp6bS0tUHdRODBZVm02Q001QjZjdlBNaWNPQ1kwbDR0SG1SVGQtY2JpTTN3NzM2aHl6TGtUX0p3RzJ5cV8wYldTblU1b2VON1JRMlNMSTJQaTQ0MFRXTGJ5OTloaTZ4MWtwMVpBNGJiXy3SAYIBQVVfeXFMUG8zVl9IaHNjS0ItdDJHeENDR1h6TF96cGFwc0JrOTNzeUFCMUV1S1RZb0Q0M0U2U3RiZl9UbDc1VDJhTVhxdnFVcW1WXzZtamdWTVYtNUdjbk1xVEhlR054RTVVVnJ4VGFSSzhwMTZ2NkJheTV3c3hnbGc4WkkyalUtZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
