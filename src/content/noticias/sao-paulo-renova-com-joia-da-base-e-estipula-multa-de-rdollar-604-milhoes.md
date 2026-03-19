@@ -1,0 +1,13 @@
+---
+title: "São Paulo renova com joia da base e estipula multa de R$ 604 milhões"
+description: "São Paulo renova com joia da base e estipula multa de R$ 604 milhões  jogada10.com.br"
+pubDate: "2026-03-19T18:25:05.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxOUDNRYV9CRFMwSVVOVmRtVnEtZ0o2Q1hvZThhc0lhNFVaZWlTSE1UQnRFMVpDYlpYamtoazl6cFdzeDFHRHcxMmhoTmJtXzJBR1dMN1MzQlhRTmVsbmJhTUMzU09CcWxVbFVRZUhNUG1iWW5HV0R5NmthTC1MeXVycXFldHJYM0RsS1JudDhKNk00Tjc3eWtv0gGcAUFVX3lxTE9OX3Q4UjRUYzdyTHJLUDFHY3JXTEFFWDhtYWU4c3B4Z2JOdXRBSnB5TjVIVGQ5MjVZZ2xtN21OaDNQTnFCZXo1MDlpeWx1bnIwMnNiQlRBc3lyRE5oUTlQdjZYMklObHRiazd3Z0JXYjNuci1qLVRUN1BMVmtLbWp3MFZvVVlUaFBXYnZ1Y3RMNl9sNjE0dlVvZFYxMw?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxOUDNRYV9CRFMwSVVOVmRtVnEtZ0o2Q1hvZThhc0lhNFVaZWlTSE1UQnRFMVpDYlpYamtoazl6cFdzeDFHRHcxMmhoTmJtXzJBR1dMN1MzQlhRTmVsbmJhTUMzU09CcWxVbFVRZUhNUG1iWW5HV0R5NmthTC1MeXVycXFldHJYM0RsS1JudDhKNk00Tjc3eWtv0gGcAUFVX3lxTE9OX3Q4UjRUYzdyTHJLUDFHY3JXTEFFWDhtYWU4c3B4Z2JOdXRBSnB5TjVIVGQ5MjVZZ2xtN21OaDNQTnFCZXo1MDlpeWx1bnIwMnNiQlRBc3lyRE5oUTlQdjZYMklObHRiazd3Z0JXYjNuci1qLVRUN1BMVmtLbWp3MFZvVVlUaFBXYnZ1Y3RMNl9sNjE0dlVvZFYxMw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
