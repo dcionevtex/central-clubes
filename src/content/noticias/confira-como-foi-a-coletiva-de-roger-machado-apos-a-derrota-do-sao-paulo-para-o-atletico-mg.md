@@ -1,0 +1,13 @@
+---
+title: "CONFIRA COMO FOI A COLETIVA DE ROGER MACHADO APÓS A DERROTA DO SÃO PAULO PARA O ATLÉTICO-MG"
+description: "CONFIRA COMO FOI A COLETIVA DE ROGER MACHADO APÓS A DERROTA DO SÃO PAULO PARA O ATLÉTICO-MG  OneFootball"
+pubDate: "2026-03-19T03:34:58.000Z"
+source: "OneFootball"
+link: "https://news.google.com/rss/articles/CBMi1gFBVV95cUxNVUZxTjlfRmtLOXdwVlFDc3BlNTJvX0thQTZzTDRuMWt5TnR0eEd2cEtzOGk2YTNaQVFScWJCYWM3czRfQUtjNENIbmpUR2pDREpyWVpWQ055TS1Vb2Rpd3EzamVSM1hzb1FZWG1ya1lDQmNtLUdlVzdRTUxfdXVESWZ6bjVJemNmM0ZWVVgzUWNaNnR4NndwVUloRU9hQ3NQVkZ0RmJFbVR1MnY5eEdXMDd3Zk9ZM0VpZ3FpZEdNRlNxd0VYUHI3TEQwYktiRFlfUmdmR0Vn?oc=5"
+---
+
+### Fonte Original: OneFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi1gFBVV95cUxNVUZxTjlfRmtLOXdwVlFDc3BlNTJvX0thQTZzTDRuMWt5TnR0eEd2cEtzOGk2YTNaQVFScWJCYWM3czRfQUtjNENIbmpUR2pDREpyWVpWQ055TS1Vb2Rpd3EzamVSM1hzb1FZWG1ya1lDQmNtLUdlVzdRTUxfdXVESWZ6bjVJemNmM0ZWVVgzUWNaNnR4NndwVUloRU9hQ3NQVkZ0RmJFbVR1MnY5eEdXMDd3Zk9ZM0VpZ3FpZEdNRlNxd0VYUHI3TEQwYktiRFlfUmdmR0Vn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

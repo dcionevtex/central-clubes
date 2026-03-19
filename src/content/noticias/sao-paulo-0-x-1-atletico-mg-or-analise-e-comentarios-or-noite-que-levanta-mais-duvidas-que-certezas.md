@@ -1,0 +1,13 @@
+---
+title: "SÃO PAULO 0 x 1 ATLÉTICO-MG | ANÁLISE E COMENTÁRIOS | NOITE QUE LEVANTA MAIS DÚVIDAS QUE CERTEZAS"
+description: "SÃO PAULO 0 x 1 ATLÉTICO-MG | ANÁLISE E COMENTÁRIOS | NOITE QUE LEVANTA MAIS DÚVIDAS QUE CERTEZAS  Avante Meu Tricolor"
+pubDate: "2026-03-19T02:49:00.000Z"
+source: "Avante Meu Tricolor"
+link: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxOVm9YXzdSbHhURjJtUFJwazhidGJ3cURVT2g3SWlTUTFTdEVTOGNYUlE4a0tUX2N0LUh6TE45aWk0LUFvQk1EU1VkOUh2ZnVSTDdfTFM2N3Z6b3N6VGNvM216Rzk5ZExPVHRBXy1heml0X0dLUnlhN0ZPVGt4R0Z1cTFkVUJvS0FCanhnYzl0ZGp1dGNQY3ZNOEZjVDdKcDI5Z2pIX0YySnRmMjhKQ2k5ejdueWtMb0xmelY1MDUtZVNFTjR5UTZZbm1qWkJSejl6Y2ZyckdFcw?oc=5"
+---
+
+### Fonte Original: Avante Meu Tricolor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi1wFBVV95cUxOVm9YXzdSbHhURjJtUFJwazhidGJ3cURVT2g3SWlTUTFTdEVTOGNYUlE4a0tUX2N0LUh6TE45aWk0LUFvQk1EU1VkOUh2ZnVSTDdfTFM2N3Z6b3N6VGNvM216Rzk5ZExPVHRBXy1heml0X0dLUnlhN0ZPVGt4R0Z1cTFkVUJvS0FCanhnYzl0ZGp1dGNQY3ZNOEZjVDdKcDI5Z2pIX0YySnRmMjhKQ2k5ejdueWtMb0xmelY1MDUtZVNFTjR5UTZZbm1qWkJSejl6Y2ZyckdFcw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

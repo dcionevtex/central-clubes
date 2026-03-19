@@ -1,0 +1,13 @@
+---
+title: "Lucas Moura é levado de ambulância ao hospital e será baixa para clássico do São Paulo com Palmeiras"
+description: "Lucas Moura é levado de ambulância ao hospital e será baixa para clássico do São Paulo com Palmeiras  Estadão"
+pubDate: "2026-03-19T01:19:00.000Z"
+source: "Estadão"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxQMnBSRFFUbzVfdVYzNzgzYm45RnBfYy1LNHZkeWdzcFNUeF9YUlZGQW1nNlJKT0tSSERVMjhFNlowVFRIWkVZN3BQZ01pZ0xIU3FOalB1V3R6VnJRSnR3ZUsycVoyVk9nTlFTRU1hSU5BcHJvY3RtZEt6b2tSNDBTMDFsUXdRbkszUGFUZ0Q3dEFWZUNIZlh1dHlnNUzSAaIBQVVfeXFMTXpoWEx4bC0zMGNNakVjNjFkZzh1d1lMUm8zZk5UWVVPcEZaTkNqeGh6ZUZoQklfdEdYR2xobGRMaFNxRUxFejQtTm5JS3B4ajZCZXgydE5ybGx6bW5pOXIyUFRTelJ0NlprbXNlQVdmVkU2VTNaSkNVbnF2Y2dzMEVyNHc3b3pZaFgtTE8wUnJzdWtpMVp1V1JjYUpFeHRCR2l3?oc=5"
+---
+
+### Fonte Original: Estadão
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxQMnBSRFFUbzVfdVYzNzgzYm45RnBfYy1LNHZkeWdzcFNUeF9YUlZGQW1nNlJKT0tSSERVMjhFNlowVFRIWkVZN3BQZ01pZ0xIU3FOalB1V3R6VnJRSnR3ZUsycVoyVk9nTlFTRU1hSU5BcHJvY3RtZEt6b2tSNDBTMDFsUXdRbkszUGFUZ0Q3dEFWZUNIZlh1dHlnNUzSAaIBQVVfeXFMTXpoWEx4bC0zMGNNakVjNjFkZzh1d1lMUm8zZk5UWVVPcEZaTkNqeGh6ZUZoQklfdEdYR2xobGRMaFNxRUxFejQtTm5JS3B4ajZCZXgydE5ybGx6bW5pOXIyUFRTelJ0NlprbXNlQVdmVkU2VTNaSkNVbnF2Y2dzMEVyNHc3b3pZaFgtTE8wUnJzdWtpMVp1V1JjYUpFeHRCR2l3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
