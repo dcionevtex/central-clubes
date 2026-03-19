@@ -1,0 +1,13 @@
+---
+title: "Coletiva Roger Machado"
+description: "Coletiva Roger Machado  BOL"
+pubDate: "2026-03-19T02:44:37.000Z"
+source: "BOL"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTFB1bmNSZmVwLVAzdjVRNXJNOTNGM2c5ck5lX1N5WFVmM3BNSHBpdjBVYlZVQVlmOFYweS1hb3pSYWtBNUN0d3N0NVRHNE82N3lsOXhxNWIwZll0cTRod2E5MTlnaVNaeGFJY1JibFNTT01jbFFva3NxdTN1dUrSAYIBQVVfeXFMTVVhY2ZIbkxRNDVJYWtnaGdWUHhoZ2NHbjZ5X1BWbS05Xy1JcjZCNk4yaC1QWHlEOGdxTHNFVVlkUWNfVzYwRHVqdEpCMjRzTXJXNVlkRVpKTVkwZ1Rldi1ZemFCQ2ZUTGpHVHg2YW9Vc1QwNFQtdHRac1YtZUFvTGtnUQ?oc=5"
+---
+
+### Fonte Original: BOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTFB1bmNSZmVwLVAzdjVRNXJNOTNGM2c5ck5lX1N5WFVmM3BNSHBpdjBVYlZVQVlmOFYweS1hb3pSYWtBNUN0d3N0NVRHNE82N3lsOXhxNWIwZll0cTRod2E5MTlnaVNaeGFJY1JibFNTT01jbFFva3NxdTN1dUrSAYIBQVVfeXFMTVVhY2ZIbkxRNDVJYWtnaGdWUHhoZ2NHbjZ5X1BWbS05Xy1JcjZCNk4yaC1QWHlEOGdxTHNFVVlkUWNfVzYwRHVqdEpCMjRzTXJXNVlkRVpKTVkwZ1Rldi1ZemFCQ2ZUTGpHVHg2YW9Vc1QwNFQtdHRac1YtZUFvTGtnUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
