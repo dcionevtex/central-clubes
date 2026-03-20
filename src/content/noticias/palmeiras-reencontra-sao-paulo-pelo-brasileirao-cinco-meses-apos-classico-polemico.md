@@ -1,0 +1,13 @@
+---
+title: "Palmeiras reencontra São Paulo pelo Brasileirão cinco meses após clássico polêmico"
+description: "Palmeiras reencontra São Paulo pelo Brasileirão cinco meses após clássico polêmico  Terra"
+pubDate: "2026-03-19T21:42:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiggJBVV95cUxOdlR6ckVrOEVIUmVScjlZOUxvZ1ItRndvV3Nhemh6MHBpel8zQzQxNTFQZHMyUERSaVkzeENZWm4wVGk3U0NSZ1J1WGlwWWN4dmI3NnczSDhYSXlnUWhSQWV4RXJfR1ZacGVkOGpNNnUtYUdjS3FSUzRUSW9MMW5MUXZiaHpZbnhYd2JjM2RLYXByUkF1LUg3T2FYdmZxS2VIYWdaWWQ5LVd1VHMxUXIwVTRLYXhicHhqb21GX3dfbGhyMXlGMG9GTVgxOEhiTHp5Rm1ySmxyd1JiMUhFVWRmYUc2RXpoOXMwMmZ4TUVmY0dBNnk0bFpJNmFZZjB1YXl6bVE?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggJBVV95cUxOdlR6ckVrOEVIUmVScjlZOUxvZ1ItRndvV3Nhemh6MHBpel8zQzQxNTFQZHMyUERSaVkzeENZWm4wVGk3U0NSZ1J1WGlwWWN4dmI3NnczSDhYSXlnUWhSQWV4RXJfR1ZacGVkOGpNNnUtYUdjS3FSUzRUSW9MMW5MUXZiaHpZbnhYd2JjM2RLYXByUkF1LUg3T2FYdmZxS2VIYWdaWWQ5LVd1VHMxUXIwVTRLYXhicHhqb21GX3dfbGhyMXlGMG9GTVgxOEhiTHp5Rm1ySmxyd1JiMUhFVWRmYUc2RXpoOXMwMmZ4TUVmY0dBNnk0bFpJNmFZZjB1YXl6bVE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

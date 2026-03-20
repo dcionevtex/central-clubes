@@ -1,0 +1,13 @@
+---
+title: "Galo bate o São Paulo na Arena MRV; veja bastidores"
+description: "Galo bate o São Paulo na Arena MRV; veja bastidores  Gazeta Esportiva"
+pubDate: "2026-03-20T02:58:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxNNlJOODRZRXNXZUY4cEU0a2YwZ3hQUFRHMDcyODBXalZINTN1ZS1KVjJENkR5REVaeklCUzE1clN2dEZ6QnRXLXhYeVNMSXJqWDNXOFpEUUd5ai1qQ2lUU1FfZTlrQ0h1ekw5Rk9IMVREZldyWnRZa0F4c3IzNC1tTGxUMHgzWGttVEpxWnduR0lmMG5vRkhIbTBILUNERUVoZXhB0gGoAUFVX3lxTFBFdlFFaGl3XzlpbzI1NjM0S0ZKV21MOUdhOEwtcFdrcmZYcXVjemY0YnpGSjNzbjVsNFFIZEFVUGNEcXhvY0dYZ2hDaE15ZkNiSUZqRDB0bm1OOXJMcDJTRG5tZTZVQUZBWVhXMDI3S1NNckx6Njd2NmhUMmJnTVJBaEkxNVFHRTRPWXYtbFJyYkZEa3pjLXE5bXB4RUM4TnNlTGptSGV5bA?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxNNlJOODRZRXNXZUY4cEU0a2YwZ3hQUFRHMDcyODBXalZINTN1ZS1KVjJENkR5REVaeklCUzE1clN2dEZ6QnRXLXhYeVNMSXJqWDNXOFpEUUd5ai1qQ2lUU1FfZTlrQ0h1ekw5Rk9IMVREZldyWnRZa0F4c3IzNC1tTGxUMHgzWGttVEpxWnduR0lmMG5vRkhIbTBILUNERUVoZXhB0gGoAUFVX3lxTFBFdlFFaGl3XzlpbzI1NjM0S0ZKV21MOUdhOEwtcFdrcmZYcXVjemY0YnpGSjNzbjVsNFFIZEFVUGNEcXhvY0dYZ2hDaE15ZkNiSUZqRDB0bm1OOXJMcDJTRG5tZTZVQUZBWVhXMDI3S1NNckx6Njd2NmhUMmJnTVJBaEkxNVFHRTRPWXYtbFJyYkZEa3pjLXE5bXB4RUM4TnNlTGptSGV5bA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
