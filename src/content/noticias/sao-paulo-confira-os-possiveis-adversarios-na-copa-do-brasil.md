@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Confira os possíveis adversários na Copa do Brasil"
+description: "São Paulo: Confira os possíveis adversários na Copa do Brasil  Portal Hortolândia"
+pubDate: "2026-03-20T21:21:13.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNYnVZTkZ4cENKOGRmeWxlOFFMVXZJMzl2bGVyUW83TDFhWm9pRV9nWVRVVjdTUDBZNWR0V29MNUE3TXFMTTZCQ2xlNTBjRFBDMmVLNG12X3ZOWDUyQ1IwQWdCWkplekI5TFh1T2tHdnRzSWkxWTMtUFhXRVZGWTF2VNIBgAFBVV95cUxNYnVZTkZ4cENKOGRmeWxlOFFMVXZJMzl2bGVyUW83TDFhWm9pRV9nWVRVVjdTUDBZNWR0V29MNUE3TXFMTTZCQ2xlNTBjRFBDMmVLNG12X3ZOWDUyQ1IwQWdCWkplekI5TFh1T2tHdnRzSWkxWTMtUFhXRVZGWTF2VA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNYnVZTkZ4cENKOGRmeWxlOFFMVXZJMzl2bGVyUW83TDFhWm9pRV9nWVRVVjdTUDBZNWR0V29MNUE3TXFMTTZCQ2xlNTBjRFBDMmVLNG12X3ZOWDUyQ1IwQWdCWkplekI5TFh1T2tHdnRzSWkxWTMtUFhXRVZGWTF2VNIBgAFBVV95cUxNYnVZTkZ4cENKOGRmeWxlOFFMVXZJMzl2bGVyUW83TDFhWm9pRV9nWVRVVjdTUDBZNWR0V29MNUE3TXFMTTZCQ2xlNTBjRFBDMmVLNG12X3ZOWDUyQ1IwQWdCWkplekI5TFh1T2tHdnRzSWkxWTMtUFhXRVZGWTF2VA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

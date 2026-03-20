@@ -1,0 +1,13 @@
+---
+title: "Calleri no Flamengo? Presidente desconversa"
+description: "Calleri no Flamengo? Presidente desconversa  Portal Hortolândia"
+pubDate: "2026-03-20T21:59:12.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE93QWs0Q3pXUGxJNEZlYVVlR3Y1LTBEQ2RSLTY3T0VwdDNvbkV4Yld0VDV3MDNfQmFkT3oxc21US2xQSk44OFlvQXBGbk91VmEwaXZVeFBWeWM0a1BLNDNPT05PWk1aanJNaGRvOXhTZGhUeU5KODJvWVpncWFDSG_SAX9BVV95cUxPd0FrNEN6V1BsSTRGZWFVZUd2NS0wRENkUi02N09FcHQzb25FeGJXdFQ1dzAzX0JhZE96MXNtVEtsUEpOODhZb0FwRm5PdVZhMGl2VXhQVnljNGtQSzQzT09OT1pNWmpyTWhkbzl4U2RoVHlOSjgyb1laZ3FhQ0hv?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE93QWs0Q3pXUGxJNEZlYVVlR3Y1LTBEQ2RSLTY3T0VwdDNvbkV4Yld0VDV3MDNfQmFkT3oxc21US2xQSk44OFlvQXBGbk91VmEwaXZVeFBWeWM0a1BLNDNPT05PWk1aanJNaGRvOXhTZGhUeU5KODJvWVpncWFDSG_SAX9BVV95cUxPd0FrNEN6V1BsSTRGZWFVZUd2NS0wRENkUi02N09FcHQzb25FeGJXdFQ1dzAzX0JhZE96MXNtVEtsUEpOODhZb0FwRm5PdVZhMGl2VXhQVnljNGtQSzQzT09OT1pNWmpyTWhkbzl4U2RoVHlOSjgyb1laZ3FhQ0hv?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
