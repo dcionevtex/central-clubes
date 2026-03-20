@@ -1,0 +1,13 @@
+---
+title: "Premiação da Sul-Americana atrai o São Paulo"
+description: "Premiação da Sul-Americana atrai o São Paulo  Portal Hortolândia"
+pubDate: "2026-03-20T13:34:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE4taUIwOVFDZG9jR3QwaUZmY1pLamNGam9tYmRPUFJNRjNLV1BWa1c2VWo1OXNQM3oyWjRwaVVucDB2SDhTMGtHUGtWYUpfdGg3R1NDR1NpcjJhTV9zamtUcDc3eE1zeGhWT09wRG96eXF6YmRQOFZzamkxczPSAXxBVV95cUxOLWlCMDlRQ2RvY0d0MGlGZmNaS2pjRmpvbWJkT1BSTUYzS1dQVmtXNlVqNTlzUDN6Mlo0cGlVbnAwdkg4UzBrR1BrVmFKX3RoN0dTQ0dTaXIyYU1fc2prVHA3N3hNc3hoVk9PcERvenlxemJkUDhWc2ppMXMz?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE4taUIwOVFDZG9jR3QwaUZmY1pLamNGam9tYmRPUFJNRjNLV1BWa1c2VWo1OXNQM3oyWjRwaVVucDB2SDhTMGtHUGtWYUpfdGg3R1NDR1NpcjJhTV9zamtUcDc3eE1zeGhWT09wRG96eXF6YmRQOFZzamkxczPSAXxBVV95cUxOLWlCMDlRQ2RvY0d0MGlGZmNaS2pjRmpvbWJkT1BSTUYzS1dQVmtXNlVqNTlzUDN6Mlo0cGlVbnAwdkg4UzBrR1BrVmFKX3RoN0dTQ0dTaXIyYU1fc2prVHA3N3hNc3hoVk9PcERvenlxemJkUDhWc2ppMXMz?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
