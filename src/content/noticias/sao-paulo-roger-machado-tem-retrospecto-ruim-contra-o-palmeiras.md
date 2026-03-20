@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger Machado tem retrospecto ruim contra o Palmeiras"
+description: "São Paulo: Roger Machado tem retrospecto ruim contra o Palmeiras  Portal Hortolândia"
+pubDate: "2026-03-20T15:30:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE53SEEtd1M1QTZubzNyS3pBSW9wVnFWNHUzSmIyQXNkWS1FZEhfTVhYZW81X2dtcUFXdmxXWEJYSEVMbVNLeWJIZlZxd0w4ZGg2MHVIVFIxcFUwaW1lSEFqMHR3NGMyQVF4aVMxa0Z4d0RwOEhFRDZEb2ln0gF6QVVfeXFMTndIQS13UzVBNm5vM3JLekFJb3BWcVY0dTNKYjJBc2RZLUVkSF9NWFhlbzVfZ21xQVd2bFdYQlhIRUxtU0t5YkhmVnF3TDhkaDYwdUhUUjFwVTBpbWVIQWowdHc0YzJBUXhpUzFrRnh3RHA4SEVENkRvaWc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE53SEEtd1M1QTZubzNyS3pBSW9wVnFWNHUzSmIyQXNkWS1FZEhfTVhYZW81X2dtcUFXdmxXWEJYSEVMbVNLeWJIZlZxd0w4ZGg2MHVIVFIxcFUwaW1lSEFqMHR3NGMyQVF4aVMxa0Z4d0RwOEhFRDZEb2ln0gF6QVVfeXFMTndIQS13UzVBNm5vM3JLekFJb3BWcVY0dTNKYjJBc2RZLUVkSF9NWFhlbzVfZ21xQVd2bFdYQlhIRUxtU0t5YkhmVnF3TDhkaDYwdUhUUjFwVTBpbWVIQWowdHc0YzJBUXhpUzFrRnh3RHA4SEVENkRvaWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
