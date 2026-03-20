@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger Machado fecha preparação para Choque-Rei que vale liderança"
+description: "São Paulo: Roger Machado fecha preparação para Choque-Rei que vale liderança  Portal Hortolândia"
+pubDate: "2026-03-20T18:20:40.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE1vRk1LWVFETTJ2NGliZVZqS2JxUVJYUTVROTQ1T0FWU3RmbnpBZkZyQXpSRE9keG9SUEFKNWMwODR0LTU0d3FWRXM5OWJXRzNwS3Y2eU1uVEt5aTExeWQ2MGVJLVVVWVp4TzV0SE8zV05FaElHbW82bWYwaG1IUdIBfkFVX3lxTE1vRk1LWVFETTJ2NGliZVZqS2JxUVJYUTVROTQ1T0FWU3RmbnpBZkZyQXpSRE9keG9SUEFKNWMwODR0LTU0d3FWRXM5OWJXRzNwS3Y2eU1uVEt5aTExeWQ2MGVJLVVVWVp4TzV0SE8zV05FaElHbW82bWYwaG1IUQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE1vRk1LWVFETTJ2NGliZVZqS2JxUVJYUTVROTQ1T0FWU3RmbnpBZkZyQXpSRE9keG9SUEFKNWMwODR0LTU0d3FWRXM5OWJXRzNwS3Y2eU1uVEt5aTExeWQ2MGVJLVVVWVp4TzV0SE8zV05FaElHbW82bWYwaG1IUdIBfkFVX3lxTE1vRk1LWVFETTJ2NGliZVZqS2JxUVJYUTVROTQ1T0FWU3RmbnpBZkZyQXpSRE9keG9SUEFKNWMwODR0LTU0d3FWRXM5OWJXRzNwS3Y2eU1uVEt5aTExeWQ2MGVJLVVVWVp4TzV0SE8zV05FaElHbW82bWYwaG1IUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
