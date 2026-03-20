@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Palmeiras pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "São Paulo x Palmeiras pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações  UOL"
+pubDate: "2026-03-20T23:00:02.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMikgJBVV95cUxNbWs4M3VSUFhRMENoZ3J3dTAyWC1UZWNfajljSE9rbVFQZlRjRDV5VkUwWS1SZXNNUHRtTWIxQjVQTVVnYUprTVVYVTZkY2tScDhsa1ZGWXBXZ2xuMXVZczBhNE02TE5qUEpmMTh4eUVWTUtmVnVIRkFoTkcwLXhMeTRWbnRPMmlmOTYwcDR3Qmh4TXdTb3NOWkZxYVhwdjdQY1lUZDV5YXFLVS1id0tySGRUSUpuN2NVM2g1YndvWXE3bFZOVFBBXzU2WFRXaTFGLVo3YlRNZlIyb0IwVUd0a3phb2piaEtzWVptLVZZT09zTng4eDZxeWxWOVdZd1N4SVU2ZXVqX1YycVp2ZUxJMU9n?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgJBVV95cUxNbWs4M3VSUFhRMENoZ3J3dTAyWC1UZWNfajljSE9rbVFQZlRjRDV5VkUwWS1SZXNNUHRtTWIxQjVQTVVnYUprTVVYVTZkY2tScDhsa1ZGWXBXZ2xuMXVZczBhNE02TE5qUEpmMTh4eUVWTUtmVnVIRkFoTkcwLXhMeTRWbnRPMmlmOTYwcDR3Qmh4TXdTb3NOWkZxYVhwdjdQY1lUZDV5YXFLVS1id0tySGRUSUpuN2NVM2g1YndvWXE3bFZOVFBBXzU2WFRXaTFGLVo3YlRNZlIyb0IwVUd0a3phb2piaEtzWVptLVZZT09zTng4eDZxeWxWOVdZd1N4SVU2ZXVqX1YycVp2ZUxJMU9n?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
