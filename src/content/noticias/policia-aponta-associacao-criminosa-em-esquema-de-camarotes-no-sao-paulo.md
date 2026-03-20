@@ -1,0 +1,13 @@
+---
+title: "Polícia aponta associação criminosa em esquema de camarotes no São Paulo"
+description: "Polícia aponta associação criminosa em esquema de camarotes no São Paulo  Terra"
+pubDate: "2026-03-20T13:22:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi9AFBVV95cUxOMXMxbzZaQXRhbU4xTF9raWlRVUc1dFVEa3hfSGpvT3FkT2VDSXVNRnE3UFhNRzEwN29fYmNRV1p0dXNTY0pJQzFzS01yMGVudVAtYlpkMnZ4M1JoOEJGQWc3VW8tVzB2bDNUM25DWDlONnMzWkVCQTk2VHBCbUZob3hORzNwY0dhY1ZRdEg4My0ta2s0OU5jS091V0hudktWVi1zMFo0ZnhjQjhZRkx1amlsUDlxTk1aQnhoUEIyWUJXdFJWdVdSVTZYUHBMaFN2RzlpQ1BiMFp0bUVEZzNJbUdFSW9SYkJEUlVCTHVwS0YtSEFZ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9AFBVV95cUxOMXMxbzZaQXRhbU4xTF9raWlRVUc1dFVEa3hfSGpvT3FkT2VDSXVNRnE3UFhNRzEwN29fYmNRV1p0dXNTY0pJQzFzS01yMGVudVAtYlpkMnZ4M1JoOEJGQWc3VW8tVzB2bDNUM25DWDlONnMzWkVCQTk2VHBCbUZob3hORzNwY0dhY1ZRdEg4My0ta2s0OU5jS091V0hudktWVi1zMFo0ZnhjQjhZRkx1amlsUDlxTk1aQnhoUEIyWUJXdFJWdVdSVTZYUHBMaFN2RzlpQ1BiMFp0bUVEZzNJbUdFSW9SYkJEUlVCTHVwS0YtSEFZ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

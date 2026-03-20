@@ -1,0 +1,13 @@
+---
+title: "Quem vai apitar São Paulo x Palmeiras? CBF define árbitro enquanto clubes trocam farpas"
+description: "Quem vai apitar São Paulo x Palmeiras? CBF define árbitro enquanto clubes trocam farpas  Terra"
+pubDate: "2026-03-20T12:59:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMihAJBVV95cUxOX1gtMjh2cWVFaERQUWV2bXpENHM4X3dxMXB6TEtxZG9lcU4tMEFjTkx4TlVqbjNfQVFMY1F1LVVEd05MZ1E4NmVYX0JfYVBETTl2cXh5b21VLUtnNWF3cThYRlJMMnNXQjBUYjVpOGNTOFJ6eGZTYzNtaGo5d0VsUGhJMFBiWWh1VVJwQ2xxaGEycEstWnFYVjRzVnZ5MGEyU0VlMVhrcGJBZ3JFLV9rR3ZDTjkxQ29XUC1pRmVjUUdHVFBUcHFzbVhNVG9ZZ1dfYVM4RlFreFA1Y0hNU1hPYU16a1RhalBIcWZyODczSThVQXg0b0RmOC0zbTNpMlN3ZlhBWg?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAJBVV95cUxOX1gtMjh2cWVFaERQUWV2bXpENHM4X3dxMXB6TEtxZG9lcU4tMEFjTkx4TlVqbjNfQVFMY1F1LVVEd05MZ1E4NmVYX0JfYVBETTl2cXh5b21VLUtnNWF3cThYRlJMMnNXQjBUYjVpOGNTOFJ6eGZTYzNtaGo5d0VsUGhJMFBiWWh1VVJwQ2xxaGEycEstWnFYVjRzVnZ5MGEyU0VlMVhrcGJBZ3JFLV9rR3ZDTjkxQ29XUC1pRmVjUUdHVFBUcHFzbVhNVG9ZZ1dfYVM4RlFreFA1Y0hNU1hPYU16a1RhalBIcWZyODczSThVQXg0b0RmOC0zbTNpMlN3ZlhBWg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
