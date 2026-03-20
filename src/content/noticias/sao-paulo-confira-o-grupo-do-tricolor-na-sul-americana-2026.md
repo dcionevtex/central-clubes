@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Confira o grupo do Tricolor na Sul-Americana 2026"
+description: "São Paulo: Confira o grupo do Tricolor na Sul-Americana 2026  Portal Hortolândia"
+pubDate: "2026-03-19T23:46:02.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE1keldSSVpOdGkxUzlJUWtaS1RtUmlqa2dyandQM0VEUklZYjZVRHhKODhOQk9IOHRHYkhtYnpkNWsteTlMd0psSG9fQ1FTR296QklFY0VuOHRMZDZ5TkpIQWxmQkhrLXAwc1VUb3dqZjJ1blllS3JrZXRydG16VmPSAX9BVV95cUxNZHpXUklaTnRpMVM5SVFrWktUbVJpamtncmp3UDNFRFJJWWI2VUR4Sjg4TkJPSDh0R2JIbWJ6ZDVrLXk5THdKbEhvX0NRU0dvekJJRWNFbjh0TGQ2eU5KSEFsZkJIay1wMHNVVG93amYydW5ZZUtya2V0cnRtelZj?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE1keldSSVpOdGkxUzlJUWtaS1RtUmlqa2dyandQM0VEUklZYjZVRHhKODhOQk9IOHRHYkhtYnpkNWsteTlMd0psSG9fQ1FTR296QklFY0VuOHRMZDZ5TkpIQWxmQkhrLXAwc1VUb3dqZjJ1blllS3JrZXRydG16VmPSAX9BVV95cUxNZHpXUklaTnRpMVM5SVFrWktUbVJpamtncmp3UDNFRFJJWWI2VUR4Sjg4TkJPSDh0R2JIbWJ6ZDVrLXk5THdKbEhvX0NRU0dvekJJRWNFbjh0TGQ2eU5KSEFsZkJIay1wMHNVVG93amYydW5ZZUtya2V0cnRtelZj?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
