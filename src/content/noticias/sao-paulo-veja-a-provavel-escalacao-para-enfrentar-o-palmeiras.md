@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Veja a provável escalação para enfrentar o Palmeiras"
+description: "São Paulo: Veja a provável escalação para enfrentar o Palmeiras  Portal Hortolândia"
+pubDate: "2026-03-20T19:05:39.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTFBWNm1xdTJEN19NUmxnWFhwVjBfcXcwTTNzQ3hHOVY5azRhT3JGa0JicGhMNGNDS3lubXhuUnp3TVhWUExXVDd6bGlpNC1NMm0xczdxaHpyNXFLWjFIVnY0bG80ZURpX1JqaDV0Tms3WkNYVzQ0d0l3dlpsTU3SAXxBVV95cUxQVjZtcXUyRDdfTVJsZ1hYcFYwX3F3ME0zc0N4RzlWOWs0YU9yRmtCYnBoTDRjQ0t5bm14blJ6d01YVlBMV1Q3emxpaTQtTTJtMXM3cWh6cjVxS1oxSFZ2NGxvNGVEaV9Samg1dE5rN1pDWFc0NHdJd3ZabE1N?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTFBWNm1xdTJEN19NUmxnWFhwVjBfcXcwTTNzQ3hHOVY5azRhT3JGa0JicGhMNGNDS3lubXhuUnp3TVhWUExXVDd6bGlpNC1NMm0xczdxaHpyNXFLWjFIVnY0bG80ZURpX1JqaDV0Tms3WkNYVzQ0d0l3dlpsTU3SAXxBVV95cUxQVjZtcXUyRDdfTVJsZ1hYcFYwX3F3ME0zc0N4RzlWOWs0YU9yRmtCYnBoTDRjQ0t5bm14blJ6d01YVlBMV1Q3emxpaTQtTTJtMXM3cWh6cjVxS1oxSFZ2NGxvNGVEaV9Samg1dE5rN1pDWFc0NHdJd3ZabE1N?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
