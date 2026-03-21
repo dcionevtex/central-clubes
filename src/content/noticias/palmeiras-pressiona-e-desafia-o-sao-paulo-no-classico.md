@@ -1,0 +1,13 @@
+---
+title: "Palmeiras pressiona e desafia o São Paulo no clássico"
+description: "Palmeiras pressiona e desafia o São Paulo no clássico  Resultados"
+pubDate: "2026-03-21T06:00:00.000Z"
+source: "Resultados"
+link: "https://news.google.com/rss/articles/CBMi7gFBVV95cUxQNWVjbzhOQ3ZXUmFLUGJNLWZlZGJNYnNIUTczN25JNU42Q0oxcW55dmhRNmx2LUVoWFJpTlZIcHJ1OWM5OVNIbmhxajJDM3FfaVNzbngzZG1iUU8tMXc4WXlDRXNnaEVpQWZVSDdETTRYSFZ3NGhkSmppU0xBT21CR2N0blJBaGFJV19YR1RwWll5NDl5dnBIUlE1UGtycVBjU21nQVNwY21fczFwRk5kSjNJRTlIS0ZOSXhWekZ3YWE1MHVwb3F2R1ZhQlFoY21kMkxhenRhMUhHUFhldF8tZHFYSEQxVENSMDhmZk9B?oc=5"
+---
+
+### Fonte Original: Resultados
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi7gFBVV95cUxQNWVjbzhOQ3ZXUmFLUGJNLWZlZGJNYnNIUTczN25JNU42Q0oxcW55dmhRNmx2LUVoWFJpTlZIcHJ1OWM5OVNIbmhxajJDM3FfaVNzbngzZG1iUU8tMXc4WXlDRXNnaEVpQWZVSDdETTRYSFZ3NGhkSmppU0xBT21CR2N0blJBaGFJV19YR1RwWll5NDl5dnBIUlE1UGtycVBjU21nQVNwY21fczFwRk5kSjNJRTlIS0ZOSXhWekZ3YWE1MHVwb3F2R1ZhQlFoY21kMkxhenRhMUhHUFhldF8tZHFYSEQxVENSMDhmZk9B?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

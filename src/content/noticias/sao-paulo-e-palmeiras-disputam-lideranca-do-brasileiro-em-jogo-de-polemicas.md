@@ -1,0 +1,13 @@
+---
+title: "São Paulo e Palmeiras disputam liderança do Brasileiro em jogo de polêmicas"
+description: "São Paulo e Palmeiras disputam liderança do Brasileiro em jogo de polêmicas  Rádio Itatiaia"
+pubDate: "2026-03-21T10:00:33.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_AFBVV95cUxOS05nT1Y1MnlsYzJaT3hZbW11TlNyTGhfaFRfUWM4ZjJmZlZFcUZDcUxWTFhDcmhsVU9VRWFHVWZma3ZDNkNRZW1oRHNnd0IxUVl2SkI1enA5Q3ZHVlVWX2wzdzlhdF82ak1CVnhzbHVtanFOX2toRGt2RE0ya05xaldPT2tQeHI5cU93Q3hzVDFQQkJSOGF1aWpKTldYTkJickxTTTRnM19yZm1qZmR6MDF2R1EwSjJndWtJOS1tdC15YlpreW9ESkZGVmtfVklPanRtLUhGQm9KTXA5WnEtczJmTWZ5blp6a0lSTTdMN1A2b2tZQzFNdTktVDc?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_AFBVV95cUxOS05nT1Y1MnlsYzJaT3hZbW11TlNyTGhfaFRfUWM4ZjJmZlZFcUZDcUxWTFhDcmhsVU9VRWFHVWZma3ZDNkNRZW1oRHNnd0IxUVl2SkI1enA5Q3ZHVlVWX2wzdzlhdF82ak1CVnhzbHVtanFOX2toRGt2RE0ya05xaldPT2tQeHI5cU93Q3hzVDFQQkJSOGF1aWpKTldYTkJickxTTTRnM19yZm1qZmR6MDF2R1EwSjJndWtJOS1tdC15YlpreW9ESkZGVmtfVklPanRtLUhGQm9KTXA5WnEtczJmTWZ5blp6a0lSTTdMN1A2b2tZQzFNdTktVDc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
