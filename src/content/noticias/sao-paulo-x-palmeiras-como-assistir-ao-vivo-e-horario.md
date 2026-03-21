@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Palmeiras: Como assistir ao vivo e horário"
+description: "São Paulo x Palmeiras: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-03-21T21:00:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTFBXaDJZemlENmw2SXE0MnJHNlpDNUJqSWlLSzVnV1c4b2JLVHFYMjNiamtWZ3VRb2hfajVZS2c0TmtWOEZRZ2doZ0lYRFRMQkpSa1poc3RBSmxmYkdqZlFWQzdUV0tMMHhhY0Uzc3hfUl8ySTgzSXFNQkp5X2NZQdIBfkFVX3lxTFBXaDJZemlENmw2SXE0MnJHNlpDNUJqSWlLSzVnV1c4b2JLVHFYMjNiamtWZ3VRb2hfajVZS2c0TmtWOEZRZ2doZ0lYRFRMQkpSa1poc3RBSmxmYkdqZlFWQzdUV0tMMHhhY0Uzc3hfUl8ySTgzSXFNQkp5X2NZQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTFBXaDJZemlENmw2SXE0MnJHNlpDNUJqSWlLSzVnV1c4b2JLVHFYMjNiamtWZ3VRb2hfajVZS2c0TmtWOEZRZ2doZ0lYRFRMQkpSa1poc3RBSmxmYkdqZlFWQzdUV0tMMHhhY0Uzc3hfUl8ySTgzSXFNQkp5X2NZQdIBfkFVX3lxTFBXaDJZemlENmw2SXE0MnJHNlpDNUJqSWlLSzVnV1c4b2JLVHFYMjNiamtWZ3VRb2hfajVZS2c0TmtWOEZRZ2doZ0lYRFRMQkpSa1poc3RBSmxmYkdqZlFWQzdUV0tMMHhhY0Uzc3hfUl8ySTgzSXFNQkp5X2NZQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

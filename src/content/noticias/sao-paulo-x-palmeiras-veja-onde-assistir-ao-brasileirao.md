@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Palmeiras: Veja onde assistir ao Brasileirão"
+description: "São Paulo x Palmeiras: Veja onde assistir ao Brasileirão  InfoMoney"
+pubDate: "2026-03-21T20:00:00.000Z"
+source: "InfoMoney"
+link: "https://news.google.com/rss/articles/CBMijAFBVV95cUxOTUN3RU8wak9qV3lWSUl2SHBhb3FhcDhOejdSSkpSQlJtbVZIZzFLZVZXMDdETXRDVkJ2RFhZV2Z6UlJ3cjc5akNRdmcySGZRREtmQnRWRjNlTllYZVNGcUk3YVN3T1lpYjJoM0hxWFZabzNfak1ycUVFMnNua3B5bm5vSzJ5TWgzTG1aM9IBkgFBVV95cUxOX1B1U18yMHV3NWxEUEVKZTBRRU9wUUpYeGdaR1VvdEJkdGFTcmxSaTl1YUpWa1pqNHdSYjFNSG1xc2hyc0JIcUkwc214dFFSZFYzcm8wbzAwOFVxdFZnVlRITHVKeDE2YWMyZ2lGS05SaDR2VlY1RHhrODMwYmwyVDNnbHRZUFhiWC0zdHB3bG5Edw?oc=5"
+---
+
+### Fonte Original: InfoMoney
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAFBVV95cUxOTUN3RU8wak9qV3lWSUl2SHBhb3FhcDhOejdSSkpSQlJtbVZIZzFLZVZXMDdETXRDVkJ2RFhZV2Z6UlJ3cjc5akNRdmcySGZRREtmQnRWRjNlTllYZVNGcUk3YVN3T1lpYjJoM0hxWFZabzNfak1ycUVFMnNua3B5bm5vSzJ5TWgzTG1aM9IBkgFBVV95cUxOX1B1U18yMHV3NWxEUEVKZTBRRU9wUUpYeGdaR1VvdEJkdGFTcmxSaTl1YUpWa1pqNHdSYjFNSG1xc2hyc0JIcUkwc214dFFSZFYzcm8wbzAwOFVxdFZnVlRITHVKeDE2YWMyZ2lGS05SaDR2VlY1RHhrODMwYmwyVDNnbHRZUFhiWC0zdHB3bG5Edw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
