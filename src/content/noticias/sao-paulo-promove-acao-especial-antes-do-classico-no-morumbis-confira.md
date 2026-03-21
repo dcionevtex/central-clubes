@@ -1,0 +1,13 @@
+---
+title: "São Paulo promove ação especial antes do clássico no MorumBis; confira"
+description: "São Paulo promove ação especial antes do clássico no MorumBis; confira  Esporte News Mundo"
+pubDate: "2026-03-21T15:54:46.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxNNDdqaTdRTVlXWm5tNF81dUJ1TVRwMTFTb1RiUWZFVTBvTE5hUXREcHdoX2FQMkZMb05VTTl6TGhJWk9KZTk0aDNaQ0VaeDFjQnRYX0FUOFc1TFhoM3UyQlNPYm9rclRuaC1LYmttcWhoYmFvRkYtTnNOVVFCbFlOMjV4TV9GU2lBRngzWXRmbGFGZE1MdXYwSDZ6SThxQ2ZObWt4bdIBqgFBVV95cUxQQWlUWEphT1Z5TWxQSlo5azFRT0RMclpBdkdFQWI1cENaSWtpSFAtdVFTTUEwRWd5OUNXZ0hXZktRNUNWZDJSUnFxZXRMYURIeER3RnNsNTlzTERXcDBXV2hGVXduU3JtcFRpVzFhV1dpVWMxNmxTRUVIQTZyQ0pIZVJPa1pzY0hwSmV4U0t6cWxBczcweUNPZEM0ZndoVENyQTlFT1liU1d3UQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxNNDdqaTdRTVlXWm5tNF81dUJ1TVRwMTFTb1RiUWZFVTBvTE5hUXREcHdoX2FQMkZMb05VTTl6TGhJWk9KZTk0aDNaQ0VaeDFjQnRYX0FUOFc1TFhoM3UyQlNPYm9rclRuaC1LYmttcWhoYmFvRkYtTnNOVVFCbFlOMjV4TV9GU2lBRngzWXRmbGFGZE1MdXYwSDZ6SThxQ2ZObWt4bdIBqgFBVV95cUxQQWlUWEphT1Z5TWxQSlo5azFRT0RMclpBdkdFQWI1cENaSWtpSFAtdVFTTUEwRWd5OUNXZ0hXZktRNUNWZDJSUnFxZXRMYURIeER3RnNsNTlzTERXcDBXV2hGVXduU3JtcFRpVzFhV1dpVWMxNmxTRUVIQTZyQ0pIZVJPa1pzY0hwSmV4U0t6cWxBczcweUNPZEM0ZndoVENyQTlFT1liU1d3UQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
