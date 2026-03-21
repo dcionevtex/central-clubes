@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Palmeiras: onde assistir ao jogo de hoje, 21/03"
+description: "São Paulo x Palmeiras: onde assistir ao jogo de hoje, 21/03  iG Esportes"
+pubDate: "2026-03-21T03:00:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQY3dMclJ3LVh6ZlYtVzUwS2VTNUoxempGdGFXU29iUmRvVWx1UURCMWc4ZXBRLXB1Y3FFLVhHTnJhY2tqQnE1WFpOcW1LM212T19NTktIajE3NW1MR0VDa2d3YVZnMkhUU1I2UHB1Q2FlWjdNeUJPbEpDMVJqb012VEo5OHQzN1k3MzRMN2ltZzI2d2kyM1pSaWRXOGw2SDDSAaQBQVVfeXFMTWhnclhQc1dVQVp1aUVNTlBhR0pab3IzT21LTkJHOFhNRHMxVXJCS2tfRTlWRTEzZ1Fwb0JNdDFtM0ZKTlFoU3RuaUxQRFgxeWx6QnRCXzF0NzdYTWtZVjNHUlRHNi00VDExc3ZKbTJMaF9VVW52dUZyVi1NQktzUktTaUpoYktnaE96ZGJUbUc2eHk5UDR3b0U3LVdBLW9RNS02bUk?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQY3dMclJ3LVh6ZlYtVzUwS2VTNUoxempGdGFXU29iUmRvVWx1UURCMWc4ZXBRLXB1Y3FFLVhHTnJhY2tqQnE1WFpOcW1LM212T19NTktIajE3NW1MR0VDa2d3YVZnMkhUU1I2UHB1Q2FlWjdNeUJPbEpDMVJqb012VEo5OHQzN1k3MzRMN2ltZzI2d2kyM1pSaWRXOGw2SDDSAaQBQVVfeXFMTWhnclhQc1dVQVp1aUVNTlBhR0pab3IzT21LTkJHOFhNRHMxVXJCS2tfRTlWRTEzZ1Fwb0JNdDFtM0ZKTlFoU3RuaUxQRFgxeWx6QnRCXzF0NzdYTWtZVjNHUlRHNi00VDExc3ZKbTJMaF9VVW52dUZyVi1NQktzUktTaUpoYktnaE96ZGJUbUc2eHk5UDR3b0U3LVdBLW9RNS02bUk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
