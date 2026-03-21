@@ -1,0 +1,13 @@
+---
+title: "São Paulo luta para quebrar incômodo tabu que perdura desde 2023"
+description: "São Paulo luta para quebrar incômodo tabu que perdura desde 2023  Portal Hortolândia"
+pubDate: "2026-03-21T13:09:15.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE1wRTBaVzdyZWx0S3hIUHEyeHYwQUVCd29iZ0lxSXVOVEZ4bFM4QTR5cmx0OFZvYmRyR0RSallPX1BEejlKY21pOWttRHVvcEk1bVlnVHZ0cTh3MXB4TkhtT0RBTHNmUkZlM0hyNVptQVNVX2N4Wjk1TXZOX0XSAXxBVV95cUxNcEUwWlc3cmVsdEt4SFBxMnh2MEFFQndvYmdJcUl1TlRGeGxTOEE0eXJsdDhWb2JkckdEUmpZT19QRHo5SmNtaTlrbUR1b3BJNW1ZZ1R2dHE4dzFweE5IbU9EQUxzZlJGZTNIcjVabUFTVV9jeFo5NU12Tl9F?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE1wRTBaVzdyZWx0S3hIUHEyeHYwQUVCd29iZ0lxSXVOVEZ4bFM4QTR5cmx0OFZvYmRyR0RSallPX1BEejlKY21pOWttRHVvcEk1bVlnVHZ0cTh3MXB4TkhtT0RBTHNmUkZlM0hyNVptQVNVX2N4Wjk1TXZOX0XSAXxBVV95cUxNcEUwWlc3cmVsdEt4SFBxMnh2MEFFQndvYmdJcUl1TlRGeGxTOEE0eXJsdDhWb2JkckdEUmpZT19QRHo5SmNtaTlrbUR1b3BJNW1ZZ1R2dHE4dzFweE5IbU9EQUxzZlJGZTNIcjVabUFTVV9jeFo5NU12Tl9F?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
