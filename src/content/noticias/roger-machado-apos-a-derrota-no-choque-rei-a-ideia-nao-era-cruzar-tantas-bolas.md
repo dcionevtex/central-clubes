@@ -1,0 +1,13 @@
+---
+title: "Roger Machado após a derrota no Choque-Rei: “A ideia não era cruzar tantas bolas”"
+description: "Roger Machado após a derrota no Choque-Rei: “A ideia não era cruzar tantas bolas”  jogada10.com.br"
+pubDate: "2026-03-22T03:34:46.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxQMkNpMlk0RDJBMWdfSV9DcnJTWV9tMHhiWUd6VUdBNFpKZlh3ZHV3OW5HUFk5clNfYVpEbUtvcVdJNER6ekZudEJPdFVRb0dUZnlrQ3pHZWRuSTNHS3Y3VVVHOFFHdWU2TWFFeW0yS0VDaGZwRThvVTdkUURCRERWSVdXNlVTWkt3VW9oXzlqNTl3LXFabUZnWXREeW5RTUR0YWl0dXF30gGrAUFVX3lxTFAxSGJJTDdXY2xENlZXYTQ4NlNySWtuRVFmdEZUc3ZHQ0sxRzhUYTlHUHpxZEw1NXpNOVJpUlBMUjlfSUY4d2U0NEdqX3oyMTB4bWIySlU0OGtmUHFZZXY0c0VLLXZGdmR6d3B1Rzl0ZF9rRThReEdlcE93MFdJVkdPd0VmZFlxeHk2ZGFBNG45c0cyelJMdzZkZ0VHNVQ1VTZZcjE0OE9zRENzMA?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxQMkNpMlk0RDJBMWdfSV9DcnJTWV9tMHhiWUd6VUdBNFpKZlh3ZHV3OW5HUFk5clNfYVpEbUtvcVdJNER6ekZudEJPdFVRb0dUZnlrQ3pHZWRuSTNHS3Y3VVVHOFFHdWU2TWFFeW0yS0VDaGZwRThvVTdkUURCRERWSVdXNlVTWkt3VW9oXzlqNTl3LXFabUZnWXREeW5RTUR0YWl0dXF30gGrAUFVX3lxTFAxSGJJTDdXY2xENlZXYTQ4NlNySWtuRVFmdEZUc3ZHQ0sxRzhUYTlHUHpxZEw1NXpNOVJpUlBMUjlfSUY4d2U0NEdqX3oyMTB4bWIySlU0OGtmUHFZZXY0c0VLLXZGdmR6d3B1Rzl0ZF9rRThReEdlcE93MFdJVkdPd0VmZFlxeHk2ZGFBNG45c0cyelJMdzZkZ0VHNVQ1VTZZcjE0OE9zRENzMA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
