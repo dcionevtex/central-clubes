@@ -1,0 +1,13 @@
+---
+title: "São Paulo vai com Cauly, e Palmeiras tem volta de Piquerez no clássico; veja escalações"
+description: "São Paulo vai com Cauly, e Palmeiras tem volta de Piquerez no clássico; veja escalações  Gazeta Esportiva"
+pubDate: "2026-03-21T23:15:27.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMirgFBVV95cUxPTFctQjRLNllzTzJhNDY2MHZRSG45NE9JOVVJakZsYVMyMFFPeTRoXzNSdy1jSXZuRS1sTmFhRjc3QnVlVFZXb0pseGxkUVFLRXdTcUpDQllwMDdzbXlKbmtMNmU2d2NqYnBnMW9ibllKWmxoZ2xrbG9sM0FsZy1GcWtQdXFHY20xZEM0Q2ZyUWZUVE5ZQzdOb09Kc0V6S3JiSjMxTUdiUk5OMkNoblHSAa4BQVVfeXFMT0xXLUI0SzZZc08yYTQ2NjB2UUhuOTRPSTlVSWpGbGFTMjBRT3k0aF8zUnctY0l2bkUtbE5hYUY3N0J1ZVRWV29KbHhsZFFRS0V3U3FKQ0JZcDA3c215Sm5rTDZlNndjamJwZzFvYm5ZSlpsaGdsa2xvbDNBbGctRnFrUHVxR2NtMWRDNENmclFmVFROWUM3Tm9PSnNFektyYkozMU1HYlJOTjJDaG5R?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgFBVV95cUxPTFctQjRLNllzTzJhNDY2MHZRSG45NE9JOVVJakZsYVMyMFFPeTRoXzNSdy1jSXZuRS1sTmFhRjc3QnVlVFZXb0pseGxkUVFLRXdTcUpDQllwMDdzbXlKbmtMNmU2d2NqYnBnMW9ibllKWmxoZ2xrbG9sM0FsZy1GcWtQdXFHY20xZEM0Q2ZyUWZUVE5ZQzdOb09Kc0V6S3JiSjMxTUdiUk5OMkNoblHSAa4BQVVfeXFMT0xXLUI0SzZZc08yYTQ2NjB2UUhuOTRPSTlVSWpGbGFTMjBRT3k0aF8zUnctY0l2bkUtbE5hYUY3N0J1ZVRWV29KbHhsZFFRS0V3U3FKQ0JZcDA3c215Sm5rTDZlNndjamJwZzFvYm5ZSlpsaGdsa2xvbDNBbGctRnFrUHVxR2NtMWRDNENmclFmVFROWUM3Tm9PSnNFektyYkozMU1HYlJOTjJDaG5R?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

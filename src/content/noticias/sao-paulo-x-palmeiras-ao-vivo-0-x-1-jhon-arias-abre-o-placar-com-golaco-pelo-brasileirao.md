@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Palmeiras AO VIVO – 0 x 1 – Jhon Arias abre o placar com golaço pelo Brasileirão"
+description: "São Paulo x Palmeiras AO VIVO – 0 x 1 – Jhon Arias abre o placar com golaço pelo Brasileirão  Bolavip"
+pubDate: "2026-03-21T23:29:19.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMirwFBVV95cUxPZV9uc1c3LTB1Y01rR0lfWWF1ckpqNkF1ZldEOURuTGZnYUJBeGxaSU13TXNKZ1RHcHFXdVhBN0NWMGJQNlY2RWh1bThkQ2l0YzZobk80UlBMNXVyalMwN0pDMjlEX0tYbWV4eG1jdlBFSWhRbGdFaFgzY19YVnNYd2podXhLUURuLVRBMW1DQjJPOUphYnp0OElzX3VNMno5SHk1Qnh3a3pwTWV5Q3pv0gG0AUFVX3lxTE9SdEFSWm5iZzZhMWJrYWFsOXpFVnhGcjZSZFFsZ2RYQ3J5OV9ZOW1ZT09FU2xVZmtDS1FwUndfRlhkdktHMWpUai1pejlkTDZzZVJQaFg3S29ndG1KSk9FUXNfV0g2blJYel9URlVLNzk3eUhJN2NZU19BYTVCWHBSYlVXcW5tX0t2S212UW5iUHJfc25ZMnZaSmxTaFFXNE1QTkhPbUJkUUhUMlo2SHctWmNBUg?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirwFBVV95cUxPZV9uc1c3LTB1Y01rR0lfWWF1ckpqNkF1ZldEOURuTGZnYUJBeGxaSU13TXNKZ1RHcHFXdVhBN0NWMGJQNlY2RWh1bThkQ2l0YzZobk80UlBMNXVyalMwN0pDMjlEX0tYbWV4eG1jdlBFSWhRbGdFaFgzY19YVnNYd2podXhLUURuLVRBMW1DQjJPOUphYnp0OElzX3VNMno5SHk1Qnh3a3pwTWV5Q3pv0gG0AUFVX3lxTE9SdEFSWm5iZzZhMWJrYWFsOXpFVnhGcjZSZFFsZ2RYQ3J5OV9ZOW1ZT09FU2xVZmtDS1FwUndfRlhkdktHMWpUai1pejlkTDZzZVJQaFg3S29ndG1KSk9FUXNfV0g2blJYel9URlVLNzk3eUhJN2NZU19BYTVCWHBSYlVXcW5tX0t2S212UW5iUHJfc25ZMnZaSmxTaFFXNE1QTkhPbUJkUUhUMlo2SHctWmNBUg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
