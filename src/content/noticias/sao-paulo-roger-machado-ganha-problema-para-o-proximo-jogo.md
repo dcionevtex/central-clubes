@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger Machado ganha problema para o próximo jogo"
+description: "São Paulo: Roger Machado ganha problema para o próximo jogo  Portal Hortolândia"
+pubDate: "2026-03-22T17:01:59.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE0yTVJKM3FSZFdLUlRpVnpPVEg2dVd6X05Wd0F6UE9UVENMdnU4V0g0Y2F3aWN6MVREcHUyRjdEdFdnQWUzQm9adVJUeTM0ZGxMQzRPVklseWs4ZkNvNkNKVXJDSHlhaUJZS1llSGJfQjFqLWlZa3JtYU12YmzSAXxBVV95cUxNMk1SSjNxUmRXS1JUaVZ6T1RINnVXel9OVndBelBPVFRDTHZ1OFdINGNhd2ljejFURHB1MkY3RHRXZ0FlM0JvWnVSVHkzNGRsTEM0T1ZJbHlrOGZDbzZDSlVyQ0h5YWlCWUtZZUhiX0Ixai1pWWtybWFNdmJs?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE0yTVJKM3FSZFdLUlRpVnpPVEg2dVd6X05Wd0F6UE9UVENMdnU4V0g0Y2F3aWN6MVREcHUyRjdEdFdnQWUzQm9adVJUeTM0ZGxMQzRPVklseWs4ZkNvNkNKVXJDSHlhaUJZS1llSGJfQjFqLWlZa3JtYU12YmzSAXxBVV95cUxNMk1SSjNxUmRXS1JUaVZ6T1RINnVXel9OVndBelBPVFRDTHZ1OFdINGNhd2ljejFURHB1MkY3RHRXZ0FlM0JvWnVSVHkzNGRsTEM0T1ZJbHlrOGZDbzZDSlVyQ0h5YWlCWUtZZUhiX0Ixai1pWWtybWFNdmJs?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

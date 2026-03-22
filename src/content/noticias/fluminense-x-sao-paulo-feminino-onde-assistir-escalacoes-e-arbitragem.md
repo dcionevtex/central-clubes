@@ -1,0 +1,13 @@
+---
+title: "Fluminense x São Paulo (feminino): onde assistir, escalações e arbitragem"
+description: "Fluminense x São Paulo (feminino): onde assistir, escalações e arbitragem  jogada10.com.br"
+pubDate: "2026-03-22T16:42:24.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxQaDRmT1BlRlJjTzFlcDRSYnVDUktOTzJxWkQtbVdueEdNb0tiUjIyazVtZjJpNi1iV3VkdV9PSVVZbDJkMUpZX2RLMWRLRU5FVml6OUlibWFpYktDUnFTWms3S180cUNXN0Jhc0IwZnZUbGVsQnVzczBKd21oOEptZXBYbzNSSENNSzdoTlJrY0tZdC1kclNodHRR0gGfAUFVX3lxTE5ha0hTU1BHSTBOUXZzaXpnbVZ6WEJMci03TGpyeFF0V1kwdXR0MWlnckcwQ2dpaUtKcHJvMlB6WWtxZ3FMcmMxamJQSm1kWV9KbmhaMFh0SXB3dHNabFoxaXNKS0dBVy1oa25hTUItUzJGSlk2aUlycG5MUVFBalpPY2dmMkROUlNSZDJIalpOSXpIQkEwSk92WENVZ3lzRQ?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxQaDRmT1BlRlJjTzFlcDRSYnVDUktOTzJxWkQtbVdueEdNb0tiUjIyazVtZjJpNi1iV3VkdV9PSVVZbDJkMUpZX2RLMWRLRU5FVml6OUlibWFpYktDUnFTWms3S180cUNXN0Jhc0IwZnZUbGVsQnVzczBKd21oOEptZXBYbzNSSENNSzdoTlJrY0tZdC1kclNodHRR0gGfAUFVX3lxTE5ha0hTU1BHSTBOUXZzaXpnbVZ6WEJMci03TGpyeFF0V1kwdXR0MWlnckcwQ2dpaUtKcHJvMlB6WWtxZ3FMcmMxamJQSm1kWV9KbmhaMFh0SXB3dHNabFoxaXNKS0dBVy1oa25hTUItUzJGSlk2aUlycG5MUVFBalpPY2dmMkROUlNSZDJIalpOSXpIQkEwSk92WENVZ3lzRQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
