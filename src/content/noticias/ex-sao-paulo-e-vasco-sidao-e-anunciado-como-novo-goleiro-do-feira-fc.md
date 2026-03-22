@@ -1,0 +1,13 @@
+---
+title: "Ex-São Paulo e Vasco, Sidão é anunciado como novo goleiro do Feira FC"
+description: "Ex-São Paulo e Vasco, Sidão é anunciado como novo goleiro do Feira FC  Portal Revista Kdea 360"
+pubDate: "2026-03-21T19:14:00.000Z"
+source: "Portal Revista Kdea 360"
+link: "https://news.google.com/rss/articles/CBMisgFBVV95cUxNbEYzTUEyb19BclFCWkFpNF8welByeWRuN29mTVFOd2hscWhuQm5oVWZ2MGRHUFpwNVBvdjJucFB1ZTRoS3dpX0MxXzNxb0NUUWtJS0dERFJaT0t2Wk00WlYxUWN2bVFTZ2hTMnhmSU1aMDdsWjA1ZjBTbkxWR1c0THlCQU4xOVFzbDJmcnNsUHNjNVc5MEhQMHpTbzVHX0hoWFRFSHZwalUyc1lwQV9ORjNB0gG3AUFVX3lxTE5HWTJ6eXFWMHdDRXJBUE9HS0c1cHZtWXNWYXV1bm9tM2lJQzYzcm5udlBfTEwzZ19veE9fRXhEODFXUjVQZVlad2ZqU1otd1hlQ2lQVEM4S1FqQjJmYzBLVHFjc0thUk5ZTDMyODRXbEExRzdhYWlfSW9SY2g2d29mcUJRdXlldzFpa09ELXg5TkZfSXJmdWFrSW1oU244Q21jUWEwM0lpUlFKS0dnNFFVQzBXSV9OQQ?oc=5"
+---
+
+### Fonte Original: Portal Revista Kdea 360
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMisgFBVV95cUxNbEYzTUEyb19BclFCWkFpNF8welByeWRuN29mTVFOd2hscWhuQm5oVWZ2MGRHUFpwNVBvdjJucFB1ZTRoS3dpX0MxXzNxb0NUUWtJS0dERFJaT0t2Wk00WlYxUWN2bVFTZ2hTMnhmSU1aMDdsWjA1ZjBTbkxWR1c0THlCQU4xOVFzbDJmcnNsUHNjNVc5MEhQMHpTbzVHX0hoWFRFSHZwalUyc1lwQV9ORjNB0gG3AUFVX3lxTE5HWTJ6eXFWMHdDRXJBUE9HS0c1cHZtWXNWYXV1bm9tM2lJQzYzcm5udlBfTEwzZ19veE9fRXhEODFXUjVQZVlad2ZqU1otd1hlQ2lQVEM4S1FqQjJmYzBLVHFjc0thUk5ZTDMyODRXbEExRzdhYWlfSW9SY2g2d29mcUJRdXlldzFpa09ELXg5TkZfSXJmdWFrSW1oU244Q21jUWEwM0lpUlFKS0dnNFFVQzBXSV9OQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
