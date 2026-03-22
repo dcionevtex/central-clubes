@@ -1,0 +1,13 @@
+---
+title: "Após bom início, São Paulo de Roger já preocupa pela falta de agressividade"
+description: "Após bom início, São Paulo de Roger já preocupa pela falta de agressividade  UOL"
+pubDate: "2026-03-22T08:30:00.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMivAJBVV95cUxORm5lVHhPZmFZLUdLLXBiODdYbXkwNXZkUlFTYUh6Z05UbTBBdVVvazJiS2ZkZUE2d2Ywd2hXOUFfMG9PdWJPQ1FlR0FFTmxrX0I1SDRyYjZTSGdkYTBJSGlHaHZnQ1ltY01lNkJYZEdaaDZFb2V0MjhYYzFMdndhSTF1YzFZSTY1T0x2X3Rnd3JJSlREOGxkS0F1eGhHNktCU2tHSXZ2VDU2RnBNbl8yZ3ZWc0UxcGJvbFZsamh5UFF3RGNhQlowUFA2VGFtZlhGSThyWVhWMm90TVRUZW5MUC1Pcmh6TXhYYWNiZmZRT3UzTE5DY2w5OHRlZ0owVTZpVU5GcTVncEpDbmhSb2dOYkJhdjlOQmRIMFlNelVLanprMkhmeHpDeFBBaDA4Yk12SUZRWlNXblVhdkpB?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMivAJBVV95cUxORm5lVHhPZmFZLUdLLXBiODdYbXkwNXZkUlFTYUh6Z05UbTBBdVVvazJiS2ZkZUE2d2Ywd2hXOUFfMG9PdWJPQ1FlR0FFTmxrX0I1SDRyYjZTSGdkYTBJSGlHaHZnQ1ltY01lNkJYZEdaaDZFb2V0MjhYYzFMdndhSTF1YzFZSTY1T0x2X3Rnd3JJSlREOGxkS0F1eGhHNktCU2tHSXZ2VDU2RnBNbl8yZ3ZWc0UxcGJvbFZsamh5UFF3RGNhQlowUFA2VGFtZlhGSThyWVhWMm90TVRUZW5MUC1Pcmh6TXhYYWNiZmZRT3UzTE5DY2w5OHRlZ0owVTZpVU5GcTVncEpDbmhSb2dOYkJhdjlOQmRIMFlNelVLanprMkhmeHpDeFBBaDA4Yk12SUZRWlNXblVhdkpB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
