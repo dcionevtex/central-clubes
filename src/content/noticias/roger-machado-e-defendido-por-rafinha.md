@@ -1,0 +1,13 @@
+---
+title: "Roger Machado é defendido por Rafinha"
+description: "Roger Machado é defendido por Rafinha  Portal Hortolândia"
+pubDate: "2026-03-23T22:54:47.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE00cERZVG9tQUVFaGdQLXFxSkdJWXRlVG5QMTlnT1I5YnFpd3Y5UXgzbGlJdWJjbm1VbnoyMFNJbGxacnUtcm5uQXpTYUxNRkstQUk4ekNOV0ktbW4zQlE5UVFNSThpSk5JRnkwbFY5MGVkRU5pRUZyeEJHZjd0QdIBfkFVX3lxTE00cERZVG9tQUVFaGdQLXFxSkdJWXRlVG5QMTlnT1I5YnFpd3Y5UXgzbGlJdWJjbm1VbnoyMFNJbGxacnUtcm5uQXpTYUxNRkstQUk4ekNOV0ktbW4zQlE5UVFNSThpSk5JRnkwbFY5MGVkRU5pRUZyeEJHZjd0QQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE00cERZVG9tQUVFaGdQLXFxSkdJWXRlVG5QMTlnT1I5YnFpd3Y5UXgzbGlJdWJjbm1VbnoyMFNJbGxacnUtcm5uQXpTYUxNRkstQUk4ekNOV0ktbW4zQlE5UVFNSThpSk5JRnkwbFY5MGVkRU5pRUZyeEJHZjd0QdIBfkFVX3lxTE00cERZVG9tQUVFaGdQLXFxSkdJWXRlVG5QMTlnT1I5YnFpd3Y5UXgzbGlJdWJjbm1VbnoyMFNJbGxacnUtcm5uQXpTYUxNRkstQUk4ekNOV0ktbW4zQlE5UVFNSThpSk5JRnkwbFY5MGVkRU5pRUZyeEJHZjd0QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
