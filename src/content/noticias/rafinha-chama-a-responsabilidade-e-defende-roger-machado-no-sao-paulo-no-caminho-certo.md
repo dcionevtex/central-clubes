@@ -1,0 +1,13 @@
+---
+title: "Rafinha chama a responsabilidade e defende Roger Machado no São Paulo: “No caminho certo”"
+description: "Rafinha chama a responsabilidade e defende Roger Machado no São Paulo: “No caminho certo”  Bolavip"
+pubDate: "2026-03-23T19:55:26.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxOVXQzZm0wNjMyV0hUbmNWQ0oyQ0ZYaElwZzNHVEs1el9CQ3RPdF9LcGtPN0RVVUQ0UHJRaDU4d2VtdTNWeGhBVkM2cHAxcVhZaTM1WDFrNVBVdk5TRmYzVV94RFNpQ25GVDVSdmppQ1czR0dhUThwQ3JUVE54OEt4Q1FBOU9lVHJReG5oZTExR0NMUzBoeE1wUXBfZjJ6Tmc2eWfSAacBQVVfeXFMUGtVRFY0Z1VvV3EyTE5xS2ZnQzRKc0FkMEpRbVgzZHZsY25iRmNEY2wzUXJlbVVLMUpwVWg2TVdPODZkMzZDb0FjZnJOb196ZGtPTVM1d0FwNUlHR2hoRnYxLUVJdnZtQ0huR3U4bkg3bjNKSUJwaEpWYUF0TDNKQmxlYjI4T0dYMTE1YUprR2J2aHZsVVhUTUwyTkd4NXE2dUlUb3h0M1U?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxOVXQzZm0wNjMyV0hUbmNWQ0oyQ0ZYaElwZzNHVEs1el9CQ3RPdF9LcGtPN0RVVUQ0UHJRaDU4d2VtdTNWeGhBVkM2cHAxcVhZaTM1WDFrNVBVdk5TRmYzVV94RFNpQ25GVDVSdmppQ1czR0dhUThwQ3JUVE54OEt4Q1FBOU9lVHJReG5oZTExR0NMUzBoeE1wUXBfZjJ6Tmc2eWfSAacBQVVfeXFMUGtVRFY0Z1VvV3EyTE5xS2ZnQzRKc0FkMEpRbVgzZHZsY25iRmNEY2wzUXJlbVVLMUpwVWg2TVdPODZkMzZDb0FjZnJOb196ZGtPTVM1d0FwNUlHR2hoRnYxLUVJdnZtQ0huR3U4bkg3bjNKSUJwaEpWYUF0TDNKQmxlYjI4T0dYMTE1YUprR2J2aHZsVVhUTUwyTkd4NXE2dUlUb3h0M1U?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
