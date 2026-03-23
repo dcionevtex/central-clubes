@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger Machado prepara semana de treinamentos cheia"
+description: "São Paulo: Roger Machado prepara semana de treinamentos cheia  Portal Hortolândia"
+pubDate: "2026-03-23T13:49:57.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNakpqTHBBLXp4NDNFZGhjalFrMlJMdG1qcjBiYkg4RWx5XzhsWGtFZkQzVGFTTjlPRjJwSEphNzVPaFBZd0QwS255SUFEQUJIbWJnd3ZYRjlLbDRLaklzM0l3V2NESlJjV2RDVTJRYU51aDFWbk5sYWQyTWpHQjNYatIBgAFBVV95cUxNakpqTHBBLXp4NDNFZGhjalFrMlJMdG1qcjBiYkg4RWx5XzhsWGtFZkQzVGFTTjlPRjJwSEphNzVPaFBZd0QwS255SUFEQUJIbWJnd3ZYRjlLbDRLaklzM0l3V2NESlJjV2RDVTJRYU51aDFWbk5sYWQyTWpHQjNYag?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNakpqTHBBLXp4NDNFZGhjalFrMlJMdG1qcjBiYkg4RWx5XzhsWGtFZkQzVGFTTjlPRjJwSEphNzVPaFBZd0QwS255SUFEQUJIbWJnd3ZYRjlLbDRLaklzM0l3V2NESlJjV2RDVTJRYU51aDFWbk5sYWQyTWpHQjNYatIBgAFBVV95cUxNakpqTHBBLXp4NDNFZGhjalFrMlJMdG1qcjBiYkg4RWx5XzhsWGtFZkQzVGFTTjlPRjJwSEphNzVPaFBZd0QwS255SUFEQUJIbWJnd3ZYRjlLbDRLaklzM0l3V2NESlJjV2RDVTJRYU51aDFWbk5sYWQyTWpHQjNYag?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
