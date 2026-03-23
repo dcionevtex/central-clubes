@@ -1,0 +1,13 @@
+---
+title: "Internacional tem desfalques e projeta time contra o São Paulo"
+description: "Internacional tem desfalques e projeta time contra o São Paulo  Terra"
+pubDate: "2026-03-23T18:51:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi9wFBVV95cUxObGtHaU81TUhfdkh0Q1ZRZVp6OXBoRVNDRnZRd1hMeDJseWh0Q3Q4cWhjcGIyZ2k1Ull0dWQwYWlzLU51ai0wN1I2VTVmc09hd24wdFZEdlZNbzMtQXE3VVJrcXFPemhZbHVSeTZqc014d21PZHNRNjV2Y01qVVBMdVNSd3VqcmhWdVdlWXZLY2tBM1NHUVdkdWVGVVBVcENxTUl4R0xLcjRvRXgtNVFHN0FaOUwxb1J5cW45M3BEbWdoTlZJcGR2RUtUS01TYnltZG5wY0RGNDhsZVhKT1dZZ2hJZWxWZGdQX3hOeHN3UVlVazJzRktz?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9wFBVV95cUxObGtHaU81TUhfdkh0Q1ZRZVp6OXBoRVNDRnZRd1hMeDJseWh0Q3Q4cWhjcGIyZ2k1Ull0dWQwYWlzLU51ai0wN1I2VTVmc09hd24wdFZEdlZNbzMtQXE3VVJrcXFPemhZbHVSeTZqc014d21PZHNRNjV2Y01qVVBMdVNSd3VqcmhWdVdlWXZLY2tBM1NHUVdkdWVGVVBVcENxTUl4R0xLcjRvRXgtNVFHN0FaOUwxb1J5cW45M3BEbWdoTlZJcGR2RUtUS01TYnltZG5wY0RGNDhsZVhKT1dZZ2hJZWxWZGdQX3hOeHN3UVlVazJzRktz?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
