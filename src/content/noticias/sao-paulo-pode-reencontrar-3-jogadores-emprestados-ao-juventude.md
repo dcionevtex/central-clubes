@@ -1,0 +1,13 @@
+---
+title: "São Paulo pode reencontrar 3 jogadores emprestados ao Juventude"
+description: "São Paulo pode reencontrar 3 jogadores emprestados ao Juventude  Portal Hortolândia"
+pubDate: "2026-03-23T20:20:03.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTFB1bnQybjVLN044Y1dwbktrM1hFR1RPU203NGVvaEd3bUR5bVZQamsxeHZqTFRKR1o2SHpuMDZ0MUgwV3JMM0xSRWZkcThBWnU4TVNkS0xNemVTczlLTi1sZUNFbmFnQktQeHVCdkRrRjBpbGpiV25lZ2VmZU95QTDSAX9BVV95cUxQdW50Mm41SzdOOGNXcG5LazNYRUdUT1NtNzRlb2hHd21EeW1WUGprMXh2akxUSkdaNkh6bjA2dDFIMFdyTDNMUkVmZHE4QVp1OE1TZEtMTXplU3M5S04tbGVDRW5hZ0JLUHh1QnZEa0YwaWxqYlduZWdlZmVPeUEw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTFB1bnQybjVLN044Y1dwbktrM1hFR1RPU203NGVvaEd3bUR5bVZQamsxeHZqTFRKR1o2SHpuMDZ0MUgwV3JMM0xSRWZkcThBWnU4TVNkS0xNemVTczlLTi1sZUNFbmFnQktQeHVCdkRrRjBpbGpiV25lZ2VmZU95QTDSAX9BVV95cUxQdW50Mm41SzdOOGNXcG5LazNYRUdUT1NtNzRlb2hHd21EeW1WUGprMXh2akxUSkdaNkh6bjA2dDFIMFdyTDNMUkVmZHE4QVp1OE1TZEtMTXplU3M5S04tbGVDRW5hZ0JLUHh1QnZEa0YwaWxqYlduZWdlZmVPeUEw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

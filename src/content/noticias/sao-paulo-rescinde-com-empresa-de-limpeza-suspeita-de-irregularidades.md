@@ -1,0 +1,13 @@
+---
+title: "São Paulo rescinde com empresa de limpeza suspeita de irregularidades"
+description: "São Paulo rescinde com empresa de limpeza suspeita de irregularidades  Rádio Itatiaia"
+pubDate: "2026-03-23T23:54:58.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9AFBVV95cUxNTzRqYlVYQ1ptY0lsdHo1N0hFLVpDSFd4enhjT0RPSlBxYzkxWTlHRmpLM1hqemJueTVnMTk2ZWlnNHVQellDMnk1V3cxekVPYUwtc21PRUR2cFp0VV8yY2l2LXZGVEpaczNseUxlcmR2VVY5QmJCOHlhc1VfdnpwanJKM3pwbUhaNmFMZ2E3c3lyTHNLYmJEWlVoUTNNUGg3anRpVjhKSVVWaHRrUlhweVdSSEJDSmtrdjN1T1Vxeno2ZWo4OWRETWxkQy1wNk5KcmEzLXZJTTFqVHlSb3I4bDZneHlrYkRDWTRHS0oyWjRyRm1v?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9AFBVV95cUxNTzRqYlVYQ1ptY0lsdHo1N0hFLVpDSFd4enhjT0RPSlBxYzkxWTlHRmpLM1hqemJueTVnMTk2ZWlnNHVQellDMnk1V3cxekVPYUwtc21PRUR2cFp0VV8yY2l2LXZGVEpaczNseUxlcmR2VVY5QmJCOHlhc1VfdnpwanJKM3pwbUhaNmFMZ2E3c3lyTHNLYmJEWlVoUTNNUGg3anRpVjhKSVVWaHRrUlhweVdSSEJDSmtrdjN1T1Vxeno2ZWo4OWRETWxkQy1wNk5KcmEzLXZJTTFqVHlSb3I4bDZneHlrYkRDWTRHS0oyWjRyRm1v?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
