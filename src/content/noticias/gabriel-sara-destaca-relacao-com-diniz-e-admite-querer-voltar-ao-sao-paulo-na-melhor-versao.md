@@ -1,0 +1,13 @@
+---
+title: "Gabriel Sara destaca relação com Diniz e admite querer voltar ao São Paulo “na melhor versão”"
+description: "Gabriel Sara destaca relação com Diniz e admite querer voltar ao São Paulo “na melhor versão”  Gazeta Esportiva"
+pubDate: "2026-03-24T22:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxQeFh3TmU3YXFmcmRYTG8wOVl2eTZiOWFqUTAwOTRsdDVWb2JFRndqZTJvVDlIdFg0LTd1Skt6d1R6TGttZy1iNGlMZkF2RzhxMmlGR25PVmJBblg1blVQVjZwNTZJdkJkeTVhc2NCcnk5S2Fad2FLZU11OHlrZ0JubzhCMEJ0N0IzVDZ4TXNaSUZQWUJvclIzQ3NKZmd6Y29nb0g00gGoAUFVX3lxTE1vc2hjLTBha1lHcVlvcGZhR2VTSzBrbDZnLU1ma2o2Sko1bTRWSUpXRTlXUGdHNmRZSHNTX2gycHJUblNTMVNDdzJYMHRvUnZGdkZxVEFTTUY4akd1ekZWV2FFNW5pNTBWUUVLYTlRSUtpMmRYLWhlcFg4Z3JMUDRObTQ2UWdzcksyalFCTXlTR3RDRlhIVGFIMGgxN21nZ3hTd3ltdWFxSw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxQeFh3TmU3YXFmcmRYTG8wOVl2eTZiOWFqUTAwOTRsdDVWb2JFRndqZTJvVDlIdFg0LTd1Skt6d1R6TGttZy1iNGlMZkF2RzhxMmlGR25PVmJBblg1blVQVjZwNTZJdkJkeTVhc2NCcnk5S2Fad2FLZU11OHlrZ0JubzhCMEJ0N0IzVDZ4TXNaSUZQWUJvclIzQ3NKZmd6Y29nb0g00gGoAUFVX3lxTE1vc2hjLTBha1lHcVlvcGZhR2VTSzBrbDZnLU1ma2o2Sko1bTRWSUpXRTlXUGdHNmRZSHNTX2gycHJUblNTMVNDdzJYMHRvUnZGdkZxVEFTTUY4akd1ekZWV2FFNW5pNTBWUUVLYTlRSUtpMmRYLWhlcFg4Z3JMUDRObTQ2UWdzcksyalFCTXlTR3RDRlhIVGFIMGgxN21nZ3hTd3ltdWFxSw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
