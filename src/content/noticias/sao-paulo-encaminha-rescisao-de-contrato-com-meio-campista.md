@@ -1,0 +1,13 @@
+---
+title: "São Paulo encaminha rescisão de contrato com meio-campista"
+description: "São Paulo encaminha rescisão de contrato com meio-campista  Esporte News Mundo"
+pubDate: "2026-03-24T19:43:39.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxOWkJVaG45NjItUWxFbjlRSmlFUkJ3MHFETWdENS1oT2F0d0pQc01IcTlsbXlMYlNONExZdU85eWlJVGdPWlRCRWllSFBYWWxoNlFndTNueGRCR3FKb2phUFJPVjVMT0lDei1UNlNrLS1nZ1N1eWEwTTFJcGxqbVZhbEQwaUVyV2ZyYnItTFFtd2ZVd2tER2fSAZsBQVVfeXFMUFZHZEpZMmFUOGtxZ3Rtd0otZVBweE1VZW9DVTFmRFdhY3ViQVpNVVJGQUphRHlqQ3VLX0t5SDNkME1vMGVpY1dHN05uOHQ5MEw1RzFQS0Rkd2FtUl9BQTZCbjQ5NTVVQW92bWdEQkhQUzAwTTJKczFERGQwU2J5QjVGb001OGVNZXhTYVhXWG1yUnJzZ2ZhV0RyRWc?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxOWkJVaG45NjItUWxFbjlRSmlFUkJ3MHFETWdENS1oT2F0d0pQc01IcTlsbXlMYlNONExZdU85eWlJVGdPWlRCRWllSFBYWWxoNlFndTNueGRCR3FKb2phUFJPVjVMT0lDei1UNlNrLS1nZ1N1eWEwTTFJcGxqbVZhbEQwaUVyV2ZyYnItTFFtd2ZVd2tER2fSAZsBQVVfeXFMUFZHZEpZMmFUOGtxZ3Rtd0otZVBweE1VZW9DVTFmRFdhY3ViQVpNVVJGQUphRHlqQ3VLX0t5SDNkME1vMGVpY1dHN05uOHQ5MEw1RzFQS0Rkd2FtUl9BQTZCbjQ5NTVVQW92bWdEQkhQUzAwTTJKczFERGQwU2J5QjVGb001OGVNZXhTYVhXWG1yUnJzZ2ZhV0RyRWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

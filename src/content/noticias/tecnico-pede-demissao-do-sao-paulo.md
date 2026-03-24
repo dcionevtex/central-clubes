@@ -1,0 +1,13 @@
+---
+title: "Técnico pede demissão do São Paulo"
+description: "Técnico pede demissão do São Paulo  Esporte News Mundo"
+pubDate: "2026-03-24T19:53:49.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMidkFVX3lxTE1odHJ2VTk3M2VQXzRIc1F0QTZmcnp4SnU4M05rd1d5OXNWd19IbVFhTURNUENLZlJiQjBzdTF0Ty1iYURKT1JGV2tERWVJbmZlcmZZQ3VveUJ0TzBCTmt5MGdLT1NNZ2MwZ0w3bERLbThwVENZUUHSAXtBVV95cUxNNEU4WXIyNmNMR00xbDBMNkVzSEdYNnJ4SkxoYnpxaUpuVjFKX2xRckI2VnQ3UlY2eDdFMEtDaWdPT1JWZlJhZmEtTFJtTEtEVVF4ejZ4dUhxRkZPVmZJMlpXNTg4RUs3allrYmktcGQ5dElXMEJmdGRkTlk?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMidkFVX3lxTE1odHJ2VTk3M2VQXzRIc1F0QTZmcnp4SnU4M05rd1d5OXNWd19IbVFhTURNUENLZlJiQjBzdTF0Ty1iYURKT1JGV2tERWVJbmZlcmZZQ3VveUJ0TzBCTmt5MGdLT1NNZ2MwZ0w3bERLbThwVENZUUHSAXtBVV95cUxNNEU4WXIyNmNMR00xbDBMNkVzSEdYNnJ4SkxoYnpxaUpuVjFKX2xRckI2VnQ3UlY2eDdFMEtDaWdPT1JWZlJhZmEtTFJtTEtEVVF4ejZ4dUhxRkZPVmZJMlpXNTg4RUs3allrYmktcGQ5dElXMEJmdGRkTlk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

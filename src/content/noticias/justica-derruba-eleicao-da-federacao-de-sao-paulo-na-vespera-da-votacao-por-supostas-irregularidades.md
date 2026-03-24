@@ -1,0 +1,13 @@
+---
+title: "Justiça derruba eleição da Federação de São Paulo na véspera da votação por supostas irregularidades"
+description: "Justiça derruba eleição da Federação de São Paulo na véspera da votação por supostas irregularidades  Terra"
+pubDate: "2026-03-24T16:06:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMilwJBVV95cUxQZzh1OER6RnIzYmFXTWhDbENnUGQ4bFEyVER0UlZhd09nSGs3NjhZV0xJTmZxNkwzUno5bUwtYVhOM2NRczFrRVY0MGtYZzk1bjJIMWF3SG1yQllMWVM4MlMybFlYSElrQzlsd2JZQVVBWHpNNDN4Q3ktbjlHR2V2UUVKbzB4akNSdzFtNlFPaDY4ZVAyX0JGQmwtd2hHV3B1Ymk0NkptMmV4NTY1RUZyVkJpVWlGNjRVeC1PeEhxazBLdGp5TnlCSGlGdmdCT0t0bVZIZE9fYTh2MHNlSFRxZnVjdlpjXzVud1lQU3dKTDB1eGRia1k1ZHhRRG1QQ0h0LXBNRWhObGNFVkM2dnBzZWQyT0ZibDQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwJBVV95cUxQZzh1OER6RnIzYmFXTWhDbENnUGQ4bFEyVER0UlZhd09nSGs3NjhZV0xJTmZxNkwzUno5bUwtYVhOM2NRczFrRVY0MGtYZzk1bjJIMWF3SG1yQllMWVM4MlMybFlYSElrQzlsd2JZQVVBWHpNNDN4Q3ktbjlHR2V2UUVKbzB4akNSdzFtNlFPaDY4ZVAyX0JGQmwtd2hHV3B1Ymk0NkptMmV4NTY1RUZyVkJpVWlGNjRVeC1PeEhxazBLdGp5TnlCSGlGdmdCT0t0bVZIZE9fYTh2MHNlSFRxZnVjdlpjXzVud1lQU3dKTDB1eGRia1k1ZHhRRG1QQ0h0LXBNRWhObGNFVkM2dnBzZWQyT0ZibDQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
