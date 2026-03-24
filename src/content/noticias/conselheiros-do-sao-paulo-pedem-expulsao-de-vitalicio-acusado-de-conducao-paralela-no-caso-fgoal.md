@@ -1,0 +1,13 @@
+---
+title: "Conselheiros do São Paulo pedem expulsão de vitalício acusado de 'condução paralela' no caso FGoal"
+description: "Conselheiros do São Paulo pedem expulsão de vitalício acusado de 'condução paralela' no caso FGoal  Terra"
+pubDate: "2026-03-24T15:26:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMilAJBVV95cUxQcm9tOTlDRXZXeFZDb20wOUVRa3ZmVFhRWTE3YUpoQzU1bllzaVdMSzF3cnhSejRDc180eVQyTG00TWZJWnBkclJQeFJPQzMwWnEyN0pITS1Bd2JhdjM1ZExwNDV6dTkzbFcxOGkzMG5JaWQwdzBOSUh1aENCOHNOV2xyMFhObEpMQjY0c2l2NWR1WnVVSTE1RzVsS1VfMnM5MXUwVE9hZzQ4b2I5TkpJd2NNVHVuS3ZZWG5KWUlRdmxlNUxfeUxjV29VY0lta3YxQjczRTB3SVlIM1dLZG9yMTZ3aUtaT2FQUGFYMXVoUmdlZi1JczBuQlI1SHlUMnZlSDJxYk1seFVRNkM3TFk2a05kZFA?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAJBVV95cUxQcm9tOTlDRXZXeFZDb20wOUVRa3ZmVFhRWTE3YUpoQzU1bllzaVdMSzF3cnhSejRDc180eVQyTG00TWZJWnBkclJQeFJPQzMwWnEyN0pITS1Bd2JhdjM1ZExwNDV6dTkzbFcxOGkzMG5JaWQwdzBOSUh1aENCOHNOV2xyMFhObEpMQjY0c2l2NWR1WnVVSTE1RzVsS1VfMnM5MXUwVE9hZzQ4b2I5TkpJd2NNVHVuS3ZZWG5KWUlRdmxlNUxfeUxjV29VY0lta3YxQjczRTB3SVlIM1dLZG9yMTZ3aUtaT2FQUGFYMXVoUmdlZi1JczBuQlI1SHlUMnZlSDJxYk1seFVRNkM3TFk2a05kZFA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
