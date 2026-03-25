@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence ação na Justiça e receberá R$ 793 mil após disputa com empresa FGoal"
+description: "São Paulo vence ação na Justiça e receberá R$ 793 mil após disputa com empresa FGoal  Bolavip"
+pubDate: "2026-03-25T14:49:21.000Z"
+source: "Bolavip"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxNb3pXNEQzdFZZOG82NnBTSXN5LV80Q253YVdMbTU3bHIxbERZMU14ZjBXWGdtN0RZUmwxWGwxdmZzN0FsQ1BBZmVuZjlmYjJ0bnNpRG5NSFlhZ0xVNFZBemNUMzNKWEZ3QWRHUmc4cUNwMGtBX1I3QW1kN0dGU0NHVDdjWkxkd21LeW1aTW1fZFUzM2txMVUycdIBngFBVV95cUxQc25mNk1yczBXXzN6OWI0SE1laS14TkNqZ0YzMFZSejY1bHVtMXlCSFYzLUdyM2c4WjlVMjFJdjJnYkpMTW5iRWxfZXdPR3RXNmViRHFqR1RFb2xJcEp6VVNIdUgzM0FPdnZLdTlDdjZJbmZuU2F0d3Q4Y0hMWi1HQUREcnlVa2xrQllGRWF2STNURUZXSEVPMVczU1l1QQ?oc=5"
+---
+
+### Fonte Original: Bolavip
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxNb3pXNEQzdFZZOG82NnBTSXN5LV80Q253YVdMbTU3bHIxbERZMU14ZjBXWGdtN0RZUmwxWGwxdmZzN0FsQ1BBZmVuZjlmYjJ0bnNpRG5NSFlhZ0xVNFZBemNUMzNKWEZ3QWRHUmc4cUNwMGtBX1I3QW1kN0dGU0NHVDdjWkxkd21LeW1aTW1fZFUzM2txMVUycdIBngFBVV95cUxQc25mNk1yczBXXzN6OWI0SE1laS14TkNqZ0YzMFZSejY1bHVtMXlCSFYzLUdyM2c4WjlVMjFJdjJnYkpMTW5iRWxfZXdPR3RXNmViRHFqR1RFb2xJcEp6VVNIdUgzM0FPdnZLdTlDdjZJbmZuU2F0d3Q4Y0hMWi1HQUREcnlVa2xrQllGRWF2STNURUZXSEVPMVczU1l1QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
