@@ -1,0 +1,13 @@
+---
+title: "São Paulo retoma treinamentos visando maratona de jogos"
+description: "São Paulo retoma treinamentos visando maratona de jogos  Portal Hortolândia"
+pubDate: "2026-03-25T23:18:33.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE1MeU9Qd3FwVmpxSUs2Rmd5Tkg1MTN5ZzRTRmZPakJMUkdPWlMzcTlLdE42ZVBnLU94Z0lXeDJjSXBQLVVfa09Na1NxVFRXRXhoZmFicEo1M0h3UXdoOXBXb0N0eFhzeHFzYUc1RTlyZ3J2SFdpWEItNUg3YUJiVUnSAX9BVV95cUxNTHlPUHdxcFZqcUlLNkZneU5INTEzeWc0U0ZmT2pCTFJHT1pTM3E5S3RONmVQZy1PeGdJV3gyY0lwUC1VX2tPTWtTcVRUV0V4aGZhYnBKNTNId1F3aDlwV29DdHhYc3hxc2FHNUU5cmdydkhXaVhCLTVIN2FCYlVJ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE1MeU9Qd3FwVmpxSUs2Rmd5Tkg1MTN5ZzRTRmZPakJMUkdPWlMzcTlLdE42ZVBnLU94Z0lXeDJjSXBQLVVfa09Na1NxVFRXRXhoZmFicEo1M0h3UXdoOXBXb0N0eFhzeHFzYUc1RTlyZ3J2SFdpWEItNUg3YUJiVUnSAX9BVV95cUxNTHlPUHdxcFZqcUlLNkZneU5INTEzeWc0U0ZmT2pCTFJHT1pTM3E5S3RONmVQZy1PeGdJV3gyY0lwUC1VX2tPTWtTcVRUV0V4aGZhYnBKNTNId1F3aDlwV29DdHhYc3hxc2FHNUU5cmdydkhXaVhCLTVIN2FCYlVJ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

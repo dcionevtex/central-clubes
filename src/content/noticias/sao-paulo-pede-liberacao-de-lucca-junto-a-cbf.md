@@ -1,0 +1,13 @@
+---
+title: "São Paulo pede liberação de Lucca junto à CBF"
+description: "São Paulo pede liberação de Lucca junto à CBF  Portal Hortolândia"
+pubDate: "2026-03-25T22:41:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE1oemlnaWswODE1THQyTFJHd2RQSnI4MGtfUi15QngyWkN0R1dneGdUUXM5MHdHdm5vQTJnbzNaNHBIQThTM3BYeFJfdHI2Q2dRZ2xmT0dlMFA5cFQ2MF84QUdNX3ZPbDBzR0xWNTRQZ21PNTdHRUc1bzhyVV_SAXxBVV95cUxNaHppZ2lrMDgxNUx0MkxSR3dkUEpyODBrX1IteUJ4MlpDdEdXZ3hnVFFzOTB3R3Zub0EyZ28zWjRwSEE4UzNwWHhSX3RyNkNnUWdsZk9HZTBQOXBUNjBfOEFHTV92T2wwc0dMVjU0UGdtTzU3R0VHNW84clVf?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE1oemlnaWswODE1THQyTFJHd2RQSnI4MGtfUi15QngyWkN0R1dneGdUUXM5MHdHdm5vQTJnbzNaNHBIQThTM3BYeFJfdHI2Q2dRZ2xmT0dlMFA5cFQ2MF84QUdNX3ZPbDBzR0xWNTRQZ21PNTdHRUc1bzhyVV_SAXxBVV95cUxNaHppZ2lrMDgxNUx0MkxSR3dkUEpyODBrX1IteUJ4MlpDdEdXZ3hnVFFzOTB3R3Zub0EyZ28zWjRwSEE4UzNwWHhSX3RyNkNnUWdsZk9HZTBQOXBUNjBfOEFHTV92T2wwc0dMVjU0UGdtTzU3R0VHNW84clVf?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
