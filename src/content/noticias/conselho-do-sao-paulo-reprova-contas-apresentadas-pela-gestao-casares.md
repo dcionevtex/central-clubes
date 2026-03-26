@@ -1,0 +1,13 @@
+---
+title: "Conselho do São Paulo reprova contas apresentadas pela gestão Casares"
+description: "Conselho do São Paulo reprova contas apresentadas pela gestão Casares  Rádio Itatiaia"
+pubDate: "2026-03-26T21:15:20.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9AFBVV95cUxPNGFIQm55MllVQnI4N2g0YWdjd3VmY1NxZjNQNEdNaGRMMmJtX0NjaUJKVGhTS1NTVG15amQ3aU1WMnAtbm1DUENmRG1fMUVRX0cwWUlxMnBSNUU1MjZEbzVHOUZWQlZ0c2prZWprS0lGWE9nTHBjMUFSc3l0b21TTzN6Q19QQXFUWlp4TnNHN0V1T2JZM1ZGLV91eHhzTGplMHZBWUY5ZG1ubEpOcDUzVGZMRkcxbFhJdUFQUTdjOWRCZTg3cVNtTzMyN2RRRjktNUh3ZW5zdy1ESFBPV08tOUVKZnptTUh1b3dIbTlTNXh1S0lu?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9AFBVV95cUxPNGFIQm55MllVQnI4N2g0YWdjd3VmY1NxZjNQNEdNaGRMMmJtX0NjaUJKVGhTS1NTVG15amQ3aU1WMnAtbm1DUENmRG1fMUVRX0cwWUlxMnBSNUU1MjZEbzVHOUZWQlZ0c2prZWprS0lGWE9nTHBjMUFSc3l0b21TTzN6Q19QQXFUWlp4TnNHN0V1T2JZM1ZGLV91eHhzTGplMHZBWUY5ZG1ubEpOcDUzVGZMRkcxbFhJdUFQUTdjOWRCZTg3cVNtTzMyN2RRRjktNUh3ZW5zdy1ESFBPV08tOUVKZnptTUh1b3dIbTlTNXh1S0lu?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Conselho reprova balanço financeiro de 2025"
+description: "São Paulo: Conselho reprova balanço financeiro de 2025  Portal Hortolândia"
+pubDate: "2026-03-26T21:12:48.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE1UTFlBeTNHM0VWTVljVV93dURSQVZoTVVmTXB0Yk53cWoxZGtLN3ptc3BILXNDZnI5VzNQRXRpZlBJQWhhcF9vQTRNSWljQUlGY1FBQ2Frem9ZeGVvMHlIRTRwdTFNd0k0TzZiVEJTd3ZEa0JSblNxVEh3Z3fSAXxBVV95cUxNVExZQXkzRzNFVk1ZY1Vfd3VEUkFWaE1VZk1wdGJOd3FqMWRrSzd6bXNwSC1zQ2ZyOVczUEV0aWZQSUFoYXBfb0E0TUlpY0FJRmNRQUNha3pvWXhlbzB5SEU0cHUxTXdJNE82YlRCU3d2RGtCUm5TcVRId2d3?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE1UTFlBeTNHM0VWTVljVV93dURSQVZoTVVmTXB0Yk53cWoxZGtLN3ptc3BILXNDZnI5VzNQRXRpZlBJQWhhcF9vQTRNSWljQUlGY1FBQ2Frem9ZeGVvMHlIRTRwdTFNd0k0TzZiVEJTd3ZEa0JSblNxVEh3Z3fSAXxBVV95cUxNVExZQXkzRzNFVk1ZY1Vfd3VEUkFWaE1VZk1wdGJOd3FqMWRrSzd6bXNwSC1zQ2ZyOVczUEV0aWZQSUFoYXBfb0E0TUlpY0FJRmNRQUNha3pvWXhlbzB5SEU0cHUxTXdJNE82YlRCU3d2RGtCUm5TcVRId2d3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
