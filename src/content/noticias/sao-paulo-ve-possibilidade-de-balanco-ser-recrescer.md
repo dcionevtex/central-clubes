@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê possibilidade de balanço ser recrescer"
+description: "São Paulo vê possibilidade de balanço ser recrescer  Portal Hortolândia"
+pubDate: "2026-03-26T15:58:49.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE53SVdTeXpZM3ZnRGVzZ3lwYldjSW5ZYTYzVVdwVFpDUGFZdTA4aWFJU0NrRjJGdXlyempaZWpmUlhZOXlhUVNvUWdEamw4V0RQVWt4cmtYR09qcndqMW1hODZSZ3M2YkJ2M1JZUU5SdDQyNHhrSV9fTzhuOWHSAXxBVV95cUxOd0lXU3l6WTN2Z0Rlc2d5cGJXY0luWWE2M1VXcFRaQ1BhWXUwOGlhSVNDa0YyRnV5cnpqWmVqZlJYWTl5YVFTb1FnRGpsOFdEUFVreHJrWEdPanJ3ajFtYTg2UmdzNmJCdjNSWVFOUnQ0MjR4a0lfX084bjlh?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE53SVdTeXpZM3ZnRGVzZ3lwYldjSW5ZYTYzVVdwVFpDUGFZdTA4aWFJU0NrRjJGdXlyempaZWpmUlhZOXlhUVNvUWdEamw4V0RQVWt4cmtYR09qcndqMW1hODZSZ3M2YkJ2M1JZUU5SdDQyNHhrSV9fTzhuOWHSAXxBVV95cUxOd0lXU3l6WTN2Z0Rlc2d5cGJXY0luWWE2M1VXcFRaQ1BhWXUwOGlhSVNDa0YyRnV5cnpqWmVqZlJYWTl5YVFTb1FnRGpsOFdEUFVreHJrWEdPanJ3ajFtYTg2UmdzNmJCdjNSWVFOUnQ0MjR4a0lfX084bjlh?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
