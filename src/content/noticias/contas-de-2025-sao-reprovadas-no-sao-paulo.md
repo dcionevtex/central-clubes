@@ -1,0 +1,13 @@
+---
+title: "Contas de 2025 são reprovadas no São Paulo"
+description: "Contas de 2025 são reprovadas no São Paulo  ABCD Jornal"
+pubDate: "2026-03-26T21:24:00.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxOT0l5dVVIV2Jnek52bXhXbUZpODJnNWJONU5zTk1RblYwMFdRQWExZUtHX1FQMUlTZ2JWbXlCSXNhVk1LU0x4b29vQ0NzRGthODZmU1Exa1BLX3ljRUFjbGV0MXBsNWRMR2gzb0g3Zl9XSmRDTmx3Wk9aRjl2RE5Ic1BpZ3FZNnJoa0syYVZ6aDgxSlRYRGZoamtBYzLSAaIBQVVfeXFMUHhPNU5sTkxCZTFBaW1MT0dQZGhCQmVhWU04YlJQSHg4LUhxV0dpOVdkSVE5RVdQY19kelhReHF6UndybWdlR3Fsd2RQVGE3UkhmY1IwSElWbDJlQTd0LTR2N0gzRmxCak8tVU81NlBrWDJrcXJpaXkxOXp1U2lmYkRlZUdHVUZqVjJ0d0lFanNraGFRX0NZQllLX0tNTTBiM2h3?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxOT0l5dVVIV2Jnek52bXhXbUZpODJnNWJONU5zTk1RblYwMFdRQWExZUtHX1FQMUlTZ2JWbXlCSXNhVk1LU0x4b29vQ0NzRGthODZmU1Exa1BLX3ljRUFjbGV0MXBsNWRMR2gzb0g3Zl9XSmRDTmx3Wk9aRjl2RE5Ic1BpZ3FZNnJoa0syYVZ6aDgxSlRYRGZoamtBYzLSAaIBQVVfeXFMUHhPNU5sTkxCZTFBaW1MT0dQZGhCQmVhWU04YlJQSHg4LUhxV0dpOVdkSVE5RVdQY19kelhReHF6UndybWdlR3Fsd2RQVGE3UkhmY1IwSElWbDJlQTd0LTR2N0gzRmxCak8tVU81NlBrWDJrcXJpaXkxOXp1U2lmYkRlZUdHVUZqVjJ0d0lFanNraGFRX0NZQllLX0tNTTBiM2h3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
