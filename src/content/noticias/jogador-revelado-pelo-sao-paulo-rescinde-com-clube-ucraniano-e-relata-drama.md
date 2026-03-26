@@ -1,0 +1,13 @@
+---
+title: "Jogador revelado pelo São Paulo rescinde com clube ucraniano e relata drama"
+description: "Jogador revelado pelo São Paulo rescinde com clube ucraniano e relata drama  Rádio Itatiaia"
+pubDate: "2026-03-26T18:51:39.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_AFBVV95cUxPTHd2ZjA4S1ZOeVFwVjRSeVN6enpCbmlXeWdBREhGTEFnX3dUX0d2WGZqcEM5dzYwYzEzTUJWODBQUF9ia25TNFdEcm5QdGkxNmNJSjRIbDJqLWFxTGthZGhPQWdMUk54eFRtQlZoaVpwZ190eS1GVmdZb0NDallmcVI5VkRVeGtqZFNFdU9GTW1LaHEtTVVCMW9aa3JpY3VQQUNUcmhCbFpzcl9ZWUhCTHdJbDBYRTVnV1RmRVhnOEVUTWlPX0lDSktIemwwSm1LS3Ewb3N2NmsxM1ZWc2piUTB1cFBnWmZjY2xDdlYtalhKalFzQjM3M0pDbXQ?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_AFBVV95cUxPTHd2ZjA4S1ZOeVFwVjRSeVN6enpCbmlXeWdBREhGTEFnX3dUX0d2WGZqcEM5dzYwYzEzTUJWODBQUF9ia25TNFdEcm5QdGkxNmNJSjRIbDJqLWFxTGthZGhPQWdMUk54eFRtQlZoaVpwZ190eS1GVmdZb0NDallmcVI5VkRVeGtqZFNFdU9GTW1LaHEtTVVCMW9aa3JpY3VQQUNUcmhCbFpzcl9ZWUhCTHdJbDBYRTVnV1RmRVhnOEVUTWlPX0lDSktIemwwSm1LS3Ewb3N2NmsxM1ZWc2piUTB1cFBnWmZjY2xDdlYtalhKalFzQjM3M0pDbXQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
