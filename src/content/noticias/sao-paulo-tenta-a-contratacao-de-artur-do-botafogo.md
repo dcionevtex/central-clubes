@@ -1,0 +1,13 @@
+---
+title: "São Paulo tenta a contratação de Artur, do Botafogo"
+description: "São Paulo tenta a contratação de Artur, do Botafogo  Gazeta Esportiva"
+pubDate: "2026-03-27T13:58:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxPeU8yTERlbW5WZXZnanlWRUJTOEJHbVBKYmVSUXppS2dJbm9xS0J3TTV0MUhhTzM5WGEzX3BDZVp6d25RYVlOU1cxZFBmeV9ZNXZwUlhYNzVlVC1fakRfT2EtNUJGYkY4VmhRXzBHTFlFM0VYd1c2Vkw2d1F2MUtyVmJaYnhfR0VFQ2FBN3duc1dCTk9TdWh2Q011cnRlOEXSAaQBQVVfeXFMUG54eTBzZlR1T2REVTNQT1ZhQ2tIam1YeTA0XzFfbS1xUGJxZndHcjh4aHJDWS1qZ1ZTS3ZUaGpFdThpMUpmdldyUHo0dmd1dEpqdkJrb2l0ZHp0cjNya1ZvQVprSlJ5a2tGMnZTc0ZUNDlFRWFDbzlWdXgwMXRYcjVENlJUR1plUGpjOXNNSjNtVzh6anFrZFlwVkQzRVFkZHdMb0g?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxPeU8yTERlbW5WZXZnanlWRUJTOEJHbVBKYmVSUXppS2dJbm9xS0J3TTV0MUhhTzM5WGEzX3BDZVp6d25RYVlOU1cxZFBmeV9ZNXZwUlhYNzVlVC1fakRfT2EtNUJGYkY4VmhRXzBHTFlFM0VYd1c2Vkw2d1F2MUtyVmJaYnhfR0VFQ2FBN3duc1dCTk9TdWh2Q011cnRlOEXSAaQBQVVfeXFMUG54eTBzZlR1T2REVTNQT1ZhQ2tIam1YeTA0XzFfbS1xUGJxZndHcjh4aHJDWS1qZ1ZTS3ZUaGpFdThpMUpmdldyUHo0dmd1dEpqdkJrb2l0ZHp0cjNya1ZvQVprSlJ5a2tGMnZTc0ZUNDlFRWFDbzlWdXgwMXRYcjVENlJUR1plUGpjOXNNSjNtVzh6anFrZFlwVkQzRVFkZHdMb0g?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

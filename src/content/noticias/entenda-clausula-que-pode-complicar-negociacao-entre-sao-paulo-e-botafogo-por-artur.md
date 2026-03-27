@@ -1,0 +1,13 @@
+---
+title: "Entenda cláusula que pode complicar negociação entre São Paulo e Botafogo por Artur"
+description: "Entenda cláusula que pode complicar negociação entre São Paulo e Botafogo por Artur  Rádio Itatiaia"
+pubDate: "2026-03-27T14:38:28.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMihwJBVV95cUxQSUE5UW9rRFVvZkZTT1F6U3hYRW9Yak1IcGZLWkFkSmtQSGFiR25ScTNMQzZabWpQQlJHazluSTR2MVZFM1B1TGU0OXIzS1RURW1MU1ZrQmp6N2VmQTVPUlBlUmNhVUZiOGR4VzhySTJoZVp2MEZsM0hBSDFBdmQ1WUNJRWFCTDNnY2VQQzBWeWZkWXJPZ3BIRE95dDNUN3A5WkdHNF9aTzVHVkNFeUJ4eU5BWnlUWkZ3eFBjRWFsbExnVTYtUkViYW5CbVowTmxkVDBoajl3WjJkanFsTzE2ZE9kbVJuVHd1UmlQSFF2VVRxOEpCX2YzWENQU2hKUldUTTJaTHI1NA?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwJBVV95cUxQSUE5UW9rRFVvZkZTT1F6U3hYRW9Yak1IcGZLWkFkSmtQSGFiR25ScTNMQzZabWpQQlJHazluSTR2MVZFM1B1TGU0OXIzS1RURW1MU1ZrQmp6N2VmQTVPUlBlUmNhVUZiOGR4VzhySTJoZVp2MEZsM0hBSDFBdmQ1WUNJRWFCTDNnY2VQQzBWeWZkWXJPZ3BIRE95dDNUN3A5WkdHNF9aTzVHVkNFeUJ4eU5BWnlUWkZ3eFBjRWFsbExnVTYtUkViYW5CbVowTmxkVDBoajl3WjJkanFsTzE2ZE9kbVJuVHd1UmlQSFF2VVRxOEpCX2YzWENQU2hKUldUTTJaTHI1NA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
