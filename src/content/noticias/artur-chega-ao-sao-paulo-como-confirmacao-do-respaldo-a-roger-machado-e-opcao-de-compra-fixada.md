@@ -1,0 +1,13 @@
+---
+title: "Artur chega ao São Paulo como confirmação do respaldo a Roger Machado e opção de compra fixada"
+description: "Artur chega ao São Paulo como confirmação do respaldo a Roger Machado e opção de compra fixada  Terra"
+pubDate: "2026-03-27T22:38:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMijwJBVV95cUxQWTE4Tzd4SFFCSnc5RnZ4RFFHTC05U1hFSDc5WmF1RzdvbnRtV1ExZXROdGc3amVfX3ZWai03NDJXSDh1UVNaUk9jWnhaWkJtT0kwLUJESlRkS0wtSFhGUGh1cl9JM1FEMTJYYTJDektGYXNqTGNuSWREZlVWWVc3OUpya09kRkRnaFNDU2ZGcHFhT3BCeXNkMTVEM3N2WjRoMFQyb1VWYS1PMERwX29LY2RVQ0JGOFRzVThOQngzaHkySmRsQkc2QTZtdHJyUjJIUDlwbnhUclhaSFNpekxrcmdWRlpBMUl3VXROczJjbksxMzdkdGluWHV3c0RzajY3TUs1QnpCNnc2VUd4RjMw?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwJBVV95cUxQWTE4Tzd4SFFCSnc5RnZ4RFFHTC05U1hFSDc5WmF1RzdvbnRtV1ExZXROdGc3amVfX3ZWai03NDJXSDh1UVNaUk9jWnhaWkJtT0kwLUJESlRkS0wtSFhGUGh1cl9JM1FEMTJYYTJDektGYXNqTGNuSWREZlVWWVc3OUpya09kRkRnaFNDU2ZGcHFhT3BCeXNkMTVEM3N2WjRoMFQyb1VWYS1PMERwX29LY2RVQ0JGOFRzVThOQngzaHkySmRsQkc2QTZtdHJyUjJIUDlwbnhUclhaSFNpekxrcmdWRlpBMUl3VXROczJjbksxMzdkdGluWHV3c0RzajY3TUs1QnpCNnc2VUd4RjMw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
