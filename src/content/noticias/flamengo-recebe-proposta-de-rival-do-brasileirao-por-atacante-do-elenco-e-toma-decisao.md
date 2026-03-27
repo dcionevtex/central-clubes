@@ -1,0 +1,13 @@
+---
+title: "Flamengo recebe proposta de rival do Brasileirão por atacante do elenco e toma decisão"
+description: "Flamengo recebe proposta de rival do Brasileirão por atacante do elenco e toma decisão  Terra"
+pubDate: "2026-03-26T19:44:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMimgJBVV95cUxOaXVPUWFUZnRTaUxxM2l5cndtLUVkaEZfM1RVOE5kVjJuTUd1T2dXZ3cxVU1nbDhrdC16OUgtRWIxbTFtdU5NNzJkbW9BWE1DMTN6cjl4YXd6bU40TVdVTE5Ma0hmcEtaZHRIUjZJS0VTM2RSaTFvR3hHclF0b0t0MGpoclR6SWxEb3BlU3FBY0Z4SVRELTUtSUZXdGRBSFUtY3plMXNOMUNmZHJUTXFnRTh6aUpySUU4TTA3S3NyWkdFZzhwVER3ZEx3Z0JHT19mV3Rla1pFejdLeU9aMmNjWkt3VE5qZHhBR2EtYzhGVnpaTXZFOWhHQ0FucEtpSmFSQzIxcHlFbUlQdk5TSUdXdUVISGxmaWdwNHc?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgJBVV95cUxOaXVPUWFUZnRTaUxxM2l5cndtLUVkaEZfM1RVOE5kVjJuTUd1T2dXZ3cxVU1nbDhrdC16OUgtRWIxbTFtdU5NNzJkbW9BWE1DMTN6cjl4YXd6bU40TVdVTE5Ma0hmcEtaZHRIUjZJS0VTM2RSaTFvR3hHclF0b0t0MGpoclR6SWxEb3BlU3FBY0Z4SVRELTUtSUZXdGRBSFUtY3plMXNOMUNmZHJUTXFnRTh6aUpySUU4TTA3S3NyWkdFZzhwVER3ZEx3Z0JHT19mV3Rla1pFejdLeU9aMmNjWkt3VE5qZHhBR2EtYzhGVnpaTXZFOWhHQ0FucEtpSmFSQzIxcHlFbUlQdk5TSUdXdUVISGxmaWdwNHc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
