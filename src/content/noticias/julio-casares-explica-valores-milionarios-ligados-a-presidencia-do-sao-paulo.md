@@ -1,0 +1,13 @@
+---
+title: "Júlio Casares explica valores milionários ligados à presidência do São Paulo"
+description: "Júlio Casares explica valores milionários ligados à presidência do São Paulo  Terra"
+pubDate: "2026-03-27T02:54:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi-gFBVV95cUxPMS11ekRZU09yaVpFdjJodVNuXzlEdXJjb3NSLTZKcWFxemZrTDNlUF8tcjI0MGdYSWRKcldORlFma2taWnlzQmIyQlZEYXFMV3ZwX2h4Smg5Y2s3MjhqRkYyT1lFeWY1eXRQbGxGa1p6WHVzUnk3UzBHQ01QakZQTmZUQ1c3V0MxdDlMTHhaRDVuRC1LRjZWLTJ2RlRKUVFyOE5mVHFQRWVhV0VNYXhwZHhDOWFsVFhNSmV6RFUzanZ3RzhRQmZ6eThHb1B2d1BpZXdLTjYxU0F5ZHBLQXEzRzEybUlUUkNIbnFrSERRaDZtSktidWJDSUZn?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi-gFBVV95cUxPMS11ekRZU09yaVpFdjJodVNuXzlEdXJjb3NSLTZKcWFxemZrTDNlUF8tcjI0MGdYSWRKcldORlFma2taWnlzQmIyQlZEYXFMV3ZwX2h4Smg5Y2s3MjhqRkYyT1lFeWY1eXRQbGxGa1p6WHVzUnk3UzBHQ01QakZQTmZUQ1c3V0MxdDlMTHhaRDVuRC1LRjZWLTJ2RlRKUVFyOE5mVHFQRWVhV0VNYXhwZHhDOWFsVFhNSmV6RFUzanZ3RzhRQmZ6eThHb1B2d1BpZXdLTjYxU0F5ZHBLQXEzRzEybUlUUkNIbnFrSERRaDZtSktidWJDSUZn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

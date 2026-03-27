@@ -1,0 +1,13 @@
+---
+title: "Novo goleiro do Bahia já foi tido como sucessor de Rogério Ceni no São Paulo"
+description: "Novo goleiro do Bahia já foi tido como sucessor de Rogério Ceni no São Paulo  A TARDE"
+pubDate: "2026-03-26T21:57:10.000Z"
+source: "A TARDE"
+link: "https://news.google.com/rss/articles/CBMipwFBVV95cUxONTVXQWo5R2Z3N0MyMzN6b0VtNHlEa25xZmFkQ2Q4cERSTVA1a3B5NlZCMmZiMm10UjFGTHRNNWsxUFhoOC1NRWVGY2JOcU0wT0Z0cDRkZl8xUWNsSUoxdU9HYmduWDByWVlaVC0yR0lMaU4tdGd6VUZmLU1ObmxiUnZVZFVZTkZZbXRQd2tBUHAtcjZkWTBrTllqbnFvRk1rRzcxWHlwNNIBrwFBVV95cUxOb0toZWJzYk1UaktialVCeUtUMzg4RjdDTWRpdnJzMFNhNGxpOEs3WjZockhvRVdUXzVPUndqS0tPRWNGbHBLMGpDM3VnRFQwMEZuN0p3U09LSFppMktqQ0ZCZTl0enB1c3hMOHBuaDhVOEl5RDJLYVBGS0hQRXEwbVpwZHpoalRpd1M0Z3dKeFBfV3ZjRHE4Z0xSQk9JM1lyM1l0VlFnNTJkdDZyb2tZ?oc=5"
+---
+
+### Fonte Original: A TARDE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwFBVV95cUxONTVXQWo5R2Z3N0MyMzN6b0VtNHlEa25xZmFkQ2Q4cERSTVA1a3B5NlZCMmZiMm10UjFGTHRNNWsxUFhoOC1NRWVGY2JOcU0wT0Z0cDRkZl8xUWNsSUoxdU9HYmduWDByWVlaVC0yR0lMaU4tdGd6VUZmLU1ObmxiUnZVZFVZTkZZbXRQd2tBUHAtcjZkWTBrTllqbnFvRk1rRzcxWHlwNNIBrwFBVV95cUxOb0toZWJzYk1UaktialVCeUtUMzg4RjdDTWRpdnJzMFNhNGxpOEs3WjZockhvRVdUXzVPUndqS0tPRWNGbHBLMGpDM3VnRFQwMEZuN0p3U09LSFppMktqQ0ZCZTl0enB1c3hMOHBuaDhVOEl5RDJLYVBGS0hQRXEwbVpwZHpoalRpd1M0Z3dKeFBfV3ZjRHE4Z0xSQk9JM1lyM1l0VlFnNTJkdDZyb2tZ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

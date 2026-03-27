@@ -1,0 +1,13 @@
+---
+title: "Oscar rescinde com o São Paulo; veja os detalhes"
+description: "Oscar rescinde com o São Paulo; veja os detalhes  ABCD Jornal"
+pubDate: "2026-03-27T01:18:02.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxNNWNBLURwNHlEVjROa0xncVFRUGdlY0l5VV9Nd0xEaURuSHhGR0dEbVJOR2tmZ1l5ME1zaC1IOUczb1hJVnlHZ3R2clcycExDM1NBYjRtQTFfeUFNc0Z5X3ZFUmh1YTBZTlZ3QzVKWHdnczZ3TnpBSFd3Ri1HS1pCVmJlS21MLTlaTURZMUliQ280X040ektNakhHYUNidnpEVngw0gGoAUFVX3lxTE5wUGMzZVg4RmFFbWtKQ0RjQ3ZpWm96U29OMG9yN3JMYmNzZ1psbk9ucGdNVG1sbl9nTkRfelh2c3NCZGhYTnp1VDF3LU9xN3BFdGN1QnNmTExLT25jdGhBbEs0TnNnTV9BSnJ1WS1PSEJ4eDZ5QkdRUFpQSjlDQlJsekZxZ09lSFhHQ2ZrR0ZhbzhFZmRsOHlJeHRjRTJhRkFuRUVHdWkzRQ?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxNNWNBLURwNHlEVjROa0xncVFRUGdlY0l5VV9Nd0xEaURuSHhGR0dEbVJOR2tmZ1l5ME1zaC1IOUczb1hJVnlHZ3R2clcycExDM1NBYjRtQTFfeUFNc0Z5X3ZFUmh1YTBZTlZ3QzVKWHdnczZ3TnpBSFd3Ri1HS1pCVmJlS21MLTlaTURZMUliQ280X040ektNakhHYUNidnpEVngw0gGoAUFVX3lxTE5wUGMzZVg4RmFFbWtKQ0RjQ3ZpWm96U29OMG9yN3JMYmNzZ1psbk9ucGdNVG1sbl9nTkRfelh2c3NCZGhYTnp1VDF3LU9xN3BFdGN1QnNmTExLT25jdGhBbEs0TnNnTV9BSnJ1WS1PSEJ4eDZ5QkdRUFpQSjlDQlJsekZxZ09lSFhHQ2ZrR0ZhbzhFZmRsOHlJeHRjRTJhRkFuRUVHdWkzRQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
