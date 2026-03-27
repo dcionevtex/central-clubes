@@ -1,0 +1,13 @@
+---
+title: "Com aval de Roger Machado, São Paulo corre contra o tempo por atacante"
+description: "Com aval de Roger Machado, São Paulo corre contra o tempo por atacante  Esporte News Mundo"
+pubDate: "2026-03-27T17:59:00.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNVG9PVGRxWC1oSV9SRlZIU252czB6S0ozT1pHS3p4bmZXYmZTeWs0Yi1rODk4dURXblo5RFphRlFubEkwUF9hWDljLVJXVGFzcmZ0cmpZSU0zRE9kRHNRRTN4Y1FyWEVMalVSQlRPU3VZTTBEN1FCelp6U09nUUVaa0x3NHRTRjA5NmcyTVdXM085STVHNElYb3NnVEl4ZVBLSmRjNkVDU05Yd9IBqgFBVV95cUxNVG9PVGRxWC1oSV9SRlZIU252czB6S0ozT1pHS3p4bmZXYmZTeWs0Yi1rODk4dURXblo5RFphRlFubEkwUF9hWDljLVJXVGFzcmZ0cmpZSU0zRE9kRHNRRTN4Y1FyWEVMalVSQlRPU3VZTTBEN1FCelp6U09nUUVaa0x3NHRTRjA5NmcyTVdXM085STVHNElYb3NnVEl4ZVBLSmRjNkVDU05Ydw?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNVG9PVGRxWC1oSV9SRlZIU252czB6S0ozT1pHS3p4bmZXYmZTeWs0Yi1rODk4dURXblo5RFphRlFubEkwUF9hWDljLVJXVGFzcmZ0cmpZSU0zRE9kRHNRRTN4Y1FyWEVMalVSQlRPU3VZTTBEN1FCelp6U09nUUVaa0x3NHRTRjA5NmcyTVdXM085STVHNElYb3NnVEl4ZVBLSmRjNkVDU05Yd9IBqgFBVV95cUxNVG9PVGRxWC1oSV9SRlZIU252czB6S0ozT1pHS3p4bmZXYmZTeWs0Yi1rODk4dURXblo5RFphRlFubEkwUF9hWDljLVJXVGFzcmZ0cmpZSU0zRE9kRHNRRTN4Y1FyWEVMalVSQlRPU3VZTTBEN1FCelp6U09nUUVaa0x3NHRTRjA5NmcyTVdXM085STVHNElYb3NnVEl4ZVBLSmRjNkVDU05Ydw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
