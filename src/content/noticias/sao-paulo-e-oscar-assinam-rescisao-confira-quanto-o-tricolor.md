@@ -1,0 +1,13 @@
+---
+title: "São Paulo e Oscar assinam rescisão; confira quanto o Tricolor"
+description: "São Paulo e Oscar assinam rescisão; confira quanto o Tricolor  Portal Hortolândia"
+pubDate: "2026-03-27T01:12:36.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxOLVdOX1ZaaElWbUFUdmJZUGdWZk5zTTlyQUtkb3lvWV81VWpjZ0RmRlhJWmpja3JKQ21IUDgwRU1KUXFDVVVBdTg1NnF5cHlkZF9BYWlMNU14dWZrV2s5VXhNVzhIR1FLYjFXVDBGRmFzS1QwazVzcHZQaFRMWFZ0NtIBgAFBVV95cUxOLVdOX1ZaaElWbUFUdmJZUGdWZk5zTTlyQUtkb3lvWV81VWpjZ0RmRlhJWmpja3JKQ21IUDgwRU1KUXFDVVVBdTg1NnF5cHlkZF9BYWlMNU14dWZrV2s5VXhNVzhIR1FLYjFXVDBGRmFzS1QwazVzcHZQaFRMWFZ0Ng?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxOLVdOX1ZaaElWbUFUdmJZUGdWZk5zTTlyQUtkb3lvWV81VWpjZ0RmRlhJWmpja3JKQ21IUDgwRU1KUXFDVVVBdTg1NnF5cHlkZF9BYWlMNU14dWZrV2s5VXhNVzhIR1FLYjFXVDBGRmFzS1QwazVzcHZQaFRMWFZ0NtIBgAFBVV95cUxOLVdOX1ZaaElWbUFUdmJZUGdWZk5zTTlyQUtkb3lvWV81VWpjZ0RmRlhJWmpja3JKQ21IUDgwRU1KUXFDVVVBdTg1NnF5cHlkZF9BYWlMNU14dWZrV2s5VXhNVzhIR1FLYjFXVDBGRmFzS1QwazVzcHZQaFRMWFZ0Ng?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo negocia com o Botafogo pelo atacante Artur e busca contratação por empréstimo"
+description: "São Paulo negocia com o Botafogo pelo atacante Artur e busca contratação por empréstimo  Bolavip Brasil"
+pubDate: "2026-03-27T00:24:15.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMijgFBVV95cUxQLXgtZGNEeDNKc3hrbnlZbHJLd2pYSDVLd1dZR2ViQWZTVE9DVXhPalJBNTUtaC1paEpBbTN2MWJTRDJORVFET2xwcmVJOWh3S3VwODd1SVlaQnl1X2EwWHBwTktXMjliazUwdm5VTFIzVGVDUzlsNzBDZFBIQTZzYlV2eEZyQlJCSUVJMGZR0gGTAUFVX3lxTE5FNVE5T3lOMEYtUVEyVDMyZE9OZUJRdldzOTdINU1HRzkwYnl3SHpEQkVHbXBhbGNNQkRrOGxqMGJEaER5WFZFMGlWeHlXX0Jhd3dibE5mdER6S1pOOUFFcHp6bF80dWg1anFUMU45ZllmYUlGdzZSN2dBdXNJVTAzV1hNaFFSbDhnaTVRVkZveHpLTQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijgFBVV95cUxQLXgtZGNEeDNKc3hrbnlZbHJLd2pYSDVLd1dZR2ViQWZTVE9DVXhPalJBNTUtaC1paEpBbTN2MWJTRDJORVFET2xwcmVJOWh3S3VwODd1SVlaQnl1X2EwWHBwTktXMjliazUwdm5VTFIzVGVDUzlsNzBDZFBIQTZzYlV2eEZyQlJCSUVJMGZR0gGTAUFVX3lxTE5FNVE5T3lOMEYtUVEyVDMyZE9OZUJRdldzOTdINU1HRzkwYnl3SHpEQkVHbXBhbGNNQkRrOGxqMGJEaER5WFZFMGlWeHlXX0Jhd3dibE5mdER6S1pOOUFFcHp6bF80dWg1anFUMU45ZllmYUlGdzZSN2dBdXNJVTAzV1hNaFFSbDhnaTVRVkZveHpLTQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
