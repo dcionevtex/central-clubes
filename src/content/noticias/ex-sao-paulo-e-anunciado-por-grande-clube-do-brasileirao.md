@@ -1,0 +1,13 @@
+---
+title: "Ex-São Paulo é anunciado por grande clube do Brasileirão"
+description: "Ex-São Paulo é anunciado por grande clube do Brasileirão  Esporte News Mundo"
+pubDate: "2026-03-27T18:40:15.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxQQXJMeUNubjdjRHFXa1g1bTc3NWVjT0JTNEcxclg0OE44eVlKWkVIakVtQThzR0ZNUkd4Sm9sNlliYVh3RkpLVXZVTGM3NmZDUWplZGNkelZkLUlOSkpHQ2sxczgtVUdFMnBUZExJYl9vZ0lJRUNaZzMyY3B5aXlqVVVJQXVmZGJ1Q2ZRNjlEcENYZ2fSAZgBQVVfeXFMUEVVUTktemZzb3J5ZXJhTU01Q1QwNENRb1hTVzVXN0o3NHloNUhTSnpjZEIyNXlsMmFWdjRvanVMREJVMWYwUnBoY1IyaVBHRFgwNlhoZ2t3dHBaM3ZFdlBtWjFvcGtBT1FsQ3R2SnQ4ZERjeW5NX2syZ1dMak1JWHZ6dDRjZUl1N1ZxMDJtcTNPTk1RRHloeTA?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxQQXJMeUNubjdjRHFXa1g1bTc3NWVjT0JTNEcxclg0OE44eVlKWkVIakVtQThzR0ZNUkd4Sm9sNlliYVh3RkpLVXZVTGM3NmZDUWplZGNkelZkLUlOSkpHQ2sxczgtVUdFMnBUZExJYl9vZ0lJRUNaZzMyY3B5aXlqVVVJQXVmZGJ1Q2ZRNjlEcENYZ2fSAZgBQVVfeXFMUEVVUTktemZzb3J5ZXJhTU01Q1QwNENRb1hTVzVXN0o3NHloNUhTSnpjZEIyNXlsMmFWdjRvanVMREJVMWYwUnBoY1IyaVBHRFgwNlhoZ2t3dHBaM3ZFdlBtWjFvcGtBT1FsQ3R2SnQ4ZERjeW5NX2syZ1dMak1JWHZ6dDRjZUl1N1ZxMDJtcTNPTk1RRHloeTA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
