@@ -1,0 +1,13 @@
+---
+title: "Após dois anos, Talles Costa, ex-São Paulo, rescinde com o Polissya"
+description: "Após dois anos, Talles Costa, ex-São Paulo, rescinde com o Polissya  Esporte News Mundo"
+pubDate: "2026-03-27T01:11:49.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxOUjAybTdMVnQzakR4cmwwSG9aWUdOajZkMU04YkNqdE1XRjdnMmt6bGNqeXd2YUpQdnpHd3ROOXVGX28zSnFrb05zQ0d5YW9BOXAzYl9NRmZIQTVpdXNkb0lLQmVJTmhrbkczQWNoUG1sNC13ejlabzlSdHk5cUhpUlVDb2Z5RG4zYU4xVkdQeDZaQlAzdmhmbDBDZUZkd9IBowFBVV95cUxOMUNMZktUYzdrQzd3ZkFvMzQ4bkZpb21WeHFIS29hXzBaTTYweXg3ZXkxWGVBZEdBY083RVczMVJEX2lRWlBOZ09mclhZTWZpbkVsakV5aEwzQV9hLS1ZVTZzUmw3WmNNRE9LQzlMd21GeHoyendmUjJEUnFoVUFFT0tvcXVSTm5DdE1EemRuZWtxSmlnYzcyaFBEeHdqclFiZXcw?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxOUjAybTdMVnQzakR4cmwwSG9aWUdOajZkMU04YkNqdE1XRjdnMmt6bGNqeXd2YUpQdnpHd3ROOXVGX28zSnFrb05zQ0d5YW9BOXAzYl9NRmZIQTVpdXNkb0lLQmVJTmhrbkczQWNoUG1sNC13ejlabzlSdHk5cUhpUlVDb2Z5RG4zYU4xVkdQeDZaQlAzdmhmbDBDZUZkd9IBowFBVV95cUxOMUNMZktUYzdrQzd3ZkFvMzQ4bkZpb21WeHFIS29hXzBaTTYweXg3ZXkxWGVBZEdBY083RVczMVJEX2lRWlBOZ09mclhZTWZpbkVsakV5aEwzQV9hLS1ZVTZzUmw3WmNNRE9LQzlMd21GeHoyendmUjJEUnFoVUFFT0tvcXVSTm5DdE1EemRuZWtxSmlnYzcyaFBEeHdqclFiZXcw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
