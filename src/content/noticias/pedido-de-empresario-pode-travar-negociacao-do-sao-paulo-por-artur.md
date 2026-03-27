@@ -1,0 +1,13 @@
+---
+title: "Pedido de empresário pode travar negociação do São Paulo por Artur"
+description: "Pedido de empresário pode travar negociação do São Paulo por Artur  Terra"
+pubDate: "2026-03-27T14:48:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi_wFBVV95cUxOemM0LTJCUEVBRmRnRDdHVVFEMFFxWHBRS0E3Z0U2Ql9iVUx4QkUzMUdEUDc4Sl82cy1MaFdPTHlReDhSWWpXRGx0SmNVVWgxUUZGS0lURXZhaDM5cWl1d3JvMHFGS1dDVExkalBoaVpTYnVpa2NfeHJ4MjItdW5FdW0yRC13MEw2bEpaWDFrb2o5M1d6SmUzcXlyWHNOQ2pTc0NIaTNrM2gxc0pTc3Rmdk1ybEFhUVJTaWFYZUlrOWNmckVTYjJEZG4yUzJ6Uzl2U2IxRU9DdkswdGd3a0hFQmc2SENzME14cmFjTkRwbkxUUHBmX3NHQ1JRaUFDVms?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_wFBVV95cUxOemM0LTJCUEVBRmRnRDdHVVFEMFFxWHBRS0E3Z0U2Ql9iVUx4QkUzMUdEUDc4Sl82cy1MaFdPTHlReDhSWWpXRGx0SmNVVWgxUUZGS0lURXZhaDM5cWl1d3JvMHFGS1dDVExkalBoaVpTYnVpa2NfeHJ4MjItdW5FdW0yRC13MEw2bEpaWDFrb2o5M1d6SmUzcXlyWHNOQ2pTc0NIaTNrM2gxc0pTc3Rmdk1ybEFhUVJTaWFYZUlrOWNmckVTYjJEZG4yUzJ6Uzl2U2IxRU9DdkswdGd3a0hFQmc2SENzME14cmFjTkRwbkxUUHBmX3NHQ1JRaUFDVms?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
