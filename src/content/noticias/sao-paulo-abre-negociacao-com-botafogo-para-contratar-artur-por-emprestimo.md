@@ -1,0 +1,13 @@
+---
+title: "São Paulo abre negociação com Botafogo para contratar Artur por empréstimo"
+description: "São Paulo abre negociação com Botafogo para contratar Artur por empréstimo  Terra"
+pubDate: "2026-03-27T02:33:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiigJBVV95cUxOQWhoVWxjNzBFVEpyQXpoX1JhNmFQNGlRaWQ5cWw1ZTRITFFUM0dHZFBDVE1qUEg5cnU5RUZESWwtSDZ4RWJTay03VFVQX0M4ei1La3FIVXR0WGw3XzBnLWI3ZC1DOEVsZWY1Y1J5b0xRZUhEa1JqZTR2REdvLXltSEtMWERYb1Q5aElFRlNoZmlRV0tTeEJNVXF6MFB2ak0tMnpFSFNEck5JYmFUSTJxT25YcmkydW9iOURydUNRQTVFaEY2MndDU01VbV9KUUNXbHNTUE4tY0dMeGlJSXdrazRwaWRoaTFrMVFVNmY0MHFaSTVvemJvSmhNbThlTDdJWlhTam9qcVItUQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigJBVV95cUxOQWhoVWxjNzBFVEpyQXpoX1JhNmFQNGlRaWQ5cWw1ZTRITFFUM0dHZFBDVE1qUEg5cnU5RUZESWwtSDZ4RWJTay03VFVQX0M4ei1La3FIVXR0WGw3XzBnLWI3ZC1DOEVsZWY1Y1J5b0xRZUhEa1JqZTR2REdvLXltSEtMWERYb1Q5aElFRlNoZmlRV0tTeEJNVXF6MFB2ak0tMnpFSFNEck5JYmFUSTJxT25YcmkydW9iOURydUNRQTVFaEY2MndDU01VbV9KUUNXbHNTUE4tY0dMeGlJSXdrazRwaWRoaTFrMVFVNmY0MHFaSTVvemJvSmhNbThlTDdJWlhTam9qcVItUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

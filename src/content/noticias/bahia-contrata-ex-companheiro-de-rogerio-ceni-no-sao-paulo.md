@@ -1,0 +1,13 @@
+---
+title: "Bahia contrata ex-companheiro de Rogério Ceni no São Paulo"
+description: "Bahia contrata ex-companheiro de Rogério Ceni no São Paulo  Esporte News Mundo"
+pubDate: "2026-03-26T18:56:35.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxOUjNSdjlDd0dmY1dVeTNxTWtLYkZrQk8zTmNtc1ltbXRTYjBSbmU5WTk2VWtaclU3U3FtZm1Tb2c1RUZta1dSeGtOZmJGQVRYOUJyWF8zbHF5Q2xKMnVZUkk0Ukp4Nkh1ZWlvaFhBS25QNzBIT1c4OXhRWFBCZ2hYXzZWWFN0Vm5RdDR2UUlnSUVSQ2xoT1HSAZsBQVVfeXFMUGVFdl9tN0ZHMllSXzZUNXZHVkV3MDhjRXhDQ2V6bUhqdFBEcGstS0JHcXlNSlZUVHZYVllibkxjbVBuenZEYnFkaXZDU0ZDUVVKS1E3TmxzbDVLTnpZdEtlRVZLNFlvaDAwVllhREZvZm1RZUQtaHNTZ1hXOXhVT3VwLWwwR01TTU1pUk1udXNieWhlcHZwaTJsYTA?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxOUjNSdjlDd0dmY1dVeTNxTWtLYkZrQk8zTmNtc1ltbXRTYjBSbmU5WTk2VWtaclU3U3FtZm1Tb2c1RUZta1dSeGtOZmJGQVRYOUJyWF8zbHF5Q2xKMnVZUkk0Ukp4Nkh1ZWlvaFhBS25QNzBIT1c4OXhRWFBCZ2hYXzZWWFN0Vm5RdDR2UUlnSUVSQ2xoT1HSAZsBQVVfeXFMUGVFdl9tN0ZHMllSXzZUNXZHVkV3MDhjRXhDQ2V6bUhqdFBEcGstS0JHcXlNSlZUVHZYVllibkxjbVBuenZEYnFkaXZDU0ZDUVVKS1E3TmxzbDVLTnpZdEtlRVZLNFlvaDAwVllhREZvZm1RZUQtaHNTZ1hXOXhVT3VwLWwwR01TTU1pUk1udXNieWhlcHZwaTJsYTA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

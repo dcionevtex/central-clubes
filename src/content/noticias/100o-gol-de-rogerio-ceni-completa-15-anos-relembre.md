@@ -1,0 +1,13 @@
+---
+title: "100º gol de Rogério Ceni completa 15 anos; relembre"
+description: "100º gol de Rogério Ceni completa 15 anos; relembre  Gazeta Esportiva"
+pubDate: "2026-03-27T12:12:53.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxNWUZ0RGtkbnlJZmVkckd6UVpnZ2VqUkZaMWFNSjNGVUFBdDJxZ2tZcmpOMC04dXFQVHowUE1lM19qX1V2U1dfckUxazNPN25SVWItVTZCX1pMVVhzTnlITnRxNXFLLW9EUTNvU1hXcWs4d2xLdU5SZXYzRjd5SHR6ZWZjanJFQUdIS1R6bS1TWHBKOVU4YXpLMHdDalFQREc50gGmAUFVX3lxTE84TDJjWVQ5QlQtejV4V3gzVjJtUE5WcGkwRUxISURFUnJSTXB6cHR6cGtLLVBlYm1MekhOdExDalBvUXZrcEZKVkZTcXVzX0ZoMnJzUUIzTzhaMUxWdjlvM0pvSWgtM3gtZDIxaGJUMnBYMmc2MGI5MXdzbkoyaWRCZHpUTDROZDRuUzVKNE9VOTFUOEw2VnJHTDNpUks2WEh0VWE3RGc?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxNWUZ0RGtkbnlJZmVkckd6UVpnZ2VqUkZaMWFNSjNGVUFBdDJxZ2tZcmpOMC04dXFQVHowUE1lM19qX1V2U1dfckUxazNPN25SVWItVTZCX1pMVVhzTnlITnRxNXFLLW9EUTNvU1hXcWs4d2xLdU5SZXYzRjd5SHR6ZWZjanJFQUdIS1R6bS1TWHBKOVU4YXpLMHdDalFQREc50gGmAUFVX3lxTE84TDJjWVQ5QlQtejV4V3gzVjJtUE5WcGkwRUxISURFUnJSTXB6cHR6cGtLLVBlYm1MekhOdExDalBvUXZrcEZKVkZTcXVzX0ZoMnJzUUIzTzhaMUxWdjlvM0pvSWgtM3gtZDIxaGJUMnBYMmc2MGI5MXdzbkoyaWRCZHpUTDROZDRuUzVKNE9VOTFUOEw2VnJHTDNpUks2WEh0VWE3RGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
