@@ -1,0 +1,13 @@
+---
+title: "São Paulo prepara mudanças na formação"
+description: "São Paulo prepara mudanças na formação  ABCD Jornal"
+pubDate: "2026-03-27T17:30:30.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxQT2M5cjAta3R2YmprOG9RV0V0NERieDY4N1pHdEJtcV9DaUhIVDRldThNVEM3Y0xoN2JFTjVPNFF3Wkd3b0lDNmh5djJaak9wZXdPRUk5SWV2ekVpMEJhbHpnUGUxYlB4M1dRaThMOFVBdExoTll3eGRuNzRuQjQ1bk9vU3NJeEhBbHpkQm1fWDNDZ3ZYYXI2bHotUnLSAZwBQVVfeXFMUE9jOXIwLWt0dmJqazhvUVdFdDREYng2ODdaR3RCbXFfQ2lISFQ0ZXU4TVRDN2NMaDdiRU41TzRRd1pHd29JQzZoeXYyWmpPcGV3T0VJOUlldnpFaTBCYWx6Z1BlMWJQeDNXUWk4TDhVQXRMaE5Zd3hkbjc0bkI0NW5Pb1NzSXhIQWx6ZEJtX1gzQ2d2WGFyNmx6LVJy?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxQT2M5cjAta3R2YmprOG9RV0V0NERieDY4N1pHdEJtcV9DaUhIVDRldThNVEM3Y0xoN2JFTjVPNFF3Wkd3b0lDNmh5djJaak9wZXdPRUk5SWV2ekVpMEJhbHpnUGUxYlB4M1dRaThMOFVBdExoTll3eGRuNzRuQjQ1bk9vU3NJeEhBbHpkQm1fWDNDZ3ZYYXI2bHotUnLSAZwBQVVfeXFMUE9jOXIwLWt0dmJqazhvUVdFdDREYng2ODdaR3RCbXFfQ2lISFQ0ZXU4TVRDN2NMaDdiRU41TzRRd1pHd29JQzZoeXYyWmpPcGV3T0VJOUlldnpFaTBCYWx6Z1BlMWJQeDNXUWk4TDhVQXRMaE5Zd3hkbjc0bkI0NW5Pb1NzSXhIQWx6ZEJtX1gzQ2d2WGFyNmx6LVJy?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
