@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem nova reprovação das contas de 2025"
+description: "São Paulo tem nova reprovação das contas de 2025  Portal Hortolândia"
+pubDate: "2026-03-28T11:13:46.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE0tNktHU01FeGdqemFEX0o1ZGNzNzFWOWttRWlJdDVpRVZuNUxFNTFEUmNOVHhWdDBESFREZ2kxYWVtU0E1T3FocXBDSUtuX1JjelZzcVpXWlZXY1ZObVNnM0FSa3dsNWZUTmM1Um1sY05JXy1meDVfdEY0VzjSAXxBVV95cUxNLTZLR1NNRXhnanphRF9KNWRjczcxVjlrbUVpSXQ1aUVWbjVMRTUxRFJjTlR4VnQwREhURGdpMWFlbVNBNU9xaHFwQ0lLbl9SY3pWc3FaV1pWV2NWTm1TZzNBUmt3bDVmVE5jNVJtbGNOSV8tZng1X3RGNFc4?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE0tNktHU01FeGdqemFEX0o1ZGNzNzFWOWttRWlJdDVpRVZuNUxFNTFEUmNOVHhWdDBESFREZ2kxYWVtU0E1T3FocXBDSUtuX1JjelZzcVpXWlZXY1ZObVNnM0FSa3dsNWZUTmM1Um1sY05JXy1meDVfdEY0VzjSAXxBVV95cUxNLTZLR1NNRXhnanphRF9KNWRjczcxVjlrbUVpSXQ1aUVWbjVMRTUxRFJjTlR4VnQwREhURGdpMWFlbVNBNU9xaHFwQ0lLbl9SY3pWc3FaV1pWV2NWTm1TZzNBUmt3bDVmVE5jNVJtbGNOSV8tZng1X3RGNFc4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
