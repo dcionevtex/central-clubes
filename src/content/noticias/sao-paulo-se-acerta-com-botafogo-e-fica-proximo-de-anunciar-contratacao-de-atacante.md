@@ -1,0 +1,13 @@
+---
+title: "São Paulo se acerta com Botafogo e fica próximo de anunciar contratação de atacante"
+description: "São Paulo se acerta com Botafogo e fica próximo de anunciar contratação de atacante  Rádio Itatiaia"
+pubDate: "2026-03-27T23:38:31.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMihwJBVV95cUxPVXVpdmpTNFdXbm4wWVZSWEVGdUNSZ2g1MHpvNEptN3VZMURYSWVFdU9lSjlucDJaWFJGVjZYUEtUODUyZVNFbHVNeVhPY3NQa2dBYzhZUXdOdzdVZWtJVWwtd2lhSkozUjZWcmdUNF9TZUEzSmc0bnhLMmJ0bzNfT3g3Y3BucFBaSU1JOFdnU09CQUpHMXUtaUE3aXRNVjI4dnhTR0U1Z2JHTVdXNzNiRkcwR1RhdUtOeUZkX0NqcHhZSXhYY2M1cWV3enFTZGFGWlF0cU5kVDI5UTZ5YzVOQVVTRGk2LXNPeTdsTF9IZVJNTDhUV0tjMW5vTTkzOVFYZE4xSkxiYw?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwJBVV95cUxPVXVpdmpTNFdXbm4wWVZSWEVGdUNSZ2g1MHpvNEptN3VZMURYSWVFdU9lSjlucDJaWFJGVjZYUEtUODUyZVNFbHVNeVhPY3NQa2dBYzhZUXdOdzdVZWtJVWwtd2lhSkozUjZWcmdUNF9TZUEzSmc0bnhLMmJ0bzNfT3g3Y3BucFBaSU1JOFdnU09CQUpHMXUtaUE3aXRNVjI4dnhTR0U1Z2JHTVdXNzNiRkcwR1RhdUtOeUZkX0NqcHhZSXhYY2M1cWV3enFTZGFGWlF0cU5kVDI5UTZ5YzVOQVVTRGk2LXNPeTdsTF9IZVJNTDhUV0tjMW5vTTkzOVFYZE4xSkxiYw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
