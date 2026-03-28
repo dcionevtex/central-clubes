@@ -1,0 +1,13 @@
+---
+title: "Dupla treina normalmente, e Roger Machado comanda atividade tática no São Paulo"
+description: "Dupla treina normalmente, e Roger Machado comanda atividade tática no São Paulo  Gazeta Esportiva"
+pubDate: "2026-03-28T18:48:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxPYUVQQ29ycjlDLU10aVBLMkg3UWlSYks5UExIWGlaRm1TU2ViWFdpWnotNFZITWEtNURQNFp3OXZFMkJOSTN6MVBFbnh2WmtWRFRQUVRmQ3FreWxvQUxIZlFsUmk5bVRlMEo3MHh4ZmxWc3BfMmlXSVlRdmhxTjAtdDlCZTdvbXFobUVpdHRsR19BVVFRM05lN0pRQUtEYjYy0gGmAUFVX3lxTE1JalBRSjRHbjI2WGxueTR5YTEteW1SLWp2Q2JxcENuY19yVnAxb3ltVko5Z3VNNElEM2ZkcmI0aEtZakRTbjBYWDNQbXdOVG1LWl9HVW9ZZ29ySFlVT3BUa08wVE1za1o1WlA1ZWlyNnZZRXJudVFCR3NHUXRKRUNnbVdCMldUNzZqWENSdXJQQkJ3N3hYZVVJUjJMSGhKUUxoVzhsX2c?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxPYUVQQ29ycjlDLU10aVBLMkg3UWlSYks5UExIWGlaRm1TU2ViWFdpWnotNFZITWEtNURQNFp3OXZFMkJOSTN6MVBFbnh2WmtWRFRQUVRmQ3FreWxvQUxIZlFsUmk5bVRlMEo3MHh4ZmxWc3BfMmlXSVlRdmhxTjAtdDlCZTdvbXFobUVpdHRsR19BVVFRM05lN0pRQUtEYjYy0gGmAUFVX3lxTE1JalBRSjRHbjI2WGxueTR5YTEteW1SLWp2Q2JxcENuY19yVnAxb3ltVko5Z3VNNElEM2ZkcmI0aEtZakRTbjBYWDNQbXdOVG1LWl9HVW9ZZ29ySFlVT3BUa08wVE1za1o1WlA1ZWlyNnZZRXJudVFCR3NHUXRKRUNnbVdCMldUNzZqWENSdXJQQkJ3N3hYZVVJUjJMSGhKUUxoVzhsX2c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

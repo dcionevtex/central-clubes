@@ -1,0 +1,13 @@
+---
+title: "São Paulo prepara mudanças e Tetê pode ganhar minutos"
+description: "São Paulo prepara mudanças e Tetê pode ganhar minutos  Portal Hortolândia"
+pubDate: "2026-03-28T18:34:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE5MT0tCTzFVM1JyOGh4cEtla2w3SlpVWWxfSHAwZmppWEtfMmFCVlBwMmlaVGNXSElDUjFMSHhSamRTYjlLNHdFN0IxMmVveGM1b3NLNk5jRmkzckUwaXgtdi16d0VhN2lCQlI3Y1R3VEgwQW5LNW5TdFFfT2_SAXxBVV95cUxOTE9LQk8xVTNScjhoeHBLZWtsN0paVVlsX0hwMGZqaVhLXzJhQlZQcDJpWlRjV0hJQ1IxTEh4UmpkU2I5SzR3RTdCMTJlb3hjNW9zSzZOY0ZpM3JFMGl4LXYtendFYTdpQkJSN2NUd1RIMEFuSzVuU3RRX09v?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE5MT0tCTzFVM1JyOGh4cEtla2w3SlpVWWxfSHAwZmppWEtfMmFCVlBwMmlaVGNXSElDUjFMSHhSamRTYjlLNHdFN0IxMmVveGM1b3NLNk5jRmkzckUwaXgtdi16d0VhN2lCQlI3Y1R3VEgwQW5LNW5TdFFfT2_SAXxBVV95cUxOTE9LQk8xVTNScjhoeHBLZWtsN0paVVlsX0hwMGZqaVhLXzJhQlZQcDJpWlRjV0hJQ1IxTEh4UmpkU2I5SzR3RTdCMTJlb3hjNW9zSzZOY0ZpM3JFMGl4LXYtendFYTdpQkJSN2NUd1RIMEFuSzVuU3RRX09v?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

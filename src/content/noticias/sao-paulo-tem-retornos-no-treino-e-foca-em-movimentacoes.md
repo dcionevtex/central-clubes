@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem retornos no treino e foca em movimentações"
+description: "São Paulo tem retornos no treino e foca em movimentações  Portal Hortolândia"
+pubDate: "2026-03-28T19:17:30.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTFBlc0NVMkhEdDJnbzV4dlRmYUxNamJkdlpHNjQta3hCaFRFSGJoT0dKOWVaUi1NTnR6VnBTTUp4WUJrZUJrQ3RkUzlZT3dUaXFjVWxwUnIzNm9mZHNSdmJieXVGTDJjY25ZRGluYjFGR3hGWXREV0FraFlPNncyQdIBfkFVX3lxTFBlc0NVMkhEdDJnbzV4dlRmYUxNamJkdlpHNjQta3hCaFRFSGJoT0dKOWVaUi1NTnR6VnBTTUp4WUJrZUJrQ3RkUzlZT3dUaXFjVWxwUnIzNm9mZHNSdmJieXVGTDJjY25ZRGluYjFGR3hGWXREV0FraFlPNncyQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTFBlc0NVMkhEdDJnbzV4dlRmYUxNamJkdlpHNjQta3hCaFRFSGJoT0dKOWVaUi1NTnR6VnBTTUp4WUJrZUJrQ3RkUzlZT3dUaXFjVWxwUnIzNm9mZHNSdmJieXVGTDJjY25ZRGluYjFGR3hGWXREV0FraFlPNncyQdIBfkFVX3lxTFBlc0NVMkhEdDJnbzV4dlRmYUxNamJkdlpHNjQta3hCaFRFSGJoT0dKOWVaUi1NTnR6VnBTTUp4WUJrZUJrQ3RkUzlZT3dUaXFjVWxwUnIzNm9mZHNSdmJieXVGTDJjY25ZRGluYjFGR3hGWXREV0FraFlPNncyQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
