@@ -1,0 +1,13 @@
+---
+title: "São Paulo oficializa a contratação de Artur"
+description: "São Paulo oficializa a contratação de Artur  Portal Hortolândia"
+pubDate: "2026-03-28T22:29:44.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE9zTWlMc2ZOSUxqdWRpSG13Vi1XZmR4NlUzRXZTaktsMzYya1lMNjFtTGlfVTFXampfME45VjhtSjZ4WEZ5bHlKZ3E1bkpxNml3bGdkWUlOVlRfZ2taTW1CR2xlTW40N0NjZTRaRTlRN28yOURlSjlBX3EyWVprWlXSAX9BVV95cUxPc01pTHNmTklManVkaUhtd1YtV2ZkeDZVM0V2U2pLbDM2MmtZTDYxbUxpX1UxV2pqXzBOOVY4bUo2eFhGeWx5SmdxNW5KcTZpd2xnZFlJTlZUX2drWk1tQkdsZU1uNDdDY2U0WkU5UTdvMjlEZUo5QV9xMllaa1pV?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE9zTWlMc2ZOSUxqdWRpSG13Vi1XZmR4NlUzRXZTaktsMzYya1lMNjFtTGlfVTFXampfME45VjhtSjZ4WEZ5bHlKZ3E1bkpxNml3bGdkWUlOVlRfZ2taTW1CR2xlTW40N0NjZTRaRTlRN28yOURlSjlBX3EyWVprWlXSAX9BVV95cUxPc01pTHNmTklManVkaUhtd1YtV2ZkeDZVM0V2U2pLbDM2MmtZTDYxbUxpX1UxV2pqXzBOOVY4bUo2eFhGeWx5SmdxNW5KcTZpd2xnZFlJTlZUX2drWk1tQkdsZU1uNDdDY2U0WkU5UTdvMjlEZUo5QV9xMllaa1pV?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

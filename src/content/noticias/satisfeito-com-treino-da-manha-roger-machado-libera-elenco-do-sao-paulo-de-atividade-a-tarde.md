@@ -1,0 +1,13 @@
+---
+title: "Satisfeito com treino da manhã, Roger Machado libera elenco do São Paulo de atividade à tarde"
+description: "Satisfeito com treino da manhã, Roger Machado libera elenco do São Paulo de atividade à tarde  Bolavip Brasil"
+pubDate: "2026-03-28T22:44:44.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQQlJsWHRjWXZqRXprU084V0tvZjRkNlZqQk1pTVV0a0ROS3BPaXZsUlcyQjk2Tkd1RG00NllKaXJBLVMwOEJZR3labWc2SV96d21zZDFjTlpxak5kRlhYTVlkX2ZlYmFKbjBkZ3JHZW15VGl0NWdnZ25jWlVYWVlfbDRHM041clVkMnlTdlpPb2N1UFZlcnRYMHU2Vk5ycTV0VEpaddIBqgFBVV95cUxQQVUxd2tEeTc5aWlvelBNSGRoVEtFaGdtWXhydnBaakNDcU1CTWRUMlpFS2RVa0NCS1dPNVM2WTVkZkVZdFJ1dEhTN2RFcENrNHdGX0JTWnJkUG53WUd3cG52NHpwWi1qUXdpZGlsOTVkRktHbXdEVGNudVJma3ZpTlp0UU5WM1JNTmN2UWp1bDQ2by13UnVCV0NQczJsTUppaWdnVEllWHZEQQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxQQlJsWHRjWXZqRXprU084V0tvZjRkNlZqQk1pTVV0a0ROS3BPaXZsUlcyQjk2Tkd1RG00NllKaXJBLVMwOEJZR3labWc2SV96d21zZDFjTlpxak5kRlhYTVlkX2ZlYmFKbjBkZ3JHZW15VGl0NWdnZ25jWlVYWVlfbDRHM041clVkMnlTdlpPb2N1UFZlcnRYMHU2Vk5ycTV0VEpaddIBqgFBVV95cUxQQVUxd2tEeTc5aWlvelBNSGRoVEtFaGdtWXhydnBaakNDcU1CTWRUMlpFS2RVa0NCS1dPNVM2WTVkZkVZdFJ1dEhTN2RFcENrNHdGX0JTWnJkUG53WUd3cG52NHpwWi1qUXdpZGlsOTVkRktHbXdEVGNudVJma3ZpTlp0UU5WM1JNTmN2UWp1bDQ2by13UnVCV0NQczJsTUppaWdnVEllWHZEQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
