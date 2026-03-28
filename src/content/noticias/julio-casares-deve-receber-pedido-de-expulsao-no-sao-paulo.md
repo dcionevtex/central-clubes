@@ -1,0 +1,13 @@
+---
+title: "Julio Casares deve receber pedido de expulsão no São Paulo"
+description: "Julio Casares deve receber pedido de expulsão no São Paulo  Portal Hortolândia"
+pubDate: "2026-03-28T13:35:38.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE9RYWo3RU5WNXg4WnVxT3dha1BEUjVGS2J0czhxcFI4YmZTeVBCM19BdUVoRGRINnEwaVZwMDlEZU9sZ1lMRFFTOE92VDdmb1h4R21za2hWbnVhSDdjSkZzZllZMmlIZ1hIVjdOd3M5U0NLVFRRbnJYWXVB0gF6QVVfeXFMT1FhajdFTlY1eDhadXFPd2FrUERSNUZLYnRzOHFwUjhiZlN5UEIzX0F1RWhEZEg2cTBpVnAwOURlT2xnWUxEUVM4T3ZUN2ZvWHhHbXNraFZudWFIN2NKRnNmWVkyaUhnWEhWN053czlTQ0tUVFFuclhZdUE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE9RYWo3RU5WNXg4WnVxT3dha1BEUjVGS2J0czhxcFI4YmZTeVBCM19BdUVoRGRINnEwaVZwMDlEZU9sZ1lMRFFTOE92VDdmb1h4R21za2hWbnVhSDdjSkZzZllZMmlIZ1hIVjdOd3M5U0NLVFRRbnJYWXVB0gF6QVVfeXFMT1FhajdFTlY1eDhadXFPd2FrUERSNUZLYnRzOHFwUjhiZlN5UEIzX0F1RWhEZEg2cTBpVnAwOURlT2xnWUxEUVM4T3ZUN2ZvWHhHbXNraFZudWFIN2NKRnNmWVkyaUhnWEhWN053czlTQ0tUVFFuclhZdUE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
