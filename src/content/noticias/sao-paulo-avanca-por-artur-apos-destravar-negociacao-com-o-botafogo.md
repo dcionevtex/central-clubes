@@ -1,0 +1,13 @@
+---
+title: "São Paulo avança por Artur após destravar negociação com o Botafogo"
+description: "São Paulo avança por Artur após destravar negociação com o Botafogo  Portal Leo Dias"
+pubDate: "2026-03-28T03:13:29.000Z"
+source: "Portal Leo Dias"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxPZDlEZjhkLXY3TWdDM2F6M3Z4bkJmTkV0RnQxWFpEZVFrXy1HRU9sLWF0ZE5PNG9VT1ZZelk4S3dpOXpNdWFaZzNvcWRnWlhfLV9qSTlTLURwNU1ZTHNjLU12dzY0d2kydl8wSWFJeXdKUDA0TlBaQmpEZF9RQUhfYUpMZVQzMDF0TXJEQnd4aWJneVNRNW5STmNMVW05eWI0cHlYX9IBqgFBVV95cUxOeHowUTcwNFFabTBfa3VSSmtMZDBiUmNZSjlMeTlEbXFTTDNNN3hqdzM2RWF2aHRvVDl5Q0lkbXktYnhZR3c0UnNiVEZ2b2ZfblpNa0xyN3lDMVZVNEV1bnFTb19GcDNXZ2NhMHEzWXQ5eGdFcTFIT0ZoQlc4c2VuWFFUeDAzUVJrY2RsT3kxLVJHMHdsY0J2X1FBdW9wUzNIZHExNkZPNWRFQQ?oc=5"
+---
+
+### Fonte Original: Portal Leo Dias
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxPZDlEZjhkLXY3TWdDM2F6M3Z4bkJmTkV0RnQxWFpEZVFrXy1HRU9sLWF0ZE5PNG9VT1ZZelk4S3dpOXpNdWFaZzNvcWRnWlhfLV9qSTlTLURwNU1ZTHNjLU12dzY0d2kydl8wSWFJeXdKUDA0TlBaQmpEZF9RQUhfYUpMZVQzMDF0TXJEQnd4aWJneVNRNW5STmNMVW05eWI0cHlYX9IBqgFBVV95cUxOeHowUTcwNFFabTBfa3VSSmtMZDBiUmNZSjlMeTlEbXFTTDNNN3hqdzM2RWF2aHRvVDl5Q0lkbXktYnhZR3c0UnNiVEZ2b2ZfblpNa0xyN3lDMVZVNEV1bnFTb19GcDNXZ2NhMHEzWXQ5eGdFcTFIT0ZoQlc4c2VuWFFUeDAzUVJrY2RsT3kxLVJHMHdsY0J2X1FBdW9wUzNIZHExNkZPNWRFQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
