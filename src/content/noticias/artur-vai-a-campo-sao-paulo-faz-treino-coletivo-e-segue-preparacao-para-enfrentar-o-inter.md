@@ -1,0 +1,13 @@
+---
+title: "Artur vai a campo, São Paulo faz treino coletivo e segue preparação para enfrentar o Inter"
+description: "Artur vai a campo, São Paulo faz treino coletivo e segue preparação para enfrentar o Inter  Gazeta Esportiva"
+pubDate: "2026-03-29T17:34:53.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMijAFBVV95cUxNTTBuN0hTVk45YWl0OUpDYndwOE9NVnp4Mkw3Y3Z4VGFXRmRla1JtOWNicXl5NGpuSE44TDdaZEExSmVRcTJsWVAtajAxcGl6ZVBKcXpTTkxucWl1d2lZNnNDNmltRG1wMzNyc0RVc2xBVzUyYV9HV1ZyLVJjbnFvQVFsakdGZF9wVnNLedIBjAFBVV95cUxNTTBuN0hTVk45YWl0OUpDYndwOE9NVnp4Mkw3Y3Z4VGFXRmRla1JtOWNicXl5NGpuSE44TDdaZEExSmVRcTJsWVAtajAxcGl6ZVBKcXpTTkxucWl1d2lZNnNDNmltRG1wMzNyc0RVc2xBVzUyYV9HV1ZyLVJjbnFvQVFsakdGZF9wVnNLeQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAFBVV95cUxNTTBuN0hTVk45YWl0OUpDYndwOE9NVnp4Mkw3Y3Z4VGFXRmRla1JtOWNicXl5NGpuSE44TDdaZEExSmVRcTJsWVAtajAxcGl6ZVBKcXpTTkxucWl1d2lZNnNDNmltRG1wMzNyc0RVc2xBVzUyYV9HV1ZyLVJjbnFvQVFsakdGZF9wVnNLedIBjAFBVV95cUxNTTBuN0hTVk45YWl0OUpDYndwOE9NVnp4Mkw3Y3Z4VGFXRmRla1JtOWNicXl5NGpuSE44TDdaZEExSmVRcTJsWVAtajAxcGl6ZVBKcXpTTkxucWl1d2lZNnNDNmltRG1wMzNyc0RVc2xBVzUyYV9HV1ZyLVJjbnFvQVFsakdGZF9wVnNLeQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
