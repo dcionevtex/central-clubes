@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem queda de aproveitamento no Brasileirão em início de Roger Machado; veja números"
+description: "São Paulo tem queda de aproveitamento no Brasileirão em início de Roger Machado; veja números  Gazeta Esportiva"
+pubDate: "2026-03-29T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxPTU9PckZiY0V0bHJHWVd4LVVuRjZZRk1kcUpwTzZTS1RzSTNBeW9fTFdiaHIweDd4a28zaG5fX3VWUTdGb1pZcVJiaXNFYk94UjVqWWVkX3hpdG1rTGRDemFzMldzcDg2Z1ZsSXZrUmRCaWpwTVFKOUF5NFMwNXVadEtSY2xBNHJJbC1KRmdwSUIxOXRCa0xCQ2lFSHjSAaIBQVVfeXFMTmJTS19TdXZ2WTJ0dEMyQ29vdTdCdnFCckdUT1FZR21JR0ExTlhZNlpycnE4SW05Nk1oOTg0b2tMSGxmVzFEa2k5T2NJYVQ5M25PMmdIX01TTlpka2pLQm5IRHBvTDhLZzRRUFYwRDFVT2xWbHZuNzA4UGpXR2dUcWdibUZ3WVAtVkNWMG0zaDBjN3hIUHFqX0ZTOWpvM29uUEtB?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxPTU9PckZiY0V0bHJHWVd4LVVuRjZZRk1kcUpwTzZTS1RzSTNBeW9fTFdiaHIweDd4a28zaG5fX3VWUTdGb1pZcVJiaXNFYk94UjVqWWVkX3hpdG1rTGRDemFzMldzcDg2Z1ZsSXZrUmRCaWpwTVFKOUF5NFMwNXVadEtSY2xBNHJJbC1KRmdwSUIxOXRCa0xCQ2lFSHjSAaIBQVVfeXFMTmJTS19TdXZ2WTJ0dEMyQ29vdTdCdnFCckdUT1FZR21JR0ExTlhZNlpycnE4SW05Nk1oOTg0b2tMSGxmVzFEa2k5T2NJYVQ5M25PMmdIX01TTlpka2pLQm5IRHBvTDhLZzRRUFYwRDFVT2xWbHZuNzA4UGpXR2dUcWdibUZ3WVAtVkNWMG0zaDBjN3hIUHFqX0ZTOWpvM29uUEtB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
