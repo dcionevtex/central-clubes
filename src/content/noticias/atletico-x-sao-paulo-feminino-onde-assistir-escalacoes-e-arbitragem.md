@@ -1,0 +1,13 @@
+---
+title: "Atlético x São Paulo (feminino): onde assistir, escalações e arbitragem"
+description: "Atlético x São Paulo (feminino): onde assistir, escalações e arbitragem  Jogada 10"
+pubDate: "2026-03-29T21:44:26.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxQUEtnOHVqejdoS0JpcnJJWWI3blMyei1JZUNoajFtMGZueWFhTEVpakNzOTI0eTBCOFFsMmo1ejBwbXZiN2lSY2dZRU9OM180WlJKa2UyU3hIWXNvNWpIZnB2eWFjR3lnY19CaFNQZ0xMcUk5d2JvSnpvaXItSGRGUmZXUHVsQkVPdmprUmRvUlVhejJFX1Zj0gGcAUFVX3lxTE9ZTWFUdGU5VzBxdTNDT2xRWS1HcEkwaDN6bU56SDR1Smh2Nnd0U0hrbG5BVGRMZi1tWVRyemxiU0dqdDkybnA1bVlPOWQtbXpPQVpsZFlSTFpBU3UyVjdUSHpuTklHbmlJV3lPUnZZMHFHdWZzWi02Ty02bE5qS2VTeXVLM20tZk12RXkwNVBMTktiV2VEa3ZoX0VERw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxQUEtnOHVqejdoS0JpcnJJWWI3blMyei1JZUNoajFtMGZueWFhTEVpakNzOTI0eTBCOFFsMmo1ejBwbXZiN2lSY2dZRU9OM180WlJKa2UyU3hIWXNvNWpIZnB2eWFjR3lnY19CaFNQZ0xMcUk5d2JvSnpvaXItSGRGUmZXUHVsQkVPdmprUmRvUlVhejJFX1Zj0gGcAUFVX3lxTE9ZTWFUdGU5VzBxdTNDT2xRWS1HcEkwaDN6bU56SDR1Smh2Nnd0U0hrbG5BVGRMZi1tWVRyemxiU0dqdDkybnA1bVlPOWQtbXpPQVpsZFlSTFpBU3UyVjdUSHpuTklHbmlJV3lPUnZZMHFHdWZzWi02Ty02bE5qS2VTeXVLM20tZk12RXkwNVBMTktiV2VEa3ZoX0VERw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
