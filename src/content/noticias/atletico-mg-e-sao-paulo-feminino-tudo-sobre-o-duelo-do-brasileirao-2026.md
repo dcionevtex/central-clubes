@@ -1,0 +1,13 @@
+---
+title: "Atlético-MG e São Paulo Feminino: tudo sobre o duelo do Brasileirão 2026"
+description: "Atlético-MG e São Paulo Feminino: tudo sobre o duelo do Brasileirão 2026  douradostore.com.br"
+pubDate: "2026-03-29T14:06:57.000Z"
+source: "douradostore.com.br"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxOZ0dMMjNMWTEyeEhvMm1RTFV5LU9DSVJDSllvNlE0MzA1T0VucXM2MmtMOTFJOGVNeGMxbGwtTWp5TE5IdjlsQ084Um5FYk9OYkZfbzFEaTE5TkNJZUlnNXFfTG11WGtLT2NCYV9ydGlna05Zd09XQXhPX2F1TXZZMWpQZHVMVGRubVc4ZnRUZlNGd2Q3YW800gGXAUFVX3lxTE5nR0wyM0xZMTJ4SG8ybVFMVXktT0NJUkNKWW82UTQzMDVPRW5xczYya0w5MUk4ZU14YzFsbC1NanlMTkh2OWxDTzhSbkViT05iRl9vMURpMTlOQ0llSWc1cV9MbXVYa0tPY0JhX3J0aWdrTll3T1dBeE9fYXVNdlkxalBkdUxUZG5tVzhmdFRmU0Z3ZDdhbzQ?oc=5"
+---
+
+### Fonte Original: douradostore.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxOZ0dMMjNMWTEyeEhvMm1RTFV5LU9DSVJDSllvNlE0MzA1T0VucXM2MmtMOTFJOGVNeGMxbGwtTWp5TE5IdjlsQ084Um5FYk9OYkZfbzFEaTE5TkNJZUlnNXFfTG11WGtLT2NCYV9ydGlna05Zd09XQXhPX2F1TXZZMWpQZHVMVGRubVc4ZnRUZlNGd2Q3YW800gGXAUFVX3lxTE5nR0wyM0xZMTJ4SG8ybVFMVXktT0NJUkNKWW82UTQzMDVPRW5xczYya0w5MUk4ZU14YzFsbC1NanlMTkh2OWxDTzhSbkViT05iRl9vMURpMTlOQ0llSWc1cV9MbXVYa0tPY0JhX3J0aWdrTll3T1dBeE9fYXVNdlkxalBkdUxUZG5tVzhmdFRmU0Z3ZDdhbzQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
