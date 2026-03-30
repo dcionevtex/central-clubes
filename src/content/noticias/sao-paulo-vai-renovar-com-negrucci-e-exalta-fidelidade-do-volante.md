@@ -1,0 +1,13 @@
+---
+title: "São Paulo vai renovar com Negrucci e exalta fidelidade do volante"
+description: "São Paulo vai renovar com Negrucci e exalta fidelidade do volante  Jogada 10"
+pubDate: "2026-03-30T15:48:58.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxOb2tyWldpTlJjMGNNS2tEYS1NdU9LY3dRc3lmUVNsLVFEQl9uSkFGQW50aXN5LW9Jb3U1NzlRTHpVREJ0Q0tNbVExcEVBRmxCd0dyY1RrQWZhYVA4NU1zekZ3SjFnN2NtcUU0eldoY2F6LXJZRG9VN0FuLXdQZTd1VG5GdTg5SjdwcUFmNEdMaWVMZ2FB0gGaAUFVX3lxTFBYUWpiYVV5TXdiVEprUzk4WWp5RXhfWWFTbF9aalQ3WlV1M3JKcHNIY09MbkxFQ2g2el9Mb25jdjBTVV94a0pudC13WmM1cl9YLVVxbVpRcllJbkZldkZULWN6TEJab1A5SW94cUtQTFdfUWxUUG5Oa1J0VTZiTTNYSTVoV2pxaFlZbWZEa0dQQUZNQmR4eDUzbGc?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxOb2tyWldpTlJjMGNNS2tEYS1NdU9LY3dRc3lmUVNsLVFEQl9uSkFGQW50aXN5LW9Jb3U1NzlRTHpVREJ0Q0tNbVExcEVBRmxCd0dyY1RrQWZhYVA4NU1zekZ3SjFnN2NtcUU0eldoY2F6LXJZRG9VN0FuLXdQZTd1VG5GdTg5SjdwcUFmNEdMaWVMZ2FB0gGaAUFVX3lxTFBYUWpiYVV5TXdiVEprUzk4WWp5RXhfWWFTbF9aalQ3WlV1M3JKcHNIY09MbkxFQ2g2el9Mb25jdjBTVV94a0pudC13WmM1cl9YLVVxbVpRcllJbkZldkZULWN6TEJab1A5SW94cUtQTFdfUWxUUG5Oa1J0VTZiTTNYSTVoV2pxaFlZbWZEa0dQQUZNQmR4eDUzbGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
