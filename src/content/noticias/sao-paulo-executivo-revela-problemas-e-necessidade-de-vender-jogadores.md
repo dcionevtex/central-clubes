@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Executivo revela problemas e necessidade de vender jogadores"
+description: "São Paulo: Executivo revela problemas e necessidade de vender jogadores  Portal Hortolândia"
+pubDate: "2026-03-30T20:25:23.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxPdFE0Z095YlFfQUw3NTVzR3N5a3F3aWJNYjVmZ3lhUGJZY0N5T3E5VjB4U0FkMkxfZWJ5OXBnYmVWdmRUcERGLWlXZWlxeFVsazljSDFfeWgzekhmZTJWQXNkZEVMMkdiQ3F1VE04UVEzY2Z5dzdRZlZ0dmtKcVZsRW1ZSdIBgwFBVV95cUxPdFE0Z095YlFfQUw3NTVzR3N5a3F3aWJNYjVmZ3lhUGJZY0N5T3E5VjB4U0FkMkxfZWJ5OXBnYmVWdmRUcERGLWlXZWlxeFVsazljSDFfeWgzekhmZTJWQXNkZEVMMkdiQ3F1VE04UVEzY2Z5dzdRZlZ0dmtKcVZsRW1ZSQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxPdFE0Z095YlFfQUw3NTVzR3N5a3F3aWJNYjVmZ3lhUGJZY0N5T3E5VjB4U0FkMkxfZWJ5OXBnYmVWdmRUcERGLWlXZWlxeFVsazljSDFfeWgzekhmZTJWQXNkZEVMMkdiQ3F1VE04UVEzY2Z5dzdRZlZ0dmtKcVZsRW1ZSdIBgwFBVV95cUxPdFE0Z095YlFfQUw3NTVzR3N5a3F3aWJNYjVmZ3lhUGJZY0N5T3E5VjB4U0FkMkxfZWJ5OXBnYmVWdmRUcERGLWlXZWlxeFVsazljSDFfeWgzekhmZTJWQXNkZEVMMkdiQ3F1VE04UVEzY2Z5dzdRZlZ0dmtKcVZsRW1ZSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

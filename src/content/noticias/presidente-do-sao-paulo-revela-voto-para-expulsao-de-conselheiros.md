@@ -1,0 +1,13 @@
+---
+title: "Presidente do São Paulo revela voto para expulsão de conselheiros"
+description: "Presidente do São Paulo revela voto para expulsão de conselheiros  Rádio Itatiaia"
+pubDate: "2026-03-30T20:19:58.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9AFBVV95cUxOTGxTWHdxUjNuNmJfcFlka0ExejdWLWNIb2NlXzFSN1VUQmI5alg1Wmcwc2VlUk1ITVZQd2lkbzJRVzNuVXRtN1JBWmlNVFlhRS1ickNzbXFQTGpWUmxkWDNLOTI5MDhZTG9TX2JNZWJVc2lhYXJGYlJBUEtEVVlmOWFqeHAyUkZNWEROOU9xRmVuTW5ZRGZIX2NaYnZEWEdzTGRVS0pEVkRtZHVVdjFReUdwU0Q0TTVFTG5DcU9BME5mbDRoTWpLZDd0cExxRS1DcUJSa2RCbVlTa1BJdE93anV0OUxmT05vNzdFTDNHenFMNmEt?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9AFBVV95cUxOTGxTWHdxUjNuNmJfcFlka0ExejdWLWNIb2NlXzFSN1VUQmI5alg1Wmcwc2VlUk1ITVZQd2lkbzJRVzNuVXRtN1JBWmlNVFlhRS1ickNzbXFQTGpWUmxkWDNLOTI5MDhZTG9TX2JNZWJVc2lhYXJGYlJBUEtEVVlmOWFqeHAyUkZNWEROOU9xRmVuTW5ZRGZIX2NaYnZEWEdzTGRVS0pEVkRtZHVVdjFReUdwU0Q0TTVFTG5DcU9BME5mbDRoTWpLZDd0cExxRS1DcUJSa2RCbVlTa1BJdE93anV0OUxmT05vNzdFTDNHenFMNmEt?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

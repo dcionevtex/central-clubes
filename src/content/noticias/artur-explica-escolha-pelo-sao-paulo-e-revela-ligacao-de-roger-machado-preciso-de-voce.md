@@ -1,0 +1,13 @@
+---
+title: "Artur explica escolha pelo São Paulo e revela ligação de Roger Machado: “Preciso de você”"
+description: "Artur explica escolha pelo São Paulo e revela ligação de Roger Machado: “Preciso de você”  Gazeta Esportiva"
+pubDate: "2026-03-30T16:49:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxPR3lmOWVpS2hyNEE4UjByM1JHZEM3YldLeGlUazJaNnVJUFpWbGpLZkxnUEdfeUpwMF8xeGpkVmlIZktfQmZpUWxWSTlNQVZpMFc1TzN5RWkzT2VyTWpCSGwxWElpM2o1OEFDdndFUm43S0FQLWNHcFVDODM4UGR2NUlVQ20tZjFuZ3p3MW1uY9IBlAFBVV95cUxPM0JDcGdTa2ZyaC1Ua1ZucWw4dWJvbGQ2YnFOd2lRRGhhcmRCNk1sUThkbm1KR3Y5UUE3MDVEM2dXQ2pFZGlDY2VlT1RUOUVrdmZUMk5fSHpRYlR3ZkN5ZmdOOG4xWmR1RDJsQ2dHVzFYUmtwcHp4b2hPMUExQnd4aVhfSGFDcmw1RnViU2Q3TGdSZU1i?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxPR3lmOWVpS2hyNEE4UjByM1JHZEM3YldLeGlUazJaNnVJUFpWbGpLZkxnUEdfeUpwMF8xeGpkVmlIZktfQmZpUWxWSTlNQVZpMFc1TzN5RWkzT2VyTWpCSGwxWElpM2o1OEFDdndFUm43S0FQLWNHcFVDODM4UGR2NUlVQ20tZjFuZ3p3MW1uY9IBlAFBVV95cUxPM0JDcGdTa2ZyaC1Ua1ZucWw4dWJvbGQ2YnFOd2lRRGhhcmRCNk1sUThkbm1KR3Y5UUE3MDVEM2dXQ2pFZGlDY2VlT1RUOUVrdmZUMk5fSHpRYlR3ZkN5ZmdOOG4xWmR1RDJsQ2dHVzFYUmtwcHp4b2hPMUExQnd4aVhfSGFDcmw1RnViU2Q3TGdSZU1i?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

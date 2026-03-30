@@ -1,0 +1,13 @@
+---
+title: "Presidente do São Paulo declara apoio à expulsão de Mara Casares e Douglas Schwartzmann"
+description: "Presidente do São Paulo declara apoio à expulsão de Mara Casares e Douglas Schwartzmann  Gazeta Esportiva"
+pubDate: "2026-03-30T20:23:12.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxQVW4wVmFHeVV0dFVLRmNGRXFDa2ZMS05jckdjTllLSXdYVVpCYUxrWW1pODkyeTFiZ2hDb1A3b3VSS09wc2hVZ1FoWDVWYUV3bHpZck5EcXB4WVZTTTVZZ252bE5HRkZTVWlrRS1XNExSdndZYm11bTViZEFZWkQ1N2ktX0lqbWtRbTRnMEFSOFdPX01ibDkzVVVDb9IBmwFBVV95cUxQVW4wVmFHeVV0dFVLRmNGRXFDa2ZMS05jckdjTllLSXdYVVpCYUxrWW1pODkyeTFiZ2hDb1A3b3VSS09wc2hVZ1FoWDVWYUV3bHpZck5EcXB4WVZTTTVZZ252bE5HRkZTVWlrRS1XNExSdndZYm11bTViZEFZWkQ1N2ktX0lqbWtRbTRnMEFSOFdPX01ibDkzVVVDbw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxQVW4wVmFHeVV0dFVLRmNGRXFDa2ZMS05jckdjTllLSXdYVVpCYUxrWW1pODkyeTFiZ2hDb1A3b3VSS09wc2hVZ1FoWDVWYUV3bHpZck5EcXB4WVZTTTVZZ252bE5HRkZTVWlrRS1XNExSdndZYm11bTViZEFZWkQ1N2ktX0lqbWtRbTRnMEFSOFdPX01ibDkzVVVDb9IBmwFBVV95cUxQVW4wVmFHeVV0dFVLRmNGRXFDa2ZMS05jckdjTllLSXdYVVpCYUxrWW1pODkyeTFiZ2hDb1A3b3VSS09wc2hVZ1FoWDVWYUV3bHpZck5EcXB4WVZTTTVZZ252bE5HRkZTVWlrRS1XNExSdndZYm11bTViZEFZWkQ1N2ktX0lqbWtRbTRnMEFSOFdPX01ibDkzVVVDbw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
