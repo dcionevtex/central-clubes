@@ -1,0 +1,13 @@
+---
+title: "Pezzolano avalia mudanças no Internacional contra o São Paulo"
+description: "Pezzolano avalia mudanças no Internacional contra o São Paulo  Terra"
+pubDate: "2026-03-30T16:06:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi9gFBVV95cUxObjhIMDR1U2dIQmNqMWlKZ1FIX3c2VUltYnVUdFRtaFZxUm5tTURNZDVsN3FiUUt5eXUyVnA0a2FrT3hyUjYzOEZrQUFSSGdfQ1UtX3VmUllMYzRKbnRGUnhFeTJjVHVZdElVLWNvZHc4S084eU81cFVaYUtWSUFKejZndEYxMzExSUxPTmU2R3BLeFg3aGd1Z1lwMDhSZmdxTG50LTRoSFA5RnJVMGE3dVJIVTE5NUFXU0hBenAwcjZIUUJTbldmajZkSTlyalJvSUp0RWhyUUNqdUkzT19PcFdILVF4UGVfQnNCYXZNSS14SE4zS3c?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9gFBVV95cUxObjhIMDR1U2dIQmNqMWlKZ1FIX3c2VUltYnVUdFRtaFZxUm5tTURNZDVsN3FiUUt5eXUyVnA0a2FrT3hyUjYzOEZrQUFSSGdfQ1UtX3VmUllMYzRKbnRGUnhFeTJjVHVZdElVLWNvZHc4S084eU81cFVaYUtWSUFKejZndEYxMzExSUxPTmU2R3BLeFg3aGd1Z1lwMDhSZmdxTG50LTRoSFA5RnJVMGE3dVJIVTE5NUFXU0hBenAwcjZIUUJTbldmajZkSTlyalJvSUp0RWhyUUNqdUkzT19PcFdILVF4UGVfQnNCYXZNSS14SE4zS3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
