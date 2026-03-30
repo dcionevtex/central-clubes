@@ -1,0 +1,13 @@
+---
+title: "Athletico goleia, assume vice-liderança do Brasileirão e afunda Botafogo na zona de queda"
+description: "Athletico goleia, assume vice-liderança do Brasileirão e afunda Botafogo na zona de queda  Terra"
+pubDate: "2026-03-30T00:55:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMihwJBVV95cUxOR1BCc3JkQ2QwZVZFN0hsaVBWSURoLVpfZGJfSjBETkFwLWxZYmU4WFJzQ2dkSGxvbnNILVBKazVucC1GVjlkU1NzRTJqLTB5RVl2a0RTVXA5Q3ZjUEFmc2t4UWFVZlNNcFYtUGVrbXJnSWFqbU9GOG9vY2RHSWRtLUJBU2RLTUVVYjBkd3FJZXFwd1FvbE5mYVpHTlJLRGlxT0RtTk5HYll4Tmg0SVc2YmdfUlFDc01qbS1ZUnQySF9OMllyQm1pUHA5elVNQnhTaEVhcmlxTzdTeHRScjFtb0s4ZFRMcUpaTVpFbUh3RENYUndsNEwwWUp4dU9LUThmcGdxRGYwSQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwJBVV95cUxOR1BCc3JkQ2QwZVZFN0hsaVBWSURoLVpfZGJfSjBETkFwLWxZYmU4WFJzQ2dkSGxvbnNILVBKazVucC1GVjlkU1NzRTJqLTB5RVl2a0RTVXA5Q3ZjUEFmc2t4UWFVZlNNcFYtUGVrbXJnSWFqbU9GOG9vY2RHSWRtLUJBU2RLTUVVYjBkd3FJZXFwd1FvbE5mYVpHTlJLRGlxT0RtTk5HYll4Tmg0SVc2YmdfUlFDc01qbS1ZUnQySF9OMllyQm1pUHA5elVNQnhTaEVhcmlxTzdTeHRScjFtb0s4ZFRMcUpaTVpFbUh3RENYUndsNEwwWUp4dU9LUThmcGdxRGYwSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
