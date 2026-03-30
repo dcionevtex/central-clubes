@@ -1,0 +1,13 @@
+---
+title: "Comissão de Ética do São Paulo protocola pedido para expulsão de Douglas Schwartzmann e Mara Casares"
+description: "Comissão de Ética do São Paulo protocola pedido para expulsão de Douglas Schwartzmann e Mara Casares  Gazeta Esportiva"
+pubDate: "2026-03-30T17:26:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxQTTVWbnBuRU40TWhmbFBYR2tfaGZzZld0NGNoSmhNczhCTmpFRTFrUmR4NkpVQVU0aEVTb0F3dTdWTGRla0VITzExVE5qUUZoeU5hS3VyejBnZVNDaVVtZmx6STZJZ3Y5LUJGRE0zb0VMUEpjamE0Tllhc0ltMUtTM2YtOENJRi1kalczSkdMbVl2dWdoa09ySTBGd9IBoAFBVV95cUxQY1dHaGUwWWdQQTNsN0hDN2hPaWVnb201NjljREtMNk9fcUM1VHNHT3pTaUFMc3F3Qy1OSWR6cTVtbjJxV0Z0MmxMNnlnMEF0b01kNEgxTGlTdHRtN1RnYTNZYmc1Q3h1Qm9Oa0tmSXZybVV2NHhtTnV6aXBVN1JLT2kxSzhETFhQbW1WVzB6UWpKOEhSLVB6SUFnbVoyNFkt?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxQTTVWbnBuRU40TWhmbFBYR2tfaGZzZld0NGNoSmhNczhCTmpFRTFrUmR4NkpVQVU0aEVTb0F3dTdWTGRla0VITzExVE5qUUZoeU5hS3VyejBnZVNDaVVtZmx6STZJZ3Y5LUJGRE0zb0VMUEpjamE0Tllhc0ltMUtTM2YtOENJRi1kalczSkdMbVl2dWdoa09ySTBGd9IBoAFBVV95cUxQY1dHaGUwWWdQQTNsN0hDN2hPaWVnb201NjljREtMNk9fcUM1VHNHT3pTaUFMc3F3Qy1OSWR6cTVtbjJxV0Z0MmxMNnlnMEF0b01kNEgxTGlTdHRtN1RnYTNZYmc1Q3h1Qm9Oa0tmSXZybVV2NHhtTnV6aXBVN1JLT2kxSzhETFhQbW1WVzB6UWpKOEhSLVB6SUFnbVoyNFkt?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
