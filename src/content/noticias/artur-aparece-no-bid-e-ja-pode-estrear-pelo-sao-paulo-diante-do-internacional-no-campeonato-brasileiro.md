@@ -1,0 +1,13 @@
+---
+title: "Artur aparece no BID e já pode estrear pelo São Paulo diante do Internacional no Campeonato Brasileiro"
+description: "Artur aparece no BID e já pode estrear pelo São Paulo diante do Internacional no Campeonato Brasileiro  Bolavip Brasil"
+pubDate: "2026-03-30T21:56:05.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxQMzBLS2xkeGhYUVI1c1R1NnptTENTdnpQMVo4X3hHZUFwa2s5dE8tbUZTSm01c1h0eHY3c3VDMjYzMmkwSTZ0SzVTYjZ6OXREa0wteEJnUU9OMzNKZFRfbVF2T0M0YVZTQU9rM3pLNHFQN05UdFlSOFk0LVZ0UTg5NUFfVUIxbm0wbTBzWHJHT1pCX3lyMF9nN2dVQUNpeThx0gGmAUFVX3lxTE1JelBTMkExSXgyRG42VzR0cEdYdnNWc2phaUU2R2lpekRyZHJpYWVlVFFYV2FqZlAzZjlOODF0Q3RJVE1Tei1GWVRoRHNhUkYzWTM1Z0ZqaHpJQ0lxc0lTY2JEdG1yNGxxS1ltczd4LWRRY2NBVHByOGRvbFhFMG5FY1hlMGgwa1NFVHlmWjRsUWhVY3pfTlVMWmo2VmplWkdjWVNieGc?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxQMzBLS2xkeGhYUVI1c1R1NnptTENTdnpQMVo4X3hHZUFwa2s5dE8tbUZTSm01c1h0eHY3c3VDMjYzMmkwSTZ0SzVTYjZ6OXREa0wteEJnUU9OMzNKZFRfbVF2T0M0YVZTQU9rM3pLNHFQN05UdFlSOFk0LVZ0UTg5NUFfVUIxbm0wbTBzWHJHT1pCX3lyMF9nN2dVQUNpeThx0gGmAUFVX3lxTE1JelBTMkExSXgyRG42VzR0cEdYdnNWc2phaUU2R2lpekRyZHJpYWVlVFFYV2FqZlAzZjlOODF0Q3RJVE1Tei1GWVRoRHNhUkYzWTM1Z0ZqaHpJQ0lxc0lTY2JEdG1yNGxxS1ltczd4LWRRY2NBVHByOGRvbFhFMG5FY1hlMGgwa1NFVHlmWjRsUWhVY3pfTlVMWmo2VmplWkdjWVNieGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
