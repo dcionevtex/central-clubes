@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde posição na tabela do Brasileirão"
+description: "São Paulo perde posição na tabela do Brasileirão  Portal Hortolândia"
+pubDate: "2026-03-30T14:04:17.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE5Kdmx4QWFhUWJMYWhLVGZEejNLSGt3ZGk2MC1ncG5jbWVwZE1VYXRjRkQtMllBWndwaU5Fb0ZDU3Rfc2pQdWhBRUIwWkVITVZiaDJUVFhnelp2TV9NTEpkTll2OUpLVF9xdUtLZGYwTW1kSlE2aTN3YWFGQlM2QdIBfkFVX3lxTE5Kdmx4QWFhUWJMYWhLVGZEejNLSGt3ZGk2MC1ncG5jbWVwZE1VYXRjRkQtMllBWndwaU5Fb0ZDU3Rfc2pQdWhBRUIwWkVITVZiaDJUVFhnelp2TV9NTEpkTll2OUpLVF9xdUtLZGYwTW1kSlE2aTN3YWFGQlM2QQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE5Kdmx4QWFhUWJMYWhLVGZEejNLSGt3ZGk2MC1ncG5jbWVwZE1VYXRjRkQtMllBWndwaU5Fb0ZDU3Rfc2pQdWhBRUIwWkVITVZiaDJUVFhnelp2TV9NTEpkTll2OUpLVF9xdUtLZGYwTW1kSlE2aTN3YWFGQlM2QdIBfkFVX3lxTE5Kdmx4QWFhUWJMYWhLVGZEejNLSGt3ZGk2MC1ncG5jbWVwZE1VYXRjRkQtMllBWndwaU5Fb0ZDU3Rfc2pQdWhBRUIwWkVITVZiaDJUVFhnelp2TV9NTEpkTll2OUpLVF9xdUtLZGYwTW1kSlE2aTN3YWFGQlM2QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
