@@ -1,0 +1,13 @@
+---
+title: "Artur relembra carreira e projeta títulos pelo São Paulo"
+description: "Artur relembra carreira e projeta títulos pelo São Paulo  UOL"
+pubDate: "2026-03-30T09:00:07.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMivgJBVV95cUxNaGpPS1d4cnEwNjc5anNEWjczX1k1ODVuMi1CV3M5Q3JPWm1SZHR4RDNfd2diZ3RwbWRxb09oSEdvTW9wRkVVT2g2aGZRTFVOQi1reldkbm41Y3F2Y0cyeDRweTUxSFVabE5rLWh0ZUhXOE02Ujk3TzU5YmpIV2RncW9relpWMjdmcWdTczFkWjEwZHl0VXYtVkNDX0ozNnJDN3Y5czVnQXhuTzdEc3JoNHplTlhnZmNEUWxudXdmZmZTVjdRMGo4TWtDX3VWWDAtTnkwekdsdUM2SGc1OWlGTDkyUGlScHZ1UXNQanVhNkdraWYydFB1cGNsXzgyMF9UWlhmdHBDZTFfc296N2RhTjlxekxXTTJTLUV2bVloUTFPT21tRHNPUXllT2FCeWItVFkta3p6ak4xaDBCVlE?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMivgJBVV95cUxNaGpPS1d4cnEwNjc5anNEWjczX1k1ODVuMi1CV3M5Q3JPWm1SZHR4RDNfd2diZ3RwbWRxb09oSEdvTW9wRkVVT2g2aGZRTFVOQi1reldkbm41Y3F2Y0cyeDRweTUxSFVabE5rLWh0ZUhXOE02Ujk3TzU5YmpIV2RncW9relpWMjdmcWdTczFkWjEwZHl0VXYtVkNDX0ozNnJDN3Y5czVnQXhuTzdEc3JoNHplTlhnZmNEUWxudXdmZmZTVjdRMGo4TWtDX3VWWDAtTnkwekdsdUM2SGc1OWlGTDkyUGlScHZ1UXNQanVhNkdraWYydFB1cGNsXzgyMF9UWlhmdHBDZTFfc296N2RhTjlxekxXTTJTLUV2bVloUTFPT21tRHNPUXllT2FCeWItVFkta3p6ak4xaDBCVlE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
