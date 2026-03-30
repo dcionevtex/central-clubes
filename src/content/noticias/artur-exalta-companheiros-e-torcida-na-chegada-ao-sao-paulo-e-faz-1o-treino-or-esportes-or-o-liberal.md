@@ -1,0 +1,13 @@
+---
+title: "Artur exalta companheiros e torcida na chegada ao São Paulo e faz 1º treino | Esportes | O Liberal"
+description: "Artur exalta companheiros e torcida na chegada ao São Paulo e faz 1º treino | Esportes | O Liberal  O Liberal"
+pubDate: "2026-03-30T00:32:47.000Z"
+source: "O Liberal"
+link: "https://news.google.com/rss/articles/CBMiugFBVV95cUxNRlJ1SUlzMlZtel9OamdVVlNqcDAwaWMxcnFNRXdxY0l2blJucEUyMWdzTkphZU05RWpYcGl5cUdDS2pWeUFzSjRTNjZnajZRWG9aLVl2SkxkZC1DRVpoeEZTb0lqeFg5dWtUc0VEbUFxX0Z0aEhWV3hpS245WUpvSTdUWVJjcXluUmN3MHl3NnBvVThFM3FIUkk0U3RDUDNEMFpoRnRDT0dxUzlNZVN1UXBHMUtNTHF5VWfSAb8BQVVfeXFMTW1aRTM0Y1lMTWZiYkRUTFYzRXpzZXg5U0RpODc5ZmQ5Wlc3d2FSSWQ0LTNLdW5NT0ZFRERvNUFRc2ZoWkxKbWlxRS1fdHpHWDI4cFg5am0xOHk3alJwUEVIZm41ZENhY1dESTJ0WE1QdVZsRWN0RURiV2lIei1VdjkyLVB6enJMWU9uc3N1TWg3TkZTWUctTHl6OFZRdkQ0OFVacTJHcEZ3WmtnSm8xV3EtNnF2bVYzTFF0OGRINlU?oc=5"
+---
+
+### Fonte Original: O Liberal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiugFBVV95cUxNRlJ1SUlzMlZtel9OamdVVlNqcDAwaWMxcnFNRXdxY0l2blJucEUyMWdzTkphZU05RWpYcGl5cUdDS2pWeUFzSjRTNjZnajZRWG9aLVl2SkxkZC1DRVpoeEZTb0lqeFg5dWtUc0VEbUFxX0Z0aEhWV3hpS245WUpvSTdUWVJjcXluUmN3MHl3NnBvVThFM3FIUkk0U3RDUDNEMFpoRnRDT0dxUzlNZVN1UXBHMUtNTHF5VWfSAb8BQVVfeXFMTW1aRTM0Y1lMTWZiYkRUTFYzRXpzZXg5U0RpODc5ZmQ5Wlc3d2FSSWQ0LTNLdW5NT0ZFRERvNUFRc2ZoWkxKbWlxRS1fdHpHWDI4cFg5am0xOHk3alJwUEVIZm41ZENhY1dESTJ0WE1QdVZsRWN0RURiV2lIei1VdjkyLVB6enJMWU9uc3N1TWg3TkZTWUctTHl6OFZRdkQ0OFVacTJHcEZ3WmtnSm8xV3EtNnF2bVYzTFF0OGRINlU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
