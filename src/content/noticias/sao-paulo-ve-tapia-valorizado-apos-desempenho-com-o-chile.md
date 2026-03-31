@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê Tapia valorizado após desempenho com o Chile"
+description: "São Paulo vê Tapia valorizado após desempenho com o Chile  Portal Hortolândia"
+pubDate: "2026-03-31T14:00:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxOQ3l5Mzd0NU1QTUZWbmttamdXdWxIYzd5aGhhSFBtQlVheFJnNTRZc08yYWppckE5UEJDUENXZ2NiOHpGbWd3WHVkLW43cnVkRkhFQU4wd0VXYmZjU05hc2tWN09xVTNESlZETDdLWUFkQXRaVi00aEJielRrYkF5TtIBgAFBVV95cUxOQ3l5Mzd0NU1QTUZWbmttamdXdWxIYzd5aGhhSFBtQlVheFJnNTRZc08yYWppckE5UEJDUENXZ2NiOHpGbWd3WHVkLW43cnVkRkhFQU4wd0VXYmZjU05hc2tWN09xVTNESlZETDdLWUFkQXRaVi00aEJielRrYkF5Tg?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxOQ3l5Mzd0NU1QTUZWbmttamdXdWxIYzd5aGhhSFBtQlVheFJnNTRZc08yYWppckE5UEJDUENXZ2NiOHpGbWd3WHVkLW43cnVkRkhFQU4wd0VXYmZjU05hc2tWN09xVTNESlZETDdLWUFkQXRaVi00aEJielRrYkF5TtIBgAFBVV95cUxOQ3l5Mzd0NU1QTUZWbmttamdXdWxIYzd5aGhhSFBtQlVheFJnNTRZc08yYWppckE5UEJDUENXZ2NiOHpGbWd3WHVkLW43cnVkRkhFQU4wd0VXYmZjU05hc2tWN09xVTNESlZETDdLWUFkQXRaVi00aEJielRrYkF5Tg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

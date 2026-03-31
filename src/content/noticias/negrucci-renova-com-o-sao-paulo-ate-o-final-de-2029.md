@@ -1,0 +1,13 @@
+---
+title: "Negrucci renova com o São Paulo até o final de 2029"
+description: "Negrucci renova com o São Paulo até o final de 2029  Portal Hortolândia"
+pubDate: "2026-03-31T13:40:43.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE1Nc0ZMMDV0bU5Hc2xIS0E4d19MbkpSN3VjQTI0MUNJdldaQkgtZ0p0QUg0dVFQWWtlb3BUMDJ6aDhmYl93dWxxX3VnVzBVd1U4RmhxeGlFUFJKcFBSVEU0TFZXNnJsWGJNM3phWnNya0xBXzdaSFM5UGxnSlh5UdIBfkFVX3lxTE1Nc0ZMMDV0bU5Hc2xIS0E4d19MbkpSN3VjQTI0MUNJdldaQkgtZ0p0QUg0dVFQWWtlb3BUMDJ6aDhmYl93dWxxX3VnVzBVd1U4RmhxeGlFUFJKcFBSVEU0TFZXNnJsWGJNM3phWnNya0xBXzdaSFM5UGxnSlh5UQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE1Nc0ZMMDV0bU5Hc2xIS0E4d19MbkpSN3VjQTI0MUNJdldaQkgtZ0p0QUg0dVFQWWtlb3BUMDJ6aDhmYl93dWxxX3VnVzBVd1U4RmhxeGlFUFJKcFBSVEU0TFZXNnJsWGJNM3phWnNya0xBXzdaSFM5UGxnSlh5UdIBfkFVX3lxTE1Nc0ZMMDV0bU5Hc2xIS0E4d19MbkpSN3VjQTI0MUNJdldaQkgtZ0p0QUg0dVFQWWtlb3BUMDJ6aDhmYl93dWxxX3VnVzBVd1U4RmhxeGlFUFJKcFBSVEU0TFZXNnJsWGJNM3phWnNya0xBXzdaSFM5UGxnSlh5UQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
