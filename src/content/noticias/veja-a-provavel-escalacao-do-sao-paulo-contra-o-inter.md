@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo contra o Inter"
+description: "Veja a provável escalação do São Paulo contra o Inter  Portal Hortolândia"
+pubDate: "2026-03-31T17:40:48.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE5WcVZ6ZXhuWVVVX2lCTWFsS29Ma20tVUtRMnVNN3lzeVcwUzgwMnVBQkxnZ2E0bXE1WlpZYnM0VWdjaWJGcndzZ2p2aWtHb3JPRy1FcGE1UVkxNEhtdmJjbGcyOFhqQktiNUZWZlJSaUZ3NGdvTkNidHFUY9IBe0FVX3lxTE5WcVZ6ZXhuWVVVX2lCTWFsS29Ma20tVUtRMnVNN3lzeVcwUzgwMnVBQkxnZ2E0bXE1WlpZYnM0VWdjaWJGcndzZ2p2aWtHb3JPRy1FcGE1UVkxNEhtdmJjbGcyOFhqQktiNUZWZlJSaUZ3NGdvTkNidHFUYw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE5WcVZ6ZXhuWVVVX2lCTWFsS29Ma20tVUtRMnVNN3lzeVcwUzgwMnVBQkxnZ2E0bXE1WlpZYnM0VWdjaWJGcndzZ2p2aWtHb3JPRy1FcGE1UVkxNEhtdmJjbGcyOFhqQktiNUZWZlJSaUZ3NGdvTkNidHFUY9IBe0FVX3lxTE5WcVZ6ZXhuWVVVX2lCTWFsS29Ma20tVUtRMnVNN3lzeVcwUzgwMnVBQkxnZ2E0bXE1WlpZYnM0VWdjaWJGcndzZ2p2aWtHb3JPRy1FcGE1UVkxNEhtdmJjbGcyOFhqQktiNUZWZlJSaUZ3NGdvTkNidHFUYw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
