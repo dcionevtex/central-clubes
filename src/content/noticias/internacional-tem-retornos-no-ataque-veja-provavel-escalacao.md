@@ -1,0 +1,13 @@
+---
+title: "Internacional tem retornos no ataque; veja provável escalação"
+description: "Internacional tem retornos no ataque; veja provável escalação  Jogada 10"
+pubDate: "2026-03-31T18:06:12.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMidkFVX3lxTE5FRGctc0w4aFZNYS13VDVJVVVOSDg3b3RVRDdjMTdQQ3pPbFl0eW1DaXNUTHVaT3ozSHJWQ2FnSlZodFFKVnhiZ0IzMEhFS3ZtZjlxLUpxbzRReGNabGJzNVQ0YVFHbHJUNVQwbWtSMGhHQlowR2fSAXtBVV95cUxPWHBIUlJXdk8wZWhOZWdGSDZwdklQMlAwYmVETU9YcTJmOWhXbVdVbGZQcjRNalFINFRnTVVKZy1qaVBxbHJfdnRETVpQZmZDb3poeUh2UXhjb2lsSnRVdmx1dDMxYmNYQVJ1VlpUSGdJVWVfbDlWWVdvVHc?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMidkFVX3lxTE5FRGctc0w4aFZNYS13VDVJVVVOSDg3b3RVRDdjMTdQQ3pPbFl0eW1DaXNUTHVaT3ozSHJWQ2FnSlZodFFKVnhiZ0IzMEhFS3ZtZjlxLUpxbzRReGNabGJzNVQ0YVFHbHJUNVQwbWtSMGhHQlowR2fSAXtBVV95cUxPWHBIUlJXdk8wZWhOZWdGSDZwdklQMlAwYmVETU9YcTJmOWhXbVdVbGZQcjRNalFINFRnTVVKZy1qaVBxbHJfdnRETVpQZmZDb3poeUh2UXhjb2lsSnRVdmx1dDMxYmNYQVJ1VlpUSGdJVWVfbDlWWVdvVHc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
