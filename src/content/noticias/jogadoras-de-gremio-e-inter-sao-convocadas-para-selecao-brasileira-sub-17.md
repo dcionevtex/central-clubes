@@ -1,0 +1,13 @@
+---
+title: "Jogadoras de Grêmio e Inter são convocadas para seleção brasileira sub-17"
+description: "Jogadoras de Grêmio e Inter são convocadas para seleção brasileira sub-17  GZH"
+pubDate: "2026-03-31T17:29:47.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMiigJBVV95cUxOc1liQ2dkWDg1b1Bycm55a3FCaXBBbXZEOXU4UFh1MzUzZnRLTENZcDdPcWZVbzQ3RzZmS1poYVE2aE1nOE9qWjA0aXBReWhmaUtVLWE2dTRYSUF0cjBpTVVqdGo3MENFeEFDZ0pZdWlKXzB5dXBrTnpvcGRwZWt4RVAyTGZONFVpSDJ3YVVIc001RzZmOGY5MFJlck5tZ1pRQmVUUVVKMmhGQ3hYQXB3eGZ1VEpHR2I0OXZlUGNIbXFCSzFITXNDWUVEbVExM2lDand4NDljYnJtbEFpeWtGeUtVWVZkSzJuUS16VmpXa09ESXJiRXh1dS1Ic0IwRVEyU0lSZ0ItNE0xZw?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigJBVV95cUxOc1liQ2dkWDg1b1Bycm55a3FCaXBBbXZEOXU4UFh1MzUzZnRLTENZcDdPcWZVbzQ3RzZmS1poYVE2aE1nOE9qWjA0aXBReWhmaUtVLWE2dTRYSUF0cjBpTVVqdGo3MENFeEFDZ0pZdWlKXzB5dXBrTnpvcGRwZWt4RVAyTGZONFVpSDJ3YVVIc001RzZmOGY5MFJlck5tZ1pRQmVUUVVKMmhGQ3hYQXB3eGZ1VEpHR2I0OXZlUGNIbXFCSzFITXNDWUVEbVExM2lDand4NDljYnJtbEFpeWtGeUtVWVZkSzJuUS16VmpXa09ESXJiRXh1dS1Ic0IwRVEyU0lSZ0ItNE0xZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
