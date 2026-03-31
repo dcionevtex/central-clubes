@@ -1,0 +1,13 @@
+---
+title: "Seleção Sub-17 feminina é convocada para período de treinos na Granja Comary"
+description: "Seleção Sub-17 feminina é convocada para período de treinos na Granja Comary  CBF"
+pubDate: "2026-03-31T00:39:00.000Z"
+source: "CBF"
+link: "https://news.google.com/rss/articles/CBMiugJBVV95cUxPcWRYMVNpWjBHeHFveHFfUHNRbm9wRlRzcW1oakFkV180UzUwdElObTVPeTNUU0p6VnVkSjNqamd2OWF5UDMxaG1kVDlGZThVdmVGQnAtc2NBdGxiX05kUjJXNGxTWWVVeGZLNUZwRXRhT0lXWk1JdUpWekVOT3F2eWRMU09rSVFDMmtPTjdDNE44eDZRNXF5M2ZhSnFqdTk5aWJ3NkxUNGRKX2Vxak9rYmRMNDhPMTkwNk55djNWTktVRl96MGx2ZUpweTUyWFVuOS1nQjR2cWtsQW1nczdYXzFDWEtKMW1BTVJRYUd2cGc2Y1FRcVNTUVdGeTBPcC03cDV3Yi1vR05rYVpjTFdWS19HMVZhcjI0azgyMTJkTTFZS05tcEJzM2t2T2Z1TzhHdTlaVFJ4YWtVdw?oc=5"
+---
+
+### Fonte Original: CBF
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiugJBVV95cUxPcWRYMVNpWjBHeHFveHFfUHNRbm9wRlRzcW1oakFkV180UzUwdElObTVPeTNUU0p6VnVkSjNqamd2OWF5UDMxaG1kVDlGZThVdmVGQnAtc2NBdGxiX05kUjJXNGxTWWVVeGZLNUZwRXRhT0lXWk1JdUpWekVOT3F2eWRMU09rSVFDMmtPTjdDNE44eDZRNXF5M2ZhSnFqdTk5aWJ3NkxUNGRKX2Vxak9rYmRMNDhPMTkwNk55djNWTktVRl96MGx2ZUpweTUyWFVuOS1nQjR2cWtsQW1nczdYXzFDWEtKMW1BTVJRYUd2cGc2Y1FRcVNTUVdGeTBPcC03cDV3Yi1vR05rYVpjTFdWS19HMVZhcjI0azgyMTJkTTFZS05tcEJzM2t2T2Z1TzhHdTlaVFJ4YWtVdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
