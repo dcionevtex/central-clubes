@@ -1,0 +1,13 @@
+---
+title: "PlayStation abre torneio de FC 26 com final em São Paulo"
+description: "PlayStation abre torneio de FC 26 com final em São Paulo  gamehall.com.br"
+pubDate: "2026-03-31T00:04:07.000Z"
+source: "gamehall.com.br"
+link: "https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVE1zZ2VKQWE5cWxmXzZMUjA4Z3ZWNnUtZVgwRVlxVHRjc3E2R2F6Ny1EN0dHNDNydjdjalJVa1FjOEI4N3RfektoRW0xcjBmaUxFZEhwOGRIQUtQWnBjQ1lhWmRvb2RIMGtoNG83WDNKRmp2MG1kVkpPdF91RkItYWZmWVpWaHkt0gGQAUFVX3lxTFBtLUowZEV0eFRRMHlaX0dKdGRYbFdZNGwwMGZHaVJBYkhtdHF2Wm1MbHByZG82aEhGU0xsa0FITTJFMHNzZFNhVVdMRFNNYTMtT2sxc0ktNkdJdk5EQ2RmdUM2VVFaOEl6RF9ydVRCTkt0QWt1eHVmU1VyaGpKcl85dF9tcFkwcUltN2QwdGxjYQ?oc=5"
+---
+
+### Fonte Original: gamehall.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPVE1zZ2VKQWE5cWxmXzZMUjA4Z3ZWNnUtZVgwRVlxVHRjc3E2R2F6Ny1EN0dHNDNydjdjalJVa1FjOEI4N3RfektoRW0xcjBmaUxFZEhwOGRIQUtQWnBjQ1lhWmRvb2RIMGtoNG83WDNKRmp2MG1kVkpPdF91RkItYWZmWVpWaHkt0gGQAUFVX3lxTFBtLUowZEV0eFRRMHlaX0dKdGRYbFdZNGwwMGZHaVJBYkhtdHF2Wm1MbHByZG82aEhGU0xsa0FITTJFMHNzZFNhVVdMRFNNYTMtT2sxc0ktNkdJdk5EQ2RmdUM2VVFaOEl6RF9ydVRCTkt0QWt1eHVmU1VyaGpKcl85dF9tcFkwcUltN2QwdGxjYQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
