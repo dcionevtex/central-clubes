@@ -1,0 +1,13 @@
+---
+title: "Internacional x São Paulo: confira as prováveis escalações e onde assistir"
+description: "Internacional x São Paulo: confira as prováveis escalações e onde assistir  gaz.com.br"
+pubDate: "2026-03-31T13:42:00.000Z"
+source: "gaz.com.br"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxNMTI1b21sbkhWbzh4TnVteG95WGp1NXY0em05ektKVnhDdW1ibnNIci1qdHdiYUtnYnZtWTFFRDFLckZDZnVtVU9MdVpSRmZCa3VQeDNmZkUyY1Y4ajNXNDNLTTlKa1l5QUR4Tkg3ay05Nm14OXp6RDhEZDlEUUtlWUpzTkZoRDlmRHZKN25oSVlxRjBhRm5ESzhENUlBd9IBowFBVV95cUxQMFQzQVZEdWtsT1BCX1BTamJSZEtielVJTmFtUHJzUExUcVNzSl9hbGJ6QmpOZXFMMExYencwMGdtdHpUemlFYW15VXB0OTFUS01rdk5laFRfUlotU2d2Zy1ZUTNNUm9mVmNNcFBTVXZ0blE3OGYxcGZ1UG5FYUh6Q1FJWWVSaUg2WGZXaHNoQURDR0pxdnRsUGhnX0xhRHRrTmQ0?oc=5"
+---
+
+### Fonte Original: gaz.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxNMTI1b21sbkhWbzh4TnVteG95WGp1NXY0em05ektKVnhDdW1ibnNIci1qdHdiYUtnYnZtWTFFRDFLckZDZnVtVU9MdVpSRmZCa3VQeDNmZkUyY1Y4ajNXNDNLTTlKa1l5QUR4Tkg3ay05Nm14OXp6RDhEZDlEUUtlWUpzTkZoRDlmRHZKN25oSVlxRjBhRm5ESzhENUlBd9IBowFBVV95cUxQMFQzQVZEdWtsT1BCX1BTamJSZEtielVJTmFtUHJzUExUcVNzSl9hbGJ6QmpOZXFMMExYencwMGdtdHpUemlFYW15VXB0OTFUS01rdk5laFRfUlotU2d2Zy1ZUTNNUm9mVmNNcFBTVXZ0blE3OGYxcGZ1UG5FYUh6Q1FJWWVSaUg2WGZXaHNoQURDR0pxdnRsUGhnX0xhRHRrTmQ0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
