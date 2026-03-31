@@ -1,0 +1,13 @@
+---
+title: "São Paulo: diretor de marketing comenta especulações sobre mudanças em naming rights do Morumbi"
+description: "São Paulo: diretor de marketing comenta especulações sobre mudanças em naming rights do Morumbi  Terra"
+pubDate: "2026-03-31T20:24:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMikgJBVV95cUxPRklQQkwtY1g1LVNsRHdpOHpzZHlWQmxFdTh1ZXhVX2ZxdDFZeDJjSVBaOWpORms2NzcxbV8xVnpxTXVDUTE1TnhWckQ4NXBlWkp6U0ZrTnJhYU5ja09VRHVKZ3U3aUJmbXV6WHB5eXdSVFd1V1RUM2w2ZVVVR1hPU3hNbXJmdkhUU083b0NyYWJyX3ppX2trZHRMZUZ3ZUxraW5kSWVvWjY1d0dZS3JFRFlqTWlvYUoyYUVZLThOSmJSd3BYNUYzTy02TVVxSk9wb2p2RlJwRUJ0WjZ3Y3Z6aVR6M1NwTlZLb29ObW80aEljSWdJRnRkNUJLSk1ST1ExNFI3LVVfbGlnQVhjZGNuVkd3?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgJBVV95cUxPRklQQkwtY1g1LVNsRHdpOHpzZHlWQmxFdTh1ZXhVX2ZxdDFZeDJjSVBaOWpORms2NzcxbV8xVnpxTXVDUTE1TnhWckQ4NXBlWkp6U0ZrTnJhYU5ja09VRHVKZ3U3aUJmbXV6WHB5eXdSVFd1V1RUM2w2ZVVVR1hPU3hNbXJmdkhUU083b0NyYWJyX3ppX2trZHRMZUZ3ZUxraW5kSWVvWjY1d0dZS3JFRFlqTWlvYUoyYUVZLThOSmJSd3BYNUYzTy02TVVxSk9wb2p2RlJwRUJ0WjZ3Y3Z6aVR6M1NwTlZLb29ObW80aEljSWdJRnRkNUJLSk1ST1ExNFI3LVVfbGlnQVhjZGNuVkd3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
