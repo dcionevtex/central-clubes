@@ -1,0 +1,13 @@
+---
+title: "Artur quer retomar confiança e conta como pode encaixar no São Paulo"
+description: "Artur quer retomar confiança e conta como pode encaixar no São Paulo  Gazeta Esportiva"
+pubDate: "2026-03-31T08:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxNY1FXeEVnOVhMZDA1YmdTbXJvRWRJNkMwMmNLcEdMMlRLZ2tYZGFjaENOeUxZVHJYbWVmYzdYbG9EYk1HRkVrVHJvSEV4ampkYTB5dU00UDh4VG1xNXVPNzhZVXVObTdEQ2VBRkgzQ2llVGlFWEF6aS1aQ0M1cTUxZFpNSms5cTViNlFpSjE5dGFnZjNx0gGaAUFVX3lxTFBRM1V1T2lBZHFiQ2hDQUpreW9DM1FqUVk5cmNuWGFXZFd0ZmxJaXlqdFEzUUY0Y0JiOVFyb0FYLV83YkFWei0yV2JneEpmbVJTTVYyYXpOMGZyRU95Yi16Y1JsWUtSVjBJbVM3em1HekRZb0syR2h5cElraXY0N0llQXZyMVBlbDY2VXUzZDdKT2RLTVZucHppRWc?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxNY1FXeEVnOVhMZDA1YmdTbXJvRWRJNkMwMmNLcEdMMlRLZ2tYZGFjaENOeUxZVHJYbWVmYzdYbG9EYk1HRkVrVHJvSEV4ampkYTB5dU00UDh4VG1xNXVPNzhZVXVObTdEQ2VBRkgzQ2llVGlFWEF6aS1aQ0M1cTUxZFpNSms5cTViNlFpSjE5dGFnZjNx0gGaAUFVX3lxTFBRM1V1T2lBZHFiQ2hDQUpreW9DM1FqUVk5cmNuWGFXZFd0ZmxJaXlqdFEzUUY0Y0JiOVFyb0FYLV83YkFWei0yV2JneEpmbVJTTVYyYXpOMGZyRU95Yi16Y1JsWUtSVjBJbVM3em1HekRZb0syR2h5cElraXY0N0llQXZyMVBlbDY2VXUzZDdKT2RLTVZucHppRWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
