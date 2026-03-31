@@ -1,0 +1,13 @@
+---
+title: "Neto critica blindagem da assessoria de imprensa do São Paulo"
+description: "Neto critica blindagem da assessoria de imprensa do São Paulo  band.com.br"
+pubDate: "2026-03-31T23:05:00.000Z"
+source: "band.com.br"
+link: "https://news.google.com/rss/articles/CBMimwJBVV95cUxNNmhEeHZZbnk5X0Y2aEVwdXoxaEdBV3ZpbXlsaUdwV2dackJJR3VGODZZMXVMMVBya28xVmtGUmtuUlhzNi1EQV80U1lOSTdfeXpZTWZvZzQ2NUR6SnAyLUVrUHN6bndKYWZpWmk2RFo0cFJveTlNLXhUUlNhUGRzS2FnZFRsSUdKaFB2ekJlM1VRcFR6dWhnRUN5dWVuSlloakprSUdjdnoyZUh6TjQtRDZnd1lKS1pWNzJaV25wdWdGZVNvUnhocDFLTC1acXN2WlVqVFNSLW1qVmtzXy1hbE5sVXkzZHp3UkZITVRzOWNJWElPWVYxUEdFeU5UQ193THRTV2lSZ3B0NkFHSTAxZ2tLNTFrWU16Sldv?oc=5"
+---
+
+### Fonte Original: band.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwJBVV95cUxNNmhEeHZZbnk5X0Y2aEVwdXoxaEdBV3ZpbXlsaUdwV2dackJJR3VGODZZMXVMMVBya28xVmtGUmtuUlhzNi1EQV80U1lOSTdfeXpZTWZvZzQ2NUR6SnAyLUVrUHN6bndKYWZpWmk2RFo0cFJveTlNLXhUUlNhUGRzS2FnZFRsSUdKaFB2ekJlM1VRcFR6dWhnRUN5dWVuSlloakprSUdjdnoyZUh6TjQtRDZnd1lKS1pWNzJaV25wdWdGZVNvUnhocDFLTC1acXN2WlVqVFNSLW1qVmtzXy1hbE5sVXkzZHp3UkZITVRzOWNJWElPWVYxUEdFeU5UQ193THRTV2lSZ3B0NkFHSTAxZ2tLNTFrWU16Sldv?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
