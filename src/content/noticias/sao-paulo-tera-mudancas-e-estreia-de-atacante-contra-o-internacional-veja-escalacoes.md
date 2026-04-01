@@ -1,0 +1,13 @@
+---
+title: "São Paulo terá mudanças e estreia de atacante contra o Internacional; veja escalações"
+description: "São Paulo terá mudanças e estreia de atacante contra o Internacional; veja escalações  Gazeta Esportiva"
+pubDate: "2026-04-01T21:34:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNTExzTUFyNkt5ODAyZ21vUWN1bUhtRXYydjFkV2lILUZpTjZkb0hZTjgzanlZS2JEa1otYjlqTnV5cmNJUzd4Smt5MzRpMGpDeFNRV0JXQTRyNXV0SWQzWDNfMjhSYktUaC1PV0RQRmpYeDdNZVd3RlVGX0lBUDlrMjRYa0pWOWlnc0tjenB0SjR2bUotQ3MyNlhB0gGfAUFVX3lxTE9YTzB0Rk5MWDNZWWhwYmlKNGlJQ0hyWTdyOXBlbUV3NWhiSmJpNURJR0o3REFPd3lqQ3h6cVNSR0dfNmM0OWJGdXFzUU1jSVp1dkdiMzd4TmFnNzhtZ1lZWkJ6bnA1SmthZlFuMmJTLS1DQUtXcGx6NFo5VEwyMVJhV3l0QkhZQ2VBTVVKbU5jTXpvVl83SDg4VGtKUVEyQQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNTExzTUFyNkt5ODAyZ21vUWN1bUhtRXYydjFkV2lILUZpTjZkb0hZTjgzanlZS2JEa1otYjlqTnV5cmNJUzd4Smt5MzRpMGpDeFNRV0JXQTRyNXV0SWQzWDNfMjhSYktUaC1PV0RQRmpYeDdNZVd3RlVGX0lBUDlrMjRYa0pWOWlnc0tjenB0SjR2bUotQ3MyNlhB0gGfAUFVX3lxTE9YTzB0Rk5MWDNZWWhwYmlKNGlJQ0hyWTdyOXBlbUV3NWhiSmJpNURJR0o3REFPd3lqQ3h6cVNSR0dfNmM0OWJGdXFzUU1jSVp1dkdiMzd4TmFnNzhtZ1lZWkJ6bnA1SmthZlFuMmJTLS1DQUtXcGx6NFo5VEwyMVJhV3l0QkhZQ2VBTVVKbU5jTXpvVl83SDg4VGtKUVEyQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
