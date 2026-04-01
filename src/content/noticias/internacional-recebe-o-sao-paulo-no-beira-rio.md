@@ -1,0 +1,13 @@
+---
+title: "Internacional recebe o São Paulo no Beira-Rio"
+description: "Internacional recebe o São Paulo no Beira-Rio  Esporte News Mundo"
+pubDate: "2026-04-01T14:31:23.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxOWXVHSndJRGVvWkZPQVBzOTlMY1dHZ3BJU1pIWTQ1SldWNDV0bW1qNW9oNWJ1QVVfRjBCdjVTQmhFMC0xQms2REN1T1E2M2ZsNUJTQUFWRm1hWE5KNDBqdGxNeTJEUU9WRnkxYnRxc054OXVYbFVWZE0xa1BsSXd4ekEyc1rSAYoBQVVfeXFMT0p5cTR2aUw2U0Fid3lnejlCbnFrcVh1V2l5eGRqZkllVEU4THZNcFBLZW5fdVdUX2d5Y3d3SVdSaGZieXRtYWJUYzM1d3RKLVUtMEM1NDExQ2VLVFNVVjJzOWpoMjMzV3UzSzFCYVVBbnVPX3hEWmQ5LTNha2FHSDl4WEd5UEMxV0lR?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxOWXVHSndJRGVvWkZPQVBzOTlMY1dHZ3BJU1pIWTQ1SldWNDV0bW1qNW9oNWJ1QVVfRjBCdjVTQmhFMC0xQms2REN1T1E2M2ZsNUJTQUFWRm1hWE5KNDBqdGxNeTJEUU9WRnkxYnRxc054OXVYbFVWZE0xa1BsSXd4ekEyc1rSAYoBQVVfeXFMT0p5cTR2aUw2U0Fid3lnejlCbnFrcVh1V2l5eGRqZkllVEU4THZNcFBLZW5fdVdUX2d5Y3d3SVdSaGZieXRtYWJUYzM1d3RKLVUtMEM1NDExQ2VLVFNVVjJzOWpoMjMzV3UzSzFCYVVBbnVPX3hEWmQ5LTNha2FHSDl4WEd5UEMxV0lR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
