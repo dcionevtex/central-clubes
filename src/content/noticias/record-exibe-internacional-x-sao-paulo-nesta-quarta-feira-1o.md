@@ -1,0 +1,13 @@
+---
+title: "RECORD exibe Internacional x São Paulo nesta quarta-feira (1º)"
+description: "RECORD exibe Internacional x São Paulo nesta quarta-feira (1º)  TNH1"
+pubDate: "2026-04-01T10:00:16.000Z"
+source: "TNH1"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxNU2FoU21QdWVVb2xIVlNHMk91Nk1Nc1ZLYWNjY29HaUx4WXVSbjlxR3dNbndtd1BtZWgwVlBnVzFyZ19ZY1lzYkdkeFhfZWhOR0VPOFhaVXFRbVFDOFllaHNGVVB6dG8zNHRaNFdPdzlyUjVLcWduSFdhOG9rVVdCeENnQ1U2TmFpSW5ZaHQtTnplRjdWV0JzcUFDbWfSAZcBQVVfeXFMTmpqcGNZdjA3TDRvcDF2TjZQRmQwM05yUm55bDQ2U0xoc2hlbWlfVzNIdmZjNmlkbDhVZk1yclViVVMwcktxTFQwaTBmTWtzQUVwWkZzR3NTUExEVW5oWmMtMmJHVFRFWVJlelVWYTFMNmtuUk8tby1MVURFV1NQZDlFdEV2MWg1QVAwNnFfNU1kZHlsQVFlVQ?oc=5"
+---
+
+### Fonte Original: TNH1
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxNU2FoU21QdWVVb2xIVlNHMk91Nk1Nc1ZLYWNjY29HaUx4WXVSbjlxR3dNbndtd1BtZWgwVlBnVzFyZ19ZY1lzYkdkeFhfZWhOR0VPOFhaVXFRbVFDOFllaHNGVVB6dG8zNHRaNFdPdzlyUjVLcWduSFdhOG9rVVdCeENnQ1U2TmFpSW5ZaHQtTnplRjdWV0JzcUFDbWfSAZcBQVVfeXFMTmpqcGNZdjA3TDRvcDF2TjZQRmQwM05yUm55bDQ2U0xoc2hlbWlfVzNIdmZjNmlkbDhVZk1yclViVVMwcktxTFQwaTBmTWtzQUVwWkZzR3NTUExEVW5oWmMtMmJHVFRFWVJlelVWYTFMNmtuUk8tby1MVURFV1NQZDlFdEV2MWg1QVAwNnFfNU1kZHlsQVFlVQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

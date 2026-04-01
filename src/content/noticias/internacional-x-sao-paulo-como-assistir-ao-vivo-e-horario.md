@@ -1,0 +1,13 @@
+---
+title: "Internacional x São Paulo: Como assistir ao vivo e horário"
+description: "Internacional x São Paulo: Como assistir ao vivo e horário  portalhortolandia.com.br"
+pubDate: "2026-04-01T09:00:00.000Z"
+source: "portalhortolandia.com.br"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxOMUZ4N3dIQUxUaldkSWxhTndtOXl5aEJVREZvaXRENkgxU0NXVEVDNFdMUjlrbnUwWldJczNhOTZhTkJGOHhKbC1QZDhDMlE1LWR2ZGkyam5YR1VPbnltZXp4WElPck1xX2ZNQnNNQTFIN3NsWUxZdTVieEl0bDQ5RNIBgAFBVV95cUxOMUZ4N3dIQUxUaldkSWxhTndtOXl5aEJVREZvaXRENkgxU0NXVEVDNFdMUjlrbnUwWldJczNhOTZhTkJGOHhKbC1QZDhDMlE1LWR2ZGkyam5YR1VPbnltZXp4WElPck1xX2ZNQnNNQTFIN3NsWUxZdTVieEl0bDQ5RA?oc=5"
+---
+
+### Fonte Original: portalhortolandia.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxOMUZ4N3dIQUxUaldkSWxhTndtOXl5aEJVREZvaXRENkgxU0NXVEVDNFdMUjlrbnUwWldJczNhOTZhTkJGOHhKbC1QZDhDMlE1LWR2ZGkyam5YR1VPbnltZXp4WElPck1xX2ZNQnNNQTFIN3NsWUxZdTVieEl0bDQ5RNIBgAFBVV95cUxOMUZ4N3dIQUxUaldkSWxhTndtOXl5aEJVREZvaXRENkgxU0NXVEVDNFdMUjlrbnUwWldJczNhOTZhTkJGOHhKbC1QZDhDMlE1LWR2ZGkyam5YR1VPbnltZXp4WElPck1xX2ZNQnNNQTFIN3NsWUxZdTVieEl0bDQ5RA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
