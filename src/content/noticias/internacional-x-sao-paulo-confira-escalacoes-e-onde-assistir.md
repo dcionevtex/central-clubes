@@ -1,0 +1,13 @@
+---
+title: "Internacional x São Paulo: confira escalações e onde assistir"
+description: "Internacional x São Paulo: confira escalações e onde assistir  esporte.ig.com.br"
+pubDate: "2026-04-01T03:00:00.000Z"
+source: "esporte.ig.com.br"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxQdDFHcFNWc3R1Sjl4WXN3QzdpTHVaWjliaXUwUkdvSVhEeThjdHlfaFNrS21lN1V6TEpteU92R1g1bWNpOVFzT2oxTmZ6bE1tQlhyaktXYlV5QWduempTN2lyMGtjY3MtWE04RnpfZXIxX29jOGNwcXBYZnEwdGluUHVGTUJIc2U2bXVnbE1hLTFzWktDSldpREVGUVYyTE0xSVI40gGoAUFVX3lxTE00bnFldTBVOFpQT1d2TFQwMnEta3BKUWNoTU1nRlYzUUxic2ZaZzZQTTB0czVsS1kzQ0tBd0dzRGItbWNETGV1UU9wNHVldDN1Wmx4UkpLeGxwTDZwOGpJMEVYQVRKa04zTmp2aUt2cEg4LVNaOEdnRHcya050azE0QUNDeGpPR0NmOUZQRVdHcTFvS0tBUE9udFhhREdreFVsUHJQNThxSA?oc=5"
+---
+
+### Fonte Original: esporte.ig.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxQdDFHcFNWc3R1Sjl4WXN3QzdpTHVaWjliaXUwUkdvSVhEeThjdHlfaFNrS21lN1V6TEpteU92R1g1bWNpOVFzT2oxTmZ6bE1tQlhyaktXYlV5QWduempTN2lyMGtjY3MtWE04RnpfZXIxX29jOGNwcXBYZnEwdGluUHVGTUJIc2U2bXVnbE1hLTFzWktDSldpREVGUVYyTE0xSVI40gGoAUFVX3lxTE00bnFldTBVOFpQT1d2TFQwMnEta3BKUWNoTU1nRlYzUUxic2ZaZzZQTTB0czVsS1kzQ0tBd0dzRGItbWNETGV1UU9wNHVldDN1Wmx4UkpLeGxwTDZwOGpJMEVYQVRKa04zTmp2aUt2cEg4LVNaOEdnRHcya050azE0QUNDeGpPR0NmOUZQRVdHcTFvS0tBUE9udFhhREdreFVsUHJQNThxSA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
