@@ -1,0 +1,13 @@
+---
+title: "São Paulo só quita dívida com Daniel Alves em dezembro de 2026"
+description: "São Paulo só quita dívida com Daniel Alves em dezembro de 2026  Jogada 10"
+pubDate: "2026-03-31T23:45:55.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMikAFBVV95cUxQNmlGLURGRlRFNjJZQ1pCbVlwZm40Q1B4NGJBa1ZZal91WWFiNmRtbWZhal9zMHNWTk9RVnhYd1VSVmJGcVJQV2RmVUxRM3l1aWowS1Q1UE5QNURwTzZkUWNjUnNtSWNmekh1VUttSDFPTlJmRHpsbDZqUFU3UUVXZTRGbGp1WnNrOFdCQlFpNXrSAZYBQVVfeXFMUFE1clEtdTZoRXZVZTVwS2l6T0s5NDRkTmRoWUtKcUd6WXJwNzBlcTRqYmpObnZtaThpeVBTVEE1SWFsY1dqVk5kR1RndVlRbWpZNmpLTVZCQjg4M2JFbGwzYXVjR1NMaUstanp0T1FMV2R2MDJ2eHUzTW1IVlhRRy1TVy16LVVGR1o5bnZSbnB3aEMyWkp3?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAFBVV95cUxQNmlGLURGRlRFNjJZQ1pCbVlwZm40Q1B4NGJBa1ZZal91WWFiNmRtbWZhal9zMHNWTk9RVnhYd1VSVmJGcVJQV2RmVUxRM3l1aWowS1Q1UE5QNURwTzZkUWNjUnNtSWNmekh1VUttSDFPTlJmRHpsbDZqUFU3UUVXZTRGbGp1WnNrOFdCQlFpNXrSAZYBQVVfeXFMUFE1clEtdTZoRXZVZTVwS2l6T0s5NDRkTmRoWUtKcUd6WXJwNzBlcTRqYmpObnZtaThpeVBTVEE1SWFsY1dqVk5kR1RndVlRbWpZNmpLTVZCQjg4M2JFbGwzYXVjR1NMaUstanp0T1FMV2R2MDJ2eHUzTW1IVlhRRy1TVy16LVVGR1o5bnZSbnB3aEMyWkp3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
