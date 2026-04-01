@@ -1,0 +1,13 @@
+---
+title: "Grêmio vence o São Paulo e conquista primeira vitória no Brasileiro Sub-20"
+description: "Grêmio vence o São Paulo e conquista primeira vitória no Brasileiro Sub-20  Jogada 10"
+pubDate: "2026-04-01T20:19:08.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxPTU8xSkd4dE1pOS1BTFFvVlJGUVZObURZRkxkaWRGUWt3RWctSldsa09jWGNEMTl3MXdrVWpVT0F1clJzMXZ0a3I3Z3N4bGpURHM3cDZuRUN3WnE4dHpSQ0JobG9CMnNFYmUwekwtUjNRQnpqWUxMT3FMR3FXajBEWWpuWG1MWmxfVll2OVJlRExjQ2QzbUdsSFdvZlpNZjdS0gGmAUFVX3lxTE1obmw0azUtelhrdmYwejJYa3ZQZWJXOHZOejV6TTcwQUhkVVpKTUFGbXhlV3BpdUVQSkpRdzNpVlhQcFBlRHNfS1FWSWtsRmwzV0ZLN2F5OXhfcmJZcTlUeWs2RHMxTm9semVOSUZ2SHpQc1dENVpzeVdHUjFQdF9yeDlhX1l2RDVGTnJSb1NralBrTUlLQkNOaDQ3bi1JbzVCeWxBc3c?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxPTU8xSkd4dE1pOS1BTFFvVlJGUVZObURZRkxkaWRGUWt3RWctSldsa09jWGNEMTl3MXdrVWpVT0F1clJzMXZ0a3I3Z3N4bGpURHM3cDZuRUN3WnE4dHpSQ0JobG9CMnNFYmUwekwtUjNRQnpqWUxMT3FMR3FXajBEWWpuWG1MWmxfVll2OVJlRExjQ2QzbUdsSFdvZlpNZjdS0gGmAUFVX3lxTE1obmw0azUtelhrdmYwejJYa3ZQZWJXOHZOejV6TTcwQUhkVVpKTUFGbXhlV3BpdUVQSkpRdzNpVlhQcFBlRHNfS1FWSWtsRmwzV0ZLN2F5OXhfcmJZcTlUeWs2RHMxTm9semVOSUZ2SHpQc1dENVpzeVdHUjFQdF9yeDlhX1l2RDVGTnJSb1NralBrTUlLQkNOaDQ3bi1JbzVCeWxBc3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
