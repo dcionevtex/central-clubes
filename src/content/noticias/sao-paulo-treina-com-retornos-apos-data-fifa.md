@@ -1,0 +1,13 @@
+---
+title: "São Paulo treina com retornos após Data FIFA"
+description: "São Paulo treina com retornos após Data FIFA  portalhortolandia.com.br"
+pubDate: "2026-04-02T21:06:51.000Z"
+source: "portalhortolandia.com.br"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxOUllwcnd3V1BrT1gyaWloSFkwYlN2dVZuNEN1MDcwcGhtRVFZWXpQRGdHdExrU3BOTjQ5VFZici1iYWVXUHhvZldFVDFsblJUUkp0Ykc5UG9UdUJHOEExWGtETjYyS1YxYnd0eWVrd0VaZ3hkZXJxRm5wWUpfeHlhUGxBV2rSAYQBQVVfeXFMTlJZcHJ3d1dQa09YMmlpaEhZMGJTdnVWbjRDdTA3MHBobUVRWVl6UERnR3RMa1NwTk40OVRWYnItYmFlV1B4b2ZXRVQxbG5SVFJKdGJHOVBvVHVCRzhBMVhrRE42MktWMWJ3dHlla3dFWmd4ZGVycUZucFlKX3h5YVBsQVdq?oc=5"
+---
+
+### Fonte Original: portalhortolandia.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxOUllwcnd3V1BrT1gyaWloSFkwYlN2dVZuNEN1MDcwcGhtRVFZWXpQRGdHdExrU3BOTjQ5VFZici1iYWVXUHhvZldFVDFsblJUUkp0Ykc5UG9UdUJHOEExWGtETjYyS1YxYnd0eWVrd0VaZ3hkZXJxRm5wWUpfeHlhUGxBV2rSAYQBQVVfeXFMTlJZcHJ3d1dQa09YMmlpaEhZMGJTdnVWbjRDdTA3MHBobUVRWVl6UERnR3RMa1NwTk40OVRWYnItYmFlV1B4b2ZXRVQxbG5SVFJKdGJHOVBvVHVCRzhBMVhrRE42MktWMWJ3dHlla3dFWmd4ZGVycUZucFlKX3h5YVBsQVdq?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
