@@ -1,0 +1,13 @@
+---
+title: "São Paulo sai atrás e busca empate tardio contra o Inter"
+description: "São Paulo sai atrás e busca empate tardio contra o Inter  Portal Hortolândia"
+pubDate: "2026-04-02T00:37:35.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQM0p0a254X2drc3ZsYWg0WjFhU01xZ3BKQkNQb0llQnR5VnlWTGNydEhzTTRVVVVkOE5zd1l1MmVnRFpudTIyOC1vTkJTNUdVamFFU0VWd2g4dmVlaDE3dC1vdm1XSnRJRWUxcG1PSkxaWjJydExvbEhqLUE0dEhueWtIb9IBgwFBVV95cUxQM0p0a254X2drc3ZsYWg0WjFhU01xZ3BKQkNQb0llQnR5VnlWTGNydEhzTTRVVVVkOE5zd1l1MmVnRFpudTIyOC1vTkJTNUdVamFFU0VWd2g4dmVlaDE3dC1vdm1XSnRJRWUxcG1PSkxaWjJydExvbEhqLUE0dEhueWtIbw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQM0p0a254X2drc3ZsYWg0WjFhU01xZ3BKQkNQb0llQnR5VnlWTGNydEhzTTRVVVVkOE5zd1l1MmVnRFpudTIyOC1vTkJTNUdVamFFU0VWd2g4dmVlaDE3dC1vdm1XSnRJRWUxcG1PSkxaWjJydExvbEhqLUE0dEhueWtIb9IBgwFBVV95cUxQM0p0a254X2drc3ZsYWg0WjFhU01xZ3BKQkNQb0llQnR5VnlWTGNydEhzTTRVVVVkOE5zd1l1MmVnRFpudTIyOC1vTkJTNUdVamFFU0VWd2g4dmVlaDE3dC1vdm1XSnRJRWUxcG1PSkxaWjJydExvbEhqLUE0dEhueWtIbw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Inter aciona protocolo de concussão após o meia bater a cabeça na partida contra o São Paulo"
+description: "Inter aciona protocolo de concussão após o meia bater a cabeça na partida contra o São Paulo  GZH"
+pubDate: "2026-04-02T00:27:58.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMilAJBVV95cUxOR0g4SEtxUWtsRk1zX0dXUWZacFVpY2RaSlhGc3ZGYWp6M2ZrNmxpb2lrOWZMTEJlc1VQc3hreHpydTc1d2Z3VUxFamd6Q1JGcXJ3emsyT1VCQlN3WVdER2VtRTI2N2ZETHFQWHZWcHFtUXl3c0NsN2JET29OYWl5dmstdG40UDRrcjNHSEZuNXU5RmZhdko1U2VLUG1GWGFBNWd4Q0Nib2d2WUxaQUIyWkFnTXBqTG02OHhYQkhickZ1QjA5LV9KUzFGUUpxSEpHSmFvd2lzcTdzTklWOEpLV181VFlNOUVDcjBhaUtpTFdER0RlSmdzUXNpdHNrYWtvdWVFYW8ybjJ4eU44Mkc4WTJJTXk?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAJBVV95cUxOR0g4SEtxUWtsRk1zX0dXUWZacFVpY2RaSlhGc3ZGYWp6M2ZrNmxpb2lrOWZMTEJlc1VQc3hreHpydTc1d2Z3VUxFamd6Q1JGcXJ3emsyT1VCQlN3WVdER2VtRTI2N2ZETHFQWHZWcHFtUXl3c0NsN2JET29OYWl5dmstdG40UDRrcjNHSEZuNXU5RmZhdko1U2VLUG1GWGFBNWd4Q0Nib2d2WUxaQUIyWkFnTXBqTG02OHhYQkhickZ1QjA5LV9KUzFGUUpxSEpHSmFvd2lzcTdzTklWOEpLV181VFlNOUVDcjBhaUtpTFdER0RlSmdzUXNpdHNrYWtvdWVFYW8ybjJ4eU44Mkc4WTJJTXk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

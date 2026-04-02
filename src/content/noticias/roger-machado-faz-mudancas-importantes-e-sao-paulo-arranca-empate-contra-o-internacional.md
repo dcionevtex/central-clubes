@@ -1,0 +1,13 @@
+---
+title: "Roger Machado faz mudanças importantes e São Paulo arranca empate contra o Internacional"
+description: "Roger Machado faz mudanças importantes e São Paulo arranca empate contra o Internacional  br.bolavip.com"
+pubDate: "2026-04-02T00:33:57.000Z"
+source: "br.bolavip.com"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxQcXU2QTRrT2VQUHZJWjJwaE5tTV9rWWhkV1AtYmg4VkVMR3JoSnlNblk1NTVIdzdsT2xBRlgxUTZrTHJTanZZOFpVUWZVd3VZSEdfaGU1NWZrUnc2Z3h3WEozNmRfcmxTaFZPV0Fmb1dteGtMdUQ5SkRrd0NmUUxZcmFLdXdKbnQyWVhpNEluWdIBlAFBVV95cUxNSy1vNHlwTDVNVGpWS1NKTGptUFAyd3dQV1VfSE0wa1hWYUdBREhzbnhWcXhZZmV5WXVxOXl2Q2lSeTBPejJOLUN5b1VJdUQxLW9sZGdfTHlvSjEtWXUxNEVfd1VjYmctVjgxaWxHTEwyNG1SR3VOLUhJTXItNzJjcFNlclItTEd1Z296OGM1UkNndDJE?oc=5"
+---
+
+### Fonte Original: br.bolavip.com
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxQcXU2QTRrT2VQUHZJWjJwaE5tTV9rWWhkV1AtYmg4VkVMR3JoSnlNblk1NTVIdzdsT2xBRlgxUTZrTHJTanZZOFpVUWZVd3VZSEdfaGU1NWZrUnc2Z3h3WEozNmRfcmxTaFZPV0Fmb1dteGtMdUQ5SkRrd0NmUUxZcmFLdXdKbnQyWVhpNEluWdIBlAFBVV95cUxNSy1vNHlwTDVNVGpWS1NKTGptUFAyd3dQV1VfSE0wa1hWYUdBREhzbnhWcXhZZmV5WXVxOXl2Q2lSeTBPejJOLUN5b1VJdUQxLW9sZGdfTHlvSjEtWXUxNEVfd1VjYmctVjgxaWxHTEwyNG1SR3VOLUhJTXItNzJjcFNlclItTEd1Z296OGM1UkNndDJE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
