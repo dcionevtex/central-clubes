@@ -1,0 +1,13 @@
+---
+title: "Calleri valoriza reação, mas cobra capricho do São Paulo: ”Falta finalizar mais”"
+description: "Calleri valoriza reação, mas cobra capricho do São Paulo: ”Falta finalizar mais”  Jogada 10"
+pubDate: "2026-04-02T00:54:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxOUU1Xa1p2S3dlRURmNWNTRFRZNWJTMnFJRDF3YTNmRFl3VjRxX3hySWtDUTM0c2ZtZ1pmMDNuaDd0N2M0SkFxRzFwbVF2SUNzTHE5SnBPZXpESGdPM2J0SFc4LTFWU1U5MlBrOEtVYjNfTGRacVdETlhBR3FGYkpWWkZPNlBuLXk3b2dTRnFDS2pfU01haTllVERNdW5OV2w3bVRyMnR4cnTSAagBQVVfeXFMTlFNV2tadkt3ZUVEZjVjU0RUWTViUzJxSUQxd2EzZkRZd1Y0cV94cklrQ1EzNHNmbWdaZjAzbmg3dDdjNEpBcUcxcG1RdklDc0xxOUpwT2V6REhnTzNidEhXOC0xVlNVOTJQazhLVWIzX0xkWnFXRE5YQUdxRmJKVlpGTzZQbi15N29nU0ZxQ0tqX1NNYWk5ZVRETXVuTldsN21UcjJ0eHJ0?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOUU1Xa1p2S3dlRURmNWNTRFRZNWJTMnFJRDF3YTNmRFl3VjRxX3hySWtDUTM0c2ZtZ1pmMDNuaDd0N2M0SkFxRzFwbVF2SUNzTHE5SnBPZXpESGdPM2J0SFc4LTFWU1U5MlBrOEtVYjNfTGRacVdETlhBR3FGYkpWWkZPNlBuLXk3b2dTRnFDS2pfU01haTllVERNdW5OV2w3bVRyMnR4cnTSAagBQVVfeXFMTlFNV2tadkt3ZUVEZjVjU0RUWTViUzJxSUQxd2EzZkRZd1Y0cV94cklrQ1EzNHNmbWdaZjAzbmg3dDdjNEpBcUcxcG1RdklDc0xxOUpwT2V6REhnTzNidEhXOC0xVlNVOTJQazhLVWIzX0xkWnFXRE5YQUdxRmJKVlpGTzZQbi15N29nU0ZxQ0tqX1NNYWk5ZVRETXVuTldsN21UcjJ0eHJ0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

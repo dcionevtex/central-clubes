@@ -1,0 +1,13 @@
+---
+title: "\"Não falo expressões rebuscadas para parecer mais inteligente\", diz Roger Machado após críticas"
+description: "\"Não falo expressões rebuscadas para parecer mais inteligente\", diz Roger Machado após críticas  GZH"
+pubDate: "2026-04-02T01:59:37.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMinAJBVV95cUxOMnpZakNDdVM3akRxX05laFJwZXBhSFh0eDNUR3ZPcl9oajVOQ1oyVm9rWVl4dnB2OWgxN2RBTzcydVFxU2NrYVpWTm8wZ2xOcF9zcTdmNS1UYzlUWWxDQ3R4bnREdjNGU3lYSnpfTE5ReGZqWXFMU3pvbUxGQ09KeEttSUhFcEV0dmRhNTdwWXZFZXlPTXlKaUpYcm94azZCM1pRSEVscVhVM1FvaWFzUTJaaEZUU1lYbjQ2aGVMaEEtajhNNFpUQU56ZUMzc3NtQjF3S015TVpjT0RVLXhsMHFfWHlUNDF1dFpoT3RfOTF4VVA3YVhzaW5pNUpBN1pZaC1ZcXJZQkJKOWhpd25DcFh5RWJfUktSUVhQQQ?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAJBVV95cUxOMnpZakNDdVM3akRxX05laFJwZXBhSFh0eDNUR3ZPcl9oajVOQ1oyVm9rWVl4dnB2OWgxN2RBTzcydVFxU2NrYVpWTm8wZ2xOcF9zcTdmNS1UYzlUWWxDQ3R4bnREdjNGU3lYSnpfTE5ReGZqWXFMU3pvbUxGQ09KeEttSUhFcEV0dmRhNTdwWXZFZXlPTXlKaUpYcm94azZCM1pRSEVscVhVM1FvaWFzUTJaaEZUU1lYbjQ2aGVMaEEtajhNNFpUQU56ZUMzc3NtQjF3S015TVpjT0RVLXhsMHFfWHlUNDF1dFpoT3RfOTF4VVA3YVhzaW5pNUpBN1pZaC1ZcXJZQkJKOWhpd25DcFh5RWJfUktSUVhQQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

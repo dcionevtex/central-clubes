@@ -1,0 +1,13 @@
+---
+title: "O perigo para o Inter ao deixar escapar a vitória contra o São Paulo"
+description: "O perigo para o Inter ao deixar escapar a vitória contra o São Paulo  GZH"
+pubDate: "2026-04-02T01:16:49.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMijgJBVV95cUxQNlo0ZnpfZUxONkZSVjhRTVoycXdfQW54UFRPdTdidWVNeWpsUGZtMFAxckZnaDBXVDFLY1hkc2U5YmlqcVhuWnA4b3oyUGcwejMwUmhpOXdKeUVMMEt2ZDBnaGwyY1pQVlFaVTdHM1VoYmpoT18xM0Q1cUxHNXJxNFltTHRXTU81UHZWYmp1QmRxZm1ud3ZTZUVYbjE4YVlibkx3bWk2ZS1VQlltcWZ0REJYaGdNcW1EbHJzUUdYbGdCek9scmV2Tnhxdml3YjRid085N2pFa0ZINkM4c2tqcjBOdVpERlRFbktNcmI3Qks0QURidFZUZ0Y0VDNnWEZmVS0wTi01SU5Ga3BOOWc?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijgJBVV95cUxQNlo0ZnpfZUxONkZSVjhRTVoycXdfQW54UFRPdTdidWVNeWpsUGZtMFAxckZnaDBXVDFLY1hkc2U5YmlqcVhuWnA4b3oyUGcwejMwUmhpOXdKeUVMMEt2ZDBnaGwyY1pQVlFaVTdHM1VoYmpoT18xM0Q1cUxHNXJxNFltTHRXTU81UHZWYmp1QmRxZm1ud3ZTZUVYbjE4YVlibkx3bWk2ZS1VQlltcWZ0REJYaGdNcW1EbHJzUUdYbGdCek9scmV2Tnhxdml3YjRid085N2pFa0ZINkM4c2tqcjBOdVpERlRFbktNcmI3Qks0QURidFZUZ0Y0VDNnWEZmVS0wTi01SU5Ga3BOOWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

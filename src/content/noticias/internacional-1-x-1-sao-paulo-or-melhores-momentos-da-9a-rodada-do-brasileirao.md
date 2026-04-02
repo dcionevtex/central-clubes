@@ -1,0 +1,13 @@
+---
+title: "Internacional 1 x 1 São Paulo | Melhores momentos da 9ª rodada do Brasileirão"
+description: "Internacional 1 x 1 São Paulo | Melhores momentos da 9ª rodada do Brasileirão  R7 Esportes"
+pubDate: "2026-04-02T02:08:00.000Z"
+source: "R7 Esportes"
+link: "https://news.google.com/rss/articles/CBMilgJBVV95cUxQSkxsNHU3R3JydkhqM1ItSmFmQ0VjWWdPWkNTaUpkZHRtMVZhMVltdHk5cjY4dDdtQmJ2eWV2a0NPUW05QldNRlZHMFRmY3dRN29GNnFmd25EX2FJVGpMUzc1ekhfbllLNEllaDFWUzlnVU92cXQ3YzhidUxrUzhwa3VGX1Q3cVdzXzl3dVRuYW5OYzNUdGNtLV9XSlVLbWs2VmVOREVnS1pmeXkwdnhyXzAxVW0wb0NHUWtMaWloanZ3ZG5sYWVtZnBLazVLb3puNkJTcHJ2RDlHTXU0YWxhcHNGTnlsN0RXc3FFZlY3ZjdfVEFZU25YNTczc0tUQTJMZVJlYUJobTZZUU9FV1M2NkxvUHJMUQ?oc=5"
+---
+
+### Fonte Original: R7 Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgJBVV95cUxQSkxsNHU3R3JydkhqM1ItSmFmQ0VjWWdPWkNTaUpkZHRtMVZhMVltdHk5cjY4dDdtQmJ2eWV2a0NPUW05QldNRlZHMFRmY3dRN29GNnFmd25EX2FJVGpMUzc1ekhfbllLNEllaDFWUzlnVU92cXQ3YzhidUxrUzhwa3VGX1Q3cVdzXzl3dVRuYW5OYzNUdGNtLV9XSlVLbWs2VmVOREVnS1pmeXkwdnhyXzAxVW0wb0NHUWtMaWloanZ3ZG5sYWVtZnBLazVLb3puNkJTcHJ2RDlHTXU0YWxhcHNGTnlsN0RXc3FFZlY3ZjdfVEFZU25YNTczc0tUQTJMZVJlYUJobTZZUU9FV1M2NkxvUHJMUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

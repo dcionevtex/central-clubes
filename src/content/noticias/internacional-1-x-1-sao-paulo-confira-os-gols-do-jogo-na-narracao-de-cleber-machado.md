@@ -1,0 +1,13 @@
+---
+title: "Internacional 1 x 1 São Paulo: confira os gols do jogo na narração de Cleber Machado"
+description: "Internacional 1 x 1 São Paulo: confira os gols do jogo na narração de Cleber Machado  R7 Esportes"
+pubDate: "2026-04-02T02:27:00.000Z"
+source: "R7 Esportes"
+link: "https://news.google.com/rss/articles/CBMiogJBVV95cUxQUEh5NW5qeV9GNUZyX2dIX3VQampoUE1TRHdLUDJubUNYQVU1Y0lhSkVyd0tlcEJSOTBmUEc4M0w3aUluZzZUNWpFd0xBOTZTTlpBQi1sU2dKS0VjZ05uVWtUeklaSkl1Q0hiM3BlRjNTb1dYTFZwbjk3ZVFNczA5bnlpeUM3dWRSV29hZHdTOHpFT3NqWVFFSDFPV056dTV6dzlPOTlZejg3cjJoNTYtLVhZZDJMbVZKQ2lBQ21CVlZ6ZE4wT3N4QVVLZEFmQld3X2dPMzhyTlFQQ0VBbzRxUlRud1ZvS0ZHcFR1Rk5HUmFZczY1MFE3aFYxZnNCZEx6eEhsZXRpZVpqQ2xLaUIxOE1oZDFyN243TTNGZUJxNEY5QQ?oc=5"
+---
+
+### Fonte Original: R7 Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogJBVV95cUxQUEh5NW5qeV9GNUZyX2dIX3VQampoUE1TRHdLUDJubUNYQVU1Y0lhSkVyd0tlcEJSOTBmUEc4M0w3aUluZzZUNWpFd0xBOTZTTlpBQi1sU2dKS0VjZ05uVWtUeklaSkl1Q0hiM3BlRjNTb1dYTFZwbjk3ZVFNczA5bnlpeUM3dWRSV29hZHdTOHpFT3NqWVFFSDFPV056dTV6dzlPOTlZejg3cjJoNTYtLVhZZDJMbVZKQ2lBQ21CVlZ6ZE4wT3N4QVVLZEFmQld3X2dPMzhyTlFQQ0VBbzRxUlRud1ZvS0ZHcFR1Rk5HUmFZczY1MFE3aFYxZnNCZEx6eEhsZXRpZVpqQ2xLaUIxOE1oZDFyN243TTNGZUJxNEY5QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
