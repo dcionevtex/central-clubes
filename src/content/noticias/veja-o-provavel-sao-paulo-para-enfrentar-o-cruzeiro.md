@@ -1,0 +1,13 @@
+---
+title: "Veja o provável São Paulo para enfrentar o Cruzeiro"
+description: "Veja o provável São Paulo para enfrentar o Cruzeiro  Portal Hortolândia"
+pubDate: "2026-04-03T19:13:31.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxOaHpJSXJaTjVLbndiM25hN0dTTFNtcndaSDJqYXRiN0l3S2dXQTJtUTE3QUNMLURuVFVwMFFucVVmRGNaSnZMZkZXM0RtSFlFTEM4LVhTYXRLdHFlaWpCdVZOclVoMTNRamk1OHBSYzNCMUc3SFVFZzVCS2hlb0lrM05YZjPSAYQBQVVfeXFMTmh6SUlyWk41S253YjNuYTdHU0xTbXJ3WkgyamF0YjdJd0tnV0EybVExN0FDTC1EblRVcDBRbnFVZkRjWkp2TGZGVzNEbUhZRUxDOC1YU2F0S3RxZWlqQnVWTnJVaDEzUWppNThwUmMzQjFHN0hVRWc1QktoZW9JazNOWGYz?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxOaHpJSXJaTjVLbndiM25hN0dTTFNtcndaSDJqYXRiN0l3S2dXQTJtUTE3QUNMLURuVFVwMFFucVVmRGNaSnZMZkZXM0RtSFlFTEM4LVhTYXRLdHFlaWpCdVZOclVoMTNRamk1OHBSYzNCMUc3SFVFZzVCS2hlb0lrM05YZjPSAYQBQVVfeXFMTmh6SUlyWk41S253YjNuYTdHU0xTbXJ3WkgyamF0YjdJd0tnV0EybVExN0FDTC1EblRVcDBRbnFVZkRjWkp2TGZGVzNEbUhZRUxDOC1YU2F0S3RxZWlqQnVWTnJVaDEzUWppNThwUmMzQjFHN0hVRWc1QktoZW9JazNOWGYz?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
