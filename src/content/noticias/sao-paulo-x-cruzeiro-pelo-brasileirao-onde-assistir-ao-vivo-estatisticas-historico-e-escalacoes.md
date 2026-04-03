@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Cruzeiro pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "São Paulo x Cruzeiro pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações  Gazeta Esportiva"
+pubDate: "2026-04-03T23:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxOLTdXenA3Qno5YjZxa0VRVjJjUjlBZ3R6bkdaS0hVa3JoS0JHOUpnZnF2ZmdiVDlFdUI2V2pRT3NaZ2NXcFM0XzJDY0I0UXRMbFZRcVgxc2dKQlFLUmVRV2c2SVNkZkFfXzZBaVNFbm5TVnI1cVk5SHBuWVk1MXltdGxpcVfSAYoBQVVfeXFMUGlwc0ZId01XTWxRVlJPT3A4eDJmTHhXQTJ4SDZzRWJlcjU2MVBEX0p6eHM4OF9BdUt5R1VSTm1jbXhyWDUybVdheTFST0JPZzJUbWdzQl9rX2szREo1dFRUczNvaWJxM3pVSGZsdWREcDBvT1NPV0VYQlRkWER2WUVWa19Dakltaktn?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxOLTdXenA3Qno5YjZxa0VRVjJjUjlBZ3R6bkdaS0hVa3JoS0JHOUpnZnF2ZmdiVDlFdUI2V2pRT3NaZ2NXcFM0XzJDY0I0UXRMbFZRcVgxc2dKQlFLUmVRV2c2SVNkZkFfXzZBaVNFbm5TVnI1cVk5SHBuWVk1MXltdGxpcVfSAYoBQVVfeXFMUGlwc0ZId01XTWxRVlJPT3A4eDJmTHhXQTJ4SDZzRWJlcjU2MVBEX0p6eHM4OF9BdUt5R1VSTm1jbXhyWDUybVdheTFST0JPZzJUbWdzQl9rX2szREo1dFRUczNvaWJxM3pVSGZsdWREcDBvT1NPV0VYQlRkWER2WUVWa19Dakltaktn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
