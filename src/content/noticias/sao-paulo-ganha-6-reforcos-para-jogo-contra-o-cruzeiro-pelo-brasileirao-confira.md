@@ -1,0 +1,13 @@
+---
+title: "São Paulo ganha 6 reforços para jogo contra o Cruzeiro pelo Brasileirão; confira"
+description: "São Paulo ganha 6 reforços para jogo contra o Cruzeiro pelo Brasileirão; confira  Diário Celeste"
+pubDate: "2026-04-03T14:20:00.000Z"
+source: "Diário Celeste"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxPRjRhdEltVU9pUGtMdFhtYUViN1Bxa1dpbFJNRl95cEJINFlwZEpKblUwLVRUOFpDOVlGX3JMU2lEd2pERkpVTUw5QUhZU1MzUzdhazhVSy1WcXJvNHVRX1RYNHhpZnN5V2UtcjBpeGZvNldPTTEtc2pXMzR1Vk9VRm5xRXFKMEt1NWRmTmdGbThDTEJLbUl1cDJaSmtMenB00gGmAUFVX3lxTE9VVW54NUFSNy1lUUhqbmN5bnhLS3ItTlI2TFVxdzg3Uk9iNEpfQ0RVSWEteEZQRzR1VWJzc2JzN002Mm5DbXpjRjNBM2ljSm01alQ3TGp0U1c4NGZRaTdZSXh1dWc1WklXRTc2VEFBeUlTTHRkODZXMUpjMDFGd29PLTZ1cnJ0R3p0LVJsQkVjdi13b1hDMUhGT09TeHF5UzJHSkIwS0E?oc=5"
+---
+
+### Fonte Original: Diário Celeste
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxPRjRhdEltVU9pUGtMdFhtYUViN1Bxa1dpbFJNRl95cEJINFlwZEpKblUwLVRUOFpDOVlGX3JMU2lEd2pERkpVTUw5QUhZU1MzUzdhazhVSy1WcXJvNHVRX1RYNHhpZnN5V2UtcjBpeGZvNldPTTEtc2pXMzR1Vk9VRm5xRXFKMEt1NWRmTmdGbThDTEJLbUl1cDJaSmtMenB00gGmAUFVX3lxTE9VVW54NUFSNy1lUUhqbmN5bnhLS3ItTlI2TFVxdzg3Uk9iNEpfQ0RVSWEteEZQRzR1VWJzc2JzN002Mm5DbXpjRjNBM2ljSm01alQ3TGp0U1c4NGZRaTdZSXh1dWc1WklXRTc2VEFBeUlTTHRkODZXMUpjMDFGd29PLTZ1cnJ0R3p0LVJsQkVjdi13b1hDMUhGT09TeHF5UzJHSkIwS0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
