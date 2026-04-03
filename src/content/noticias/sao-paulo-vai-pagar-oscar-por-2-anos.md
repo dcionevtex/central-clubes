@@ -1,0 +1,13 @@
+---
+title: "São Paulo vai pagar Oscar por 2 anos"
+description: "São Paulo vai pagar Oscar por 2 anos  Portal Hortolândia"
+pubDate: "2026-04-03T15:37:06.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTFAzblFyMFoybGdLVkVXUzNHUHU3a09fazZ4MG1QUDFZYVZSWnFGTGYxSGFxU2R3bi1Sa3Q2N003VndxeWduWHBLOFQzSEtSVC1qQTg0TEk0UHZGaXBfQUt0WE9pSkNkRU5vU0ZwejdXRjNIRUlmOUt1ZV9wT3FEd9IBfkFVX3lxTFAzblFyMFoybGdLVkVXUzNHUHU3a09fazZ4MG1QUDFZYVZSWnFGTGYxSGFxU2R3bi1Sa3Q2N003VndxeWduWHBLOFQzSEtSVC1qQTg0TEk0UHZGaXBfQUt0WE9pSkNkRU5vU0ZwejdXRjNIRUlmOUt1ZV9wT3FEdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTFAzblFyMFoybGdLVkVXUzNHUHU3a09fazZ4MG1QUDFZYVZSWnFGTGYxSGFxU2R3bi1Sa3Q2N003VndxeWduWHBLOFQzSEtSVC1qQTg0TEk0UHZGaXBfQUt0WE9pSkNkRU5vU0ZwejdXRjNIRUlmOUt1ZV9wT3FEd9IBfkFVX3lxTFAzblFyMFoybGdLVkVXUzNHUHU3a09fazZ4MG1QUDFZYVZSWnFGTGYxSGFxU2R3bi1Sa3Q2N003VndxeWduWHBLOFQzSEtSVC1qQTg0TEk0UHZGaXBfQUt0WE9pSkNkRU5vU0ZwejdXRjNIRUlmOUt1ZV9wT3FEdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
