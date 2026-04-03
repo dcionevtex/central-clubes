@@ -1,0 +1,13 @@
+---
+title: "Oficial! Rescisão de Oscar com o São Paulo é publicada no BID"
+description: "Oficial! Rescisão de Oscar com o São Paulo é publicada no BID  Esporte News Mundo"
+pubDate: "2026-04-03T04:08:50.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxNS3RZR05qc0VpWUhrNkJCenROSGI1bmdndUhMdlBNRkplWjhLQlM2QnBFWWxfRFJfTzJ1aUNPczdWbnk5elNsblVvM3JWZmQ3MDN5RjRjVzZvQ1NYZklnNEdIbE5ySlg3TjVxWDA2OFVfRmFHWXRqc1JkamI2blVTR3ZEVHhGUdIBiwFBVV95cUxNSVdyanVoY3ptS1lQeWNuQUJLUFdPc0NmVzRZdEhoNTNZZURNeWctMXBmWXFqYTg2TVlKdXZFTUliRDREaGN2SmJrTUo5ZlpwTGxNQ0c3ZUxMY25zZW9faEd2VDNFa210UFdwN0dFblBBT001X04xVVQ0dXZoT21vZFozNDZfckhza1lr?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxNS3RZR05qc0VpWUhrNkJCenROSGI1bmdndUhMdlBNRkplWjhLQlM2QnBFWWxfRFJfTzJ1aUNPczdWbnk5elNsblVvM3JWZmQ3MDN5RjRjVzZvQ1NYZklnNEdIbE5ySlg3TjVxWDA2OFVfRmFHWXRqc1JkamI2blVTR3ZEVHhGUdIBiwFBVV95cUxNSVdyanVoY3ptS1lQeWNuQUJLUFdPc0NmVzRZdEhoNTNZZURNeWctMXBmWXFqYTg2TVlKdXZFTUliRDREaGN2SmJrTUo5ZlpwTGxNQ0c3ZUxMY25zZW9faEd2VDNFa210UFdwN0dFblBBT001X04xVVQ0dXZoT21vZFozNDZfckhza1lr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
