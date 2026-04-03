@@ -1,0 +1,13 @@
+---
+title: "Roger Machado pode alterar ainda mais o time dupla titular pode perder status"
+description: "Roger Machado pode alterar ainda mais o time dupla titular pode perder status  Portal Hortolândia"
+pubDate: "2026-04-03T10:30:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE00MDNTcFh0OXJkV1FCOGZxZ19FZng3amtxeXdEajdrMlBNVGJ1eFp1U1pQMjRTN2RST1prNkdmcEZxc28wRGJsREI3Qk5raWpZd21KLXpBajVuZXRTbFdoUGE1eWdQcVViak01V0w1d2JfVXBFLWxRclJubmZ5UdIBfkFVX3lxTE00MDNTcFh0OXJkV1FCOGZxZ19FZng3amtxeXdEajdrMlBNVGJ1eFp1U1pQMjRTN2RST1prNkdmcEZxc28wRGJsREI3Qk5raWpZd21KLXpBajVuZXRTbFdoUGE1eWdQcVViak01V0w1d2JfVXBFLWxRclJubmZ5UQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE00MDNTcFh0OXJkV1FCOGZxZ19FZng3amtxeXdEajdrMlBNVGJ1eFp1U1pQMjRTN2RST1prNkdmcEZxc28wRGJsREI3Qk5raWpZd21KLXpBajVuZXRTbFdoUGE1eWdQcVViak01V0w1d2JfVXBFLWxRclJubmZ5UdIBfkFVX3lxTE00MDNTcFh0OXJkV1FCOGZxZ19FZng3amtxeXdEajdrMlBNVGJ1eFp1U1pQMjRTN2RST1prNkdmcEZxc28wRGJsREI3Qk5raWpZd21KLXpBajVuZXRTbFdoUGE1eWdQcVViak01V0w1d2JfVXBFLWxRclJubmZ5UQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
