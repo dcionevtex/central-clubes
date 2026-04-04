@@ -1,0 +1,13 @@
+---
+title: "Preparação encerrada: veja desfalques e provável escalação do São Paulo contra o Cruzeiro"
+description: "Preparação encerrada: veja desfalques e provável escalação do São Paulo contra o Cruzeiro  diarioceleste.com.br"
+pubDate: "2026-04-04T03:00:10.000Z"
+source: "diarioceleste.com.br"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxNMjEtdjdpN2tBT2tLb1JrV1AyZjB1cEN4S3hSazRqQUpRZHNkRWpULWRRV3pQQkgzSzBtVGRDYkkwU01XbXhrV1NaXzBpZG9sS3lXMGVHVjlTSGdMa2E4WGVJSlBvTWNwQlc3TXJscFBiOUtWaXlSeXRnR3hwX3VEcURmb1hmdUtYYndLLU5nNTdzZjJ2dGNSSDlqM1FwN2fSAZ8BQVVfeXFMTTIxLXY3aTdrQU9rS29Sa1dQMmYwdXBDeEt4Ums0akFKUWRzZEVqVC1kUVd6UEJIM0swbVRkQ2JJMFNNV214a1dTWl8waWRvbEt5VzBlR1Y5U0hnTGthOFhlSUpQb01jcEJXN01ybHBQYjlLVml5Unl0Z0d4cF91RHFEZm9YZnVLWGJ3Sy1OZzU3c2YydnRjUkg5ajNRcDdn?oc=5"
+---
+
+### Fonte Original: diarioceleste.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxNMjEtdjdpN2tBT2tLb1JrV1AyZjB1cEN4S3hSazRqQUpRZHNkRWpULWRRV3pQQkgzSzBtVGRDYkkwU01XbXhrV1NaXzBpZG9sS3lXMGVHVjlTSGdMa2E4WGVJSlBvTWNwQlc3TXJscFBiOUtWaXlSeXRnR3hwX3VEcURmb1hmdUtYYndLLU5nNTdzZjJ2dGNSSDlqM1FwN2fSAZ8BQVVfeXFMTTIxLXY3aTdrQU9rS29Sa1dQMmYwdXBDeEt4Ums0akFKUWRzZEVqVC1kUVd6UEJIM0swbVRkQ2JJMFNNV214a1dTWl8waWRvbEt5VzBlR1Y5U0hnTGthOFhlSUpQb01jcEJXN01ybHBQYjlLVml5Unl0Z0d4cF91RHFEZm9YZnVLWGJ3Sy1OZzU3c2YydnRjUkg5ajNRcDdn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
