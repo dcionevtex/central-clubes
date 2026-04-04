@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Cruzeiro: IA destaca vantagem para o SPFC e projeta vitória"
+description: "São Paulo x Cruzeiro: IA destaca vantagem para o SPFC e projeta vitória  Bolavip Brasil"
+pubDate: "2026-04-04T17:05:55.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxPLU5LeVhuT2NBejY3Rk9LWG12RHRzbkxPZnBBQzZZeTdjMkdnQlh5bkItLVVXQW1mSWN0RXV6QnB1dGw3ekU1aEQ2aklucHhFc0JDNXQwaEx6VDN5NTBsN0lINThZam9sV3hUNy1TUTIxX3UxZ2VQR3JZei1DalB0QlpLSlpuV21WalVfOTRrQ2ViMXZsaGJfTVB6YnozSE40ZEhnTzBR0gGrAUFVX3lxTFBZUVA0RTJtQmNDWGZhN0JtTUxZdnh2MG5najEyZmdhb0wyem1zZEtvblFBd2xVU2l1OUJUY3FsZEpEbDE3ek5DcXdqX0pSVlhfaWUweDJNV0kwQnhNUURTVS1rUGRFcnRfamdjZlF0SUo4ZEQzQ0htUFpDcHJDTjNETVdaQ0tFbmItcS05Q2swWmMzV01uaC1vbjIwOEtrRm8zUVZpLWpYbzBVRQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxPLU5LeVhuT2NBejY3Rk9LWG12RHRzbkxPZnBBQzZZeTdjMkdnQlh5bkItLVVXQW1mSWN0RXV6QnB1dGw3ekU1aEQ2aklucHhFc0JDNXQwaEx6VDN5NTBsN0lINThZam9sV3hUNy1TUTIxX3UxZ2VQR3JZei1DalB0QlpLSlpuV21WalVfOTRrQ2ViMXZsaGJfTVB6YnozSE40ZEhnTzBR0gGrAUFVX3lxTFBZUVA0RTJtQmNDWGZhN0JtTUxZdnh2MG5najEyZmdhb0wyem1zZEtvblFBd2xVU2l1OUJUY3FsZEpEbDE3ek5DcXdqX0pSVlhfaWUweDJNV0kwQnhNUURTVS1rUGRFcnRfamdjZlF0SUo4ZEQzQ0htUFpDcHJDTjNETVdaQ0tFbmItcS05Q2swWmMzV01uaC1vbjIwOEtrRm8zUVZpLWpYbzBVRQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

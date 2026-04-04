@@ -1,0 +1,13 @@
+---
+title: "Autor do gol do 7 a 1 anuncia aposentadoria: \"Queria ter feito mais\""
+description: "Autor do gol do 7 a 1 anuncia aposentadoria: \"Queria ter feito mais\"  A TARDE"
+pubDate: "2026-04-04T15:07:55.000Z"
+source: "A TARDE"
+link: "https://news.google.com/rss/articles/CBMipwFBVV95cUxPM3BRaHRZVklRdU5PZktSOEpuNVFUdDNnTlJUdDN3V1JrcTFsTS1uYjlQUms0MUlTekFYNGxBa3NxMHp1aUIyN3hQMjU2OGVWbDVWaF9lV1lrOVZLZXcydjNFSTlJQnhjNjVvcEU4cWtsZHI4bTNiaDhoRlU5dDUyaExIb0hZZHk5NUI3cXdScTFxdDhVRFJWZ1NkRUVWRFBBWUxERmZ1NNIBrwFBVV95cUxPRERWVHNzamhzZ1Byem1SeGI0OXhnZW4zWWlVcW4yTnppaTBmYlNRalFSc0pjZzRiSF9KV2l6VlgxWXJrc0szRjFrN3pZT25zV2dKWUJHUG9xNHM5em9FMTJOYnltdi13RmxTNzFJRW1rczBRdHNUUzluekllV0pSTkJ0TF9RS1VNOXF2eE9fd01nMkd5dkFaeXFqc29DUG5oMmhQN1g4XzlVQmtOWGNB?oc=5"
+---
+
+### Fonte Original: A TARDE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwFBVV95cUxPM3BRaHRZVklRdU5PZktSOEpuNVFUdDNnTlJUdDN3V1JrcTFsTS1uYjlQUms0MUlTekFYNGxBa3NxMHp1aUIyN3hQMjU2OGVWbDVWaF9lV1lrOVZLZXcydjNFSTlJQnhjNjVvcEU4cWtsZHI4bTNiaDhoRlU5dDUyaExIb0hZZHk5NUI3cXdScTFxdDhVRFJWZ1NkRUVWRFBBWUxERmZ1NNIBrwFBVV95cUxPRERWVHNzamhzZ1Byem1SeGI0OXhnZW4zWWlVcW4yTnppaTBmYlNRalFSc0pjZzRiSF9KV2l6VlgxWXJrc0szRjFrN3pZT25zV2dKWUJHUG9xNHM5em9FMTJOYnltdi13RmxTNzFJRW1rczBRdHNUUzluekllV0pSTkJ0TF9RS1VNOXF2eE9fd01nMkd5dkFaeXFqc29DUG5oMmhQN1g4XzlVQmtOWGNB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
