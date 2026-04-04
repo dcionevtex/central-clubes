@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Cruzeiro: Como assistir ao vivo e horário"
+description: "São Paulo x Cruzeiro: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-04-04T10:15:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxONDdiYUNuenE1UGZDbVNqcXRvaENhVTg2Z2ctRHllc1BvaU1Hc214WTlhNF8tNlZtd1lKQ0hZM0lvdEdBZ0JlZExhWm5keUlZMENMNXJ0Z3k3UmNHdFZjZHFqSDR4bjBKLVFYbG9FZWx4TS00RUhYeFh6VV9iYmFWZUpVMi3SAYQBQVVfeXFMTjQ3YmFDbnpxNVBmQ21TanF0b2hDYVU4NmdnLUR5ZXNQb2lNR3NteFk5YTRfLTZWbXdZSkNIWTNJb3RHQWdCZWRMYVpuZHlJWTBDTDVydGd5N1JjR3RWY2Rxakg0eG4wSi1RWGxvRWVseE0tNEVIWHhYelVfYmJhVmVKVTIt?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxONDdiYUNuenE1UGZDbVNqcXRvaENhVTg2Z2ctRHllc1BvaU1Hc214WTlhNF8tNlZtd1lKQ0hZM0lvdEdBZ0JlZExhWm5keUlZMENMNXJ0Z3k3UmNHdFZjZHFqSDR4bjBKLVFYbG9FZWx4TS00RUhYeFh6VV9iYmFWZUpVMi3SAYQBQVVfeXFMTjQ3YmFDbnpxNVBmQ21TanF0b2hDYVU4NmdnLUR5ZXNQb2lNR3NteFk5YTRfLTZWbXdZSkNIWTNJb3RHQWdCZWRMYVpuZHlJWTBDTDVydGd5N1JjR3RWY2Rxakg0eG4wSi1RWGxvRWVseE0tNEVIWHhYelVfYmJhVmVKVTIt?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
