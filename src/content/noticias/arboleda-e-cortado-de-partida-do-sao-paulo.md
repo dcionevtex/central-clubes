@@ -1,0 +1,13 @@
+---
+title: "Arboleda é cortado de partida do São Paulo"
+description: "Arboleda é cortado de partida do São Paulo  ABCD Jornal"
+pubDate: "2026-04-04T20:47:02.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxNdVRLRHRfMWJYbm9nTDg1ZVBfTWlpV1N3bTBldG5oaGpjbTBpSnhzWGo4bTBjRW1PMWF1ajZVWlU2NjZGbWFuVUcwWndkU2o4c2dZZ2s1UXhkajZ4N0dXVng2aUd0aHBsVkh5dWVWaXFhME01OXBoUW1QYjFKcklYOVZsaGtIUHR2Z1lXRWE4SEJMNVVWMWtvV2w1R2nSAaIBQVVfeXFMUEZPeVp0SUdid1o4VlhWa01CQ3o0RW9Nb3ljT254ekhJd2x2QzZCZDlTY3RyWXVnWlNjSmtMMjBqRWlZZjFQUWFTZS1CbmVHN2hOSV9rNGxqV3VLWmFGS093V0ZaYnV6dDJxR2hjX1VTZ29lU2FWdy1TaFpUN2ZmcFQ2bWczWGZpZ013Q0ZIbDZic0pKZWRldndxbUprc1Z6UkRB?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxNdVRLRHRfMWJYbm9nTDg1ZVBfTWlpV1N3bTBldG5oaGpjbTBpSnhzWGo4bTBjRW1PMWF1ajZVWlU2NjZGbWFuVUcwWndkU2o4c2dZZ2s1UXhkajZ4N0dXVng2aUd0aHBsVkh5dWVWaXFhME01OXBoUW1QYjFKcklYOVZsaGtIUHR2Z1lXRWE4SEJMNVVWMWtvV2w1R2nSAaIBQVVfeXFMUEZPeVp0SUdid1o4VlhWa01CQ3o0RW9Nb3ljT254ekhJd2x2QzZCZDlTY3RyWXVnWlNjSmtMMjBqRWlZZjFQUWFTZS1CbmVHN2hOSV9rNGxqV3VLWmFGS093V0ZaYnV6dDJxR2hjX1VTZ29lU2FWdy1TaFpUN2ZmcFQ2bWczWGZpZ013Q0ZIbDZic0pKZWRldndxbUprc1Z6UkRB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
