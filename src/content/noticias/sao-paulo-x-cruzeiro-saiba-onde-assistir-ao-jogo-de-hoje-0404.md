@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Cruzeiro: saiba onde assistir ao jogo de hoje, 04/04"
+description: "São Paulo x Cruzeiro: saiba onde assistir ao jogo de hoje, 04/04  iG Esportes"
+pubDate: "2026-04-04T03:00:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxPZEhpVHFRYjJsWEVFckNxTnZBQ3Y0OTRxeTZEV1lFaktYbldmTU40Q0Y1VmZMcW9xTllsN2xoeUFrWXBzNEhiLU5XWU5OVGxjR3hkTE91OFNGWmZsemQwcUJLaDJlVlNudlF1R1lGb0dib1g2NTJzMWViOFhDbnNDaUhES2pyLWtrblhzeWdZa2tiYVUxRlhVQ9IBngFBVV95cUxNM1pXV19oMHpSMFM1NF9QeVYyVUoySXFhQ1RZM01idzhJaGRDdkhuVzRWWlg2TFUxd1hYajlQSUtacmpfcldHQ2U0ckR2dmhkMHFjQ0UwVkVFTUYtRG5NVTZMbDlmZm1XelYtV2VlV04xUXhtWXlyZEl2clJsY2ZjNkV6bmt6dUhJX08zLW5TNVM0ZFhHb1ZEZXNXNkI4dw?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxPZEhpVHFRYjJsWEVFckNxTnZBQ3Y0OTRxeTZEV1lFaktYbldmTU40Q0Y1VmZMcW9xTllsN2xoeUFrWXBzNEhiLU5XWU5OVGxjR3hkTE91OFNGWmZsemQwcUJLaDJlVlNudlF1R1lGb0dib1g2NTJzMWViOFhDbnNDaUhES2pyLWtrblhzeWdZa2tiYVUxRlhVQ9IBngFBVV95cUxNM1pXV19oMHpSMFM1NF9QeVYyVUoySXFhQ1RZM01idzhJaGRDdkhuVzRWWlg2TFUxd1hYajlQSUtacmpfcldHQ2U0ckR2dmhkMHFjQ0UwVkVFTUYtRG5NVTZMbDlmZm1XelYtV2VlV04xUXhtWXlyZEl2clJsY2ZjNkV6bmt6dUhJX08zLW5TNVM0ZFhHb1ZEZXNXNkI4dw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
