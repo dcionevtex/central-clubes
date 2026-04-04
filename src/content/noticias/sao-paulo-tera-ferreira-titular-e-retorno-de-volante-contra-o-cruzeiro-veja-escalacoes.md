@@ -1,0 +1,13 @@
+---
+title: "São Paulo terá Ferreira titular e retorno de volante contra o Cruzeiro; veja escalações"
+description: "São Paulo terá Ferreira titular e retorno de volante contra o Cruzeiro; veja escalações  Gazeta Esportiva"
+pubDate: "2026-04-04T20:31:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxORGpucGtUMnZpLUYwcTBBWEd1RzFCb1NxdGZqb2FVRUYtM185LXAyNHpmbFlpWmU4ZGg3aHFyQlRDMUlkY25WeF9SQldLaHQyanBhUm03bmRBa253RUk2anhFMW56akxDMEZhVlY1U1BVNDN0WUNELWRfd1pZVDJYRHp6RVlubVk4QnBmbE5zcFVlUTTSAZgBQVVfeXFMT0dXM2JnUGljR2ZKbC0yZV9WM3pSTGNVUjRLLXJodUJMdFo0YjE4UXdwZmREc2ZNTVZ6WTJfZzI1a0dlQzBZZDFPXzRYdldQdmlJS1g5Y2NydFVESURTcDdzTDlyMWNHZzY3THlUWmJKYjNNeEFIVjJaakpnUUNpR1FiRHpudWZqbnozQVJjaFBtUnVOdmlWdU0?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxORGpucGtUMnZpLUYwcTBBWEd1RzFCb1NxdGZqb2FVRUYtM185LXAyNHpmbFlpWmU4ZGg3aHFyQlRDMUlkY25WeF9SQldLaHQyanBhUm03bmRBa253RUk2anhFMW56akxDMEZhVlY1U1BVNDN0WUNELWRfd1pZVDJYRHp6RVlubVk4QnBmbE5zcFVlUTTSAZgBQVVfeXFMT0dXM2JnUGljR2ZKbC0yZV9WM3pSTGNVUjRLLXJodUJMdFo0YjE4UXdwZmREc2ZNTVZ6WTJfZzI1a0dlQzBZZDFPXzRYdldQdmlJS1g5Y2NydFVESURTcDdzTDlyMWNHZzY3THlUWmJKYjNNeEFIVjJaakpnUUNpR1FiRHpudWZqbnozQVJjaFBtUnVOdmlWdU0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

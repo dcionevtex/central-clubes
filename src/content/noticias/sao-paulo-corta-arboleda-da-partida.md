@@ -1,0 +1,13 @@
+---
+title: "São Paulo corta Arboleda da partida"
+description: "São Paulo corta Arboleda da partida  Portal Hortolândia"
+pubDate: "2026-04-04T20:42:34.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxOa1lEeFFJdDNCVUxteERac2E3aERYd2c2NldOdktxUFRmbjQ1MGJ0WV91em1mT21DNXh4WTc5TkhJZUNqQU9nVk1jWnA1TDdob0MyRWp2NkluMF9wYy1JVkg4T3lzVnhoR1MyYXpER2pCSmF1WXdtYkp3Ukl3SHJNQzN30gGCAUFVX3lxTE5rWUR4UUl0M0JVTG14RFpzYTdoRFh3ZzY2V052S3FQVGZuNDUwYnRZX3V6bWZPbUM1eHhZNzlOSEllQ2pBT2dWTWNacDVMN2hvQzJFanY2SW4wX3BjLUlWSDhPeXNWeGhHUzJhekRHakJKYXVZd21iSndSSXdIck1DM3c?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxOa1lEeFFJdDNCVUxteERac2E3aERYd2c2NldOdktxUFRmbjQ1MGJ0WV91em1mT21DNXh4WTc5TkhJZUNqQU9nVk1jWnA1TDdob0MyRWp2NkluMF9wYy1JVkg4T3lzVnhoR1MyYXpER2pCSmF1WXdtYkp3Ukl3SHJNQzN30gGCAUFVX3lxTE5rWUR4UUl0M0JVTG14RFpzYTdoRFh3ZzY2V052S3FQVGZuNDUwYnRZX3V6bWZPbUM1eHhZNzlOSEllQ2pBT2dWTWNacDVMN2hvQzJFanY2SW4wX3BjLUlWSDhPeXNWeGhHUzJhekRHakJKYXVZd21iSndSSXdIck1DM3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

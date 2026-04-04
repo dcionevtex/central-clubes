@@ -1,0 +1,13 @@
+---
+title: "Confira a lista de inscritos do São Paulo na Sul-Americana 2026"
+description: "Confira a lista de inscritos do São Paulo na Sul-Americana 2026  Portal Hortolândia"
+pubDate: "2026-04-04T20:13:39.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE1hV241ZkRmR0lXNXlRTjRSZzFQOTlNYjlYYTA1eG9rSnJXRWJPbzZ4YmhqUHhiZWI5c3RvWXNhMDQyVjlDRzZibWZEM2J1ZmxxeTN2Z19IcWJybkJxbGtTckY3aC1xUlMydm5oTXhzbFlMMmpUT1BIdjQ2c2RSbjjSAX9BVV95cUxNYVduNWZEZkdJVzV5UU40UmcxUDk5TWI5WGEwNXhva0pyV0ViT282eGJoalB4YmViOXN0b1lzYTA0MlY5Q0c2Ym1mRDNidWZscXkzdmdfSHFicm5CcWxrU3JGN2gtcVJTMnZuaE14c2xZTDJqVE9QSHY0NnNkUm44?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE1hV241ZkRmR0lXNXlRTjRSZzFQOTlNYjlYYTA1eG9rSnJXRWJPbzZ4YmhqUHhiZWI5c3RvWXNhMDQyVjlDRzZibWZEM2J1ZmxxeTN2Z19IcWJybkJxbGtTckY3aC1xUlMydm5oTXhzbFlMMmpUT1BIdjQ2c2RSbjjSAX9BVV95cUxNYVduNWZEZkdJVzV5UU40UmcxUDk5TWI5WGEwNXhva0pyV0ViT282eGJoalB4YmViOXN0b1lzYTA0MlY5Q0c2Ym1mRDNidWZscXkzdmdfSHFicm5CcWxrU3JGN2gtcVJTMnZuaE14c2xZTDJqVE9QSHY0NnNkUm44?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
