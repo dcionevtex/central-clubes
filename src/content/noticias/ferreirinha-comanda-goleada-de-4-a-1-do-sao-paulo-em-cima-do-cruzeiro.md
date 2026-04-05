@@ -1,0 +1,13 @@
+---
+title: "FERREIRINHA COMANDA GOLEADA DE 4 A 1 DO SÃO PAULO EM CIMA DO CRUZEIRO"
+description: "FERREIRINHA COMANDA GOLEADA DE 4 A 1 DO SÃO PAULO EM CIMA DO CRUZEIRO  LANCE!"
+pubDate: "2026-04-05T04:02:08.000Z"
+source: "LANCE!"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxNU0tWZEc4U243M2pQZk55OV9laWUyXzJNR0taUjZFV1JoY0REYnpnaFRUclNsT01QMUs3NVlfNFVSM2Fpa01Gd2ktckptUWxQaDI2Z3BMak5iVDFXWlRoYkJjOHJYdEhmNGRENkZHclRMX0FIRE43aGpNNWR3UllnREY3MmY3RVplVVlNVEQ0MUloUmdzR2xyMnd6QTMwTEtOanQ0?oc=5"
+---
+
+### Fonte Original: LANCE!
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxNU0tWZEc4U243M2pQZk55OV9laWUyXzJNR0taUjZFV1JoY0REYnpnaFRUclNsT01QMUs3NVlfNFVSM2Fpa01Gd2ktckptUWxQaDI2Z3BMak5iVDFXWlRoYkJjOHJYdEhmNGRENkZHclRMX0FIRE43aGpNNWR3UllnREY3MmY3RVplVVlNVEQ0MUloUmdzR2xyMnd6QTMwTEtOanQ0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

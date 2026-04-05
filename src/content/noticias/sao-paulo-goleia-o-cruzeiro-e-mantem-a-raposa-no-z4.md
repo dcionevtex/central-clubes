@@ -1,0 +1,13 @@
+---
+title: "São Paulo goleia o Cruzeiro e mantém a Raposa no Z4"
+description: "São Paulo goleia o Cruzeiro e mantém a Raposa no Z4  Jogada 10"
+pubDate: "2026-04-04T23:38:29.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxQOE41NnVWejVOekJBdDlVcUIwX0ZzNVRHOU9laGpFMzl1S1lKYVQwV1hYZVp4T2JHZVNVTDh4clVqNVRGTVQ0eXBQQ3lYTnVMSmxmSUdMUDE3c05oTHZ0ZUQ4c1B2akMzak5qQ0cwZVN5dnFmNjZuOU5FZ0pBUURNVHpn0gGHAUFVX3lxTE9xbXNrXzlqMnoyT3UwbndLYURFZDVWdC1MVzNkMm0wZFdLRTJycFJZS2drc2VKdXdoOXA0YVJ0ZFpfNTRGcktyaER3eGd3azVaYl9yRi1yNlJ3WHlXdEkyTk9MVXJOT3NlZERoVUMzV0NNNmhJTjQzeTlGYmlISERZZEU0eEl1RQ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxQOE41NnVWejVOekJBdDlVcUIwX0ZzNVRHOU9laGpFMzl1S1lKYVQwV1hYZVp4T2JHZVNVTDh4clVqNVRGTVQ0eXBQQ3lYTnVMSmxmSUdMUDE3c05oTHZ0ZUQ4c1B2akMzak5qQ0cwZVN5dnFmNjZuOU5FZ0pBUURNVHpn0gGHAUFVX3lxTE9xbXNrXzlqMnoyT3UwbndLYURFZDVWdC1MVzNkMm0wZFdLRTJycFJZS2drc2VKdXdoOXA0YVJ0ZFpfNTRGcktyaER3eGd3azVaYl9yRi1yNlJ3WHlXdEkyTk9MVXJOT3NlZERoVUMzV0NNNmhJTjQzeTlGYmlISERZZEU0eEl1RQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
