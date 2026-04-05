@@ -1,0 +1,13 @@
+---
+title: "Diretoria do São Paulo aguarda resposta de Arboleda para definir futuro do zagueiro"
+description: "Diretoria do São Paulo aguarda resposta de Arboleda para definir futuro do zagueiro  Terra"
+pubDate: "2026-04-05T12:57:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMigwJBVV95cUxNMjZoUTIzUnZIWnJGNzVucDhCQzN3TTc2UHZjSF9xTkVOSFdSNVNQS2czSHc3QTRIeFZNYTJnSnpTS1VYeUtzeGtCZk1NTjVfdVdVOHJHTVpKQzVGZjVFU0NYNVZZRy1mMTlra2VNTFAwdVZPZktyeDR0N2p0djFDZkZCWjNiZHNrTlpHVzlOblBKYkluWGo3WVlHVTNQTXJuaW0xeG9qR2pvekd3ZURHcnM4Y2kxbkJnMDg0blp4Y2JEMVJwNDdfTkFlZDJhLVhhd202ZHNlcEMyajVndUJ5UTY2YngtbC1iWnR6RXdRMzhOcTM2LW9hMVl2bzBkY3ZzT3BF?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwJBVV95cUxNMjZoUTIzUnZIWnJGNzVucDhCQzN3TTc2UHZjSF9xTkVOSFdSNVNQS2czSHc3QTRIeFZNYTJnSnpTS1VYeUtzeGtCZk1NTjVfdVdVOHJHTVpKQzVGZjVFU0NYNVZZRy1mMTlra2VNTFAwdVZPZktyeDR0N2p0djFDZkZCWjNiZHNrTlpHVzlOblBKYkluWGo3WVlHVTNQTXJuaW0xeG9qR2pvekd3ZURHcnM4Y2kxbkJnMDg0blp4Y2JEMVJwNDdfTkFlZDJhLVhhd202ZHNlcEMyajVndUJ5UTY2YngtbC1iWnR6RXdRMzhOcTM2LW9hMVl2bzBkY3ZzT3BF?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
