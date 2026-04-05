@@ -1,0 +1,13 @@
+---
+title: "Ferreira celebra primeiro hat-trick da carreira: ‘Muito emocionante’"
+description: "Ferreira celebra primeiro hat-trick da carreira: ‘Muito emocionante’  Esporte News Mundo"
+pubDate: "2026-04-05T10:06:34.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxOUjdkZXhHUGY5eDg0S1FJTGhiOU81dExtWUhLdEgwcklISnNnREZHSzZQeDFPYmVMQzJKSWtZS0JfSXFiWGRXWVJZNmVFTXJ4c3UtRmpjcW9wZVVsV2g2TlJmclpyb3Z6T1EwSUNYcTFVTEExbjhoZE9FOUpBODBvbGRmeWlldTBQaVhyRDlwakVGU3RXVWNaOEF0ZlV2Z03SAaQBQVVfeXFMTjZhVmFGLWRvUjNoVjNFa0dWSlBCV1RSd3dSamJEMzh0M1NlakZfSlh1akVzWVZWTF85WGpSVTlCZGFDdE1fWmV0ZFpaMmZRT0p6bzFNOEUxOV9wQXFsYy1XLVhscWhWeXc1aUNKY244VVVqa0FiTTJCaXJRVk9GYXhLc3dVdjlKTE9PekFiQnRSbm9HY19pZFBFTnh1a0RJTUo5eGc?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxOUjdkZXhHUGY5eDg0S1FJTGhiOU81dExtWUhLdEgwcklISnNnREZHSzZQeDFPYmVMQzJKSWtZS0JfSXFiWGRXWVJZNmVFTXJ4c3UtRmpjcW9wZVVsV2g2TlJmclpyb3Z6T1EwSUNYcTFVTEExbjhoZE9FOUpBODBvbGRmeWlldTBQaVhyRDlwakVGU3RXVWNaOEF0ZlV2Z03SAaQBQVVfeXFMTjZhVmFGLWRvUjNoVjNFa0dWSlBCV1RSd3dSamJEMzh0M1NlakZfSlh1akVzWVZWTF85WGpSVTlCZGFDdE1fWmV0ZFpaMmZRT0p6bzFNOEUxOV9wQXFsYy1XLVhscWhWeXc1aUNKY244VVVqa0FiTTJCaXJRVk9GYXhLc3dVdjlKTE9PekFiQnRSbm9HY19pZFBFTnh1a0RJTUo5eGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
