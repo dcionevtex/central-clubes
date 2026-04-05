@@ -1,0 +1,13 @@
+---
+title: "Arboleda falta novamente e deve ser punido"
+description: "Arboleda falta novamente e deve ser punido  Portal Hortolândia"
+pubDate: "2026-04-05T21:05:34.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE9iYVlJY3hScTNNTC1SX0JrOUMwZ0dXMnhBRjg2dTlLdDBpZ015MkR5S1ZNMUNzYmZmTDQzUnRpel92RERpUXdfck1KVWpLNHd4QmtGV21GQ25UNFdXQnlkdmtWNExrWkVqZEVndllOd0ZXc0R5Wi1Ba3RKc1XSAXxBVV95cUxPYmFZSWN4UnEzTUwtUl9CazlDMGdHVzJ4QUY4NnU5S3QwaWdNeTJEeUtWTTFDc2JmZkw0M1J0aXpfdkREaVF3X3JNSlVqSzR3eEJrRldtRkNuVDRXV0J5ZHZrVjRMa1pFamRFZ3ZZTndGV3NEeVotQWt0SnNV?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE9iYVlJY3hScTNNTC1SX0JrOUMwZ0dXMnhBRjg2dTlLdDBpZ015MkR5S1ZNMUNzYmZmTDQzUnRpel92RERpUXdfck1KVWpLNHd4QmtGV21GQ25UNFdXQnlkdmtWNExrWkVqZEVndllOd0ZXc0R5Wi1Ba3RKc1XSAXxBVV95cUxPYmFZSWN4UnEzTUwtUl9CazlDMGdHVzJ4QUY4NnU5S3QwaWdNeTJEeUtWTTFDc2JmZkw0M1J0aXpfdkREaVF3X3JNSlVqSzR3eEJrRldtRkNuVDRXV0J5ZHZrVjRMa1pFamRFZ3ZZTndGV3NEeVotQWt0SnNV?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
