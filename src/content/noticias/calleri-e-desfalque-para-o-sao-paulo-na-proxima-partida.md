@@ -1,0 +1,13 @@
+---
+title: "Calleri é desfalque para o São Paulo na próxima partida"
+description: "Calleri é desfalque para o São Paulo na próxima partida  portalhortolandia.com.br"
+pubDate: "2026-04-05T15:21:55.000Z"
+source: "portalhortolandia.com.br"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQTDBGYzJ1c2g0TWhhaS1DMGJ6c2Zmd2xzck5KWmJrcUxXWnJpXzJCQ0hQSGVzWmRPWnFoVXR2TzFZZzNxSUNkRWVGdnVudHlIYTRnX0dobUxNeTNEUHZTZ2JrR0pLRktSekdWRlE5aF94NEMwcUR6QnBVOHJwZmxkNWl2a9IBgwFBVV95cUxQTDBGYzJ1c2g0TWhhaS1DMGJ6c2Zmd2xzck5KWmJrcUxXWnJpXzJCQ0hQSGVzWmRPWnFoVXR2TzFZZzNxSUNkRWVGdnVudHlIYTRnX0dobUxNeTNEUHZTZ2JrR0pLRktSekdWRlE5aF94NEMwcUR6QnBVOHJwZmxkNWl2aw?oc=5"
+---
+
+### Fonte Original: portalhortolandia.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQTDBGYzJ1c2g0TWhhaS1DMGJ6c2Zmd2xzck5KWmJrcUxXWnJpXzJCQ0hQSGVzWmRPWnFoVXR2TzFZZzNxSUNkRWVGdnVudHlIYTRnX0dobUxNeTNEUHZTZ2JrR0pLRktSekdWRlE5aF94NEMwcUR6QnBVOHJwZmxkNWl2a9IBgwFBVV95cUxQTDBGYzJ1c2g0TWhhaS1DMGJ6c2Zmd2xzck5KWmJrcUxXWnJpXzJCQ0hQSGVzWmRPWnFoVXR2TzFZZzNxSUNkRWVGdnVudHlIYTRnX0dobUxNeTNEUHZTZ2JrR0pLRktSekdWRlE5aF94NEMwcUR6QnBVOHJwZmxkNWl2aw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
