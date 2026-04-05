@@ -1,0 +1,13 @@
+---
+title: "São Paulo lidera estatística defensiva no Brasileirão"
+description: "São Paulo lidera estatística defensiva no Brasileirão  Portal Hortolândia"
+pubDate: "2026-04-05T11:58:58.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE90bHNEMjZUcG1uQWktbVdkZTlpTDVBZGhQNk84d1hIVGJhNFNTNXgtM3NwNGJaRk5wQlg0TWFiWU1Lci1wVEJ6V3JLX2J0VEl2bUY3SFhRZnNveXdWaTY1Rk14T3ZTak9iQ2hZZzJEbDdEMC1xTnVnQV9tWWNhcmfSAX9BVV95cUxPdGxzRDI2VHBtbkFpLW1XZGU5aUw1QWRoUDZPOHdYSFRiYTRTUzV4LTNzcDRiWkZOcEJYNE1hYllNS3ItcFRCeldyS19idFRJdm1GN0hYUWZzb3l3Vmk2NUZNeE92U2pPYkNoWWcyRGw3RDAtcU51Z0FfbVljYXJn?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE90bHNEMjZUcG1uQWktbVdkZTlpTDVBZGhQNk84d1hIVGJhNFNTNXgtM3NwNGJaRk5wQlg0TWFiWU1Lci1wVEJ6V3JLX2J0VEl2bUY3SFhRZnNveXdWaTY1Rk14T3ZTak9iQ2hZZzJEbDdEMC1xTnVnQV9tWWNhcmfSAX9BVV95cUxPdGxzRDI2VHBtbkFpLW1XZGU5aUw1QWRoUDZPOHdYSFRiYTRTUzV4LTNzcDRiWkZOcEJYNE1hYllNS3ItcFRCeldyS19idFRJdm1GN0hYUWZzb3l3Vmk2NUZNeE92U2pPYkNoWWcyRGw3RDAtcU51Z0FfbVljYXJn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
