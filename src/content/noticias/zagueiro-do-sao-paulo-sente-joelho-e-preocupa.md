@@ -1,0 +1,13 @@
+---
+title: "Zagueiro do São Paulo sente joelho e preocupa"
+description: "Zagueiro do São Paulo sente joelho e preocupa  Portal Hortolândia"
+pubDate: "2026-04-04T23:11:30.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPM0gyYm5VYkxLY3BUVjNmYmxnWE1Mb0dzRnMzZ2FkU2VOSmprNmF3Zm1vV01kSjJiY3dKdE9UVURSNk5nbmVoZ19LdHdKd05MY3lFa2FGTF9TdmJQS1cxNUd3b0tRbUhhSVBOYk1vRFMyYjZWdHNmbXhGRklWaFRHUDVB0gGCAUFVX3lxTE8zSDJiblViTEtjcFRWM2ZibGdYTUxvR3NGczNnYWRTZU5Kams2YXdmbW9XTWRKMmJjd0p0T1RVRFI2TmduZWhnX0t0d0p3TkxjeUVrYUZMX1N2YlBLVzE1R3dvS1FtSGFJUE5iTW9EUzJiNlZ0c2ZteEZGSVZoVEdQNUE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPM0gyYm5VYkxLY3BUVjNmYmxnWE1Mb0dzRnMzZ2FkU2VOSmprNmF3Zm1vV01kSjJiY3dKdE9UVURSNk5nbmVoZ19LdHdKd05MY3lFa2FGTF9TdmJQS1cxNUd3b0tRbUhhSVBOYk1vRFMyYjZWdHNmbXhGRklWaFRHUDVB0gGCAUFVX3lxTE8zSDJiblViTEtjcFRWM2ZibGdYTUxvR3NGczNnYWRTZU5Kams2YXdmbW9XTWRKMmJjd0p0T1RVRFI2TmduZWhnX0t0d0p3TkxjeUVrYUZMX1N2YlBLVzE1R3dvS1FtSGFJUE5iTW9EUzJiNlZ0c2ZteEZGSVZoVEdQNUE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

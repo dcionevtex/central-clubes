@@ -1,0 +1,13 @@
+---
+title: "Arboleda dá sumiço e fica fora de São Paulo x Cruzeiro pelo Brasileirão | Esportes | O Liberal"
+description: "Arboleda dá sumiço e fica fora de São Paulo x Cruzeiro pelo Brasileirão | Esportes | O Liberal  O Liberal"
+pubDate: "2026-04-04T22:28:02.000Z"
+source: "O Liberal"
+link: "https://news.google.com/rss/articles/CBMitgFBVV95cUxQMDhQY2ZuUUtCdGVpV3U3blRYQk9qNkVXYjYyQ2dkR1hSVWc0X1E4dTVKOEhab0lOdGc3dC1Od3MzaFNvWU5EcnNLMjRsOHJEcmRIWFNoLWZpdWNnbTRhYjd5YkxMa1p1U2s1NmJDdXpDOWRwT3BQWWVJNnhqVWtTN19LN2N5S2tJeU9lRFVkT0FYeHdmLUNUM3lHTkxEOWxGanBTWjVLTTRQbUtLLXh0N0tLandNQdIBuwFBVV95cUxPbDBtdkZmTkpPV0hxWkEyWVpjdUFQUVh3SW9XenZ5N3dHamxJbHY1WVhKRjctOFBndHpOMDhOejZLSUs0aS1IMVFRa1dMSl92U19rSEswLWpad0xTVWZIX0V3UkxTb0dSTUhBQ21wSzNWdHB5WGFXWF9Ba2EwU3YtUUk5d3JmZ1RkYlkxUXBFQ0VLR2xmSjA1RjEyd1VsYVpuWGxzM2p0cWk0SkI1QUVyaTRXVlBTUnVSUDFj?oc=5"
+---
+
+### Fonte Original: O Liberal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMitgFBVV95cUxQMDhQY2ZuUUtCdGVpV3U3blRYQk9qNkVXYjYyQ2dkR1hSVWc0X1E4dTVKOEhab0lOdGc3dC1Od3MzaFNvWU5EcnNLMjRsOHJEcmRIWFNoLWZpdWNnbTRhYjd5YkxMa1p1U2s1NmJDdXpDOWRwT3BQWWVJNnhqVWtTN19LN2N5S2tJeU9lRFVkT0FYeHdmLUNUM3lHTkxEOWxGanBTWjVLTTRQbUtLLXh0N0tLandNQdIBuwFBVV95cUxPbDBtdkZmTkpPV0hxWkEyWVpjdUFQUVh3SW9XenZ5N3dHamxJbHY1WVhKRjctOFBndHpOMDhOejZLSUs0aS1IMVFRa1dMSl92U19rSEswLWpad0xTVWZIX0V3UkxTb0dSTUhBQ21wSzNWdHB5WGFXWF9Ba2EwU3YtUUk5d3JmZ1RkYlkxUXBFQ0VLR2xmSjA1RjEyd1VsYVpuWGxzM2p0cWk0SkI1QUVyaTRXVlBTUnVSUDFj?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

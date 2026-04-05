@@ -1,0 +1,13 @@
+---
+title: "Ferreirinha quebra longo jejum pelo São Paulo e anota hat-trick contra o Cruzeiro"
+description: "Ferreirinha quebra longo jejum pelo São Paulo e anota hat-trick contra o Cruzeiro  Rádio Itatiaia"
+pubDate: "2026-04-04T23:43:30.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMihAJBVV95cUxNTVU3cm5BWmxObkZyWjFRSEllejVQdms3VlBrUTlLbmlQOWVPdG5kOElOLW8ya3dxbmhCTy01SHVrMnl2cThWazlMWWhHRUVJdGZXb2Z5OW9yVDRrM0FsMDRKRmpIN0RYTXR3ZDNsR29FRndXRjFIS1d0SWRvRE9ZWDk0Q1RXaFd4cENMalVUalJOb2YtOGhXZ3JnMnJnbThHZ0gyVmNqeGR5TzE4bnR2dENKa2Zpem1FUG1KZDk2Z0RncDRHR1RkWWcyRmZRV1ZmUHBPQi0zMmh4bS1RVGtnYTNucmtEWDFXcEVOQ3J3RV9UbVFFVWYwOWpBZWJXaWU1RnF0VA?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAJBVV95cUxNTVU3cm5BWmxObkZyWjFRSEllejVQdms3VlBrUTlLbmlQOWVPdG5kOElOLW8ya3dxbmhCTy01SHVrMnl2cThWazlMWWhHRUVJdGZXb2Z5OW9yVDRrM0FsMDRKRmpIN0RYTXR3ZDNsR29FRndXRjFIS1d0SWRvRE9ZWDk0Q1RXaFd4cENMalVUalJOb2YtOGhXZ3JnMnJnbThHZ0gyVmNqeGR5TzE4bnR2dENKa2Zpem1FUG1KZDk2Z0RncDRHR1RkWWcyRmZRV1ZmUHBPQi0zMmh4bS1RVGtnYTNucmtEWDFXcEVOQ3J3RV9UbVFFVWYwOWpBZWJXaWU1RnF0VA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
