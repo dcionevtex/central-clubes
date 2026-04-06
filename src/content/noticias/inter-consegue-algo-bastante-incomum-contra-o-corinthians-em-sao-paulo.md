@@ -1,0 +1,13 @@
+---
+title: "Inter consegue algo bastante incomum contra o Corinthians em São Paulo"
+description: "Inter consegue algo bastante incomum contra o Corinthians em São Paulo  GZH"
+pubDate: "2026-04-06T01:10:32.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMiiwJBVV95cUxQV2t6TVByaVZubTE1cVMxMVJ1M1BhT2NPbW8weGg1QnNPNkx3eFAyNjZtYll5OU81aVNjb1pBSEpXVnhsRnpDb0VLQ1F3YUs2QlVvZ3FpbGZvZXRDVmREeUx0d1RYTkhTNTlSMlRocUUwdGtsby03alU1am1kQTFuVlRDTWxUQnZLYko1TElQVktFR19MZ2NyZnVHQnRrOVNfQ0xZR0pzM1JCVTdMS0V2dzUxdWx4QUQzZTJXVThoVEZRcUtjNmlmUm1teVp5QzB1NVhsR3dsZFBsLUlYa1ZXRzB5Z2tsenpEU2xHVEFnRklJZlNhWUJvWUZqaEZwTExyZlNxaXJYcnpjVlU?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwJBVV95cUxQV2t6TVByaVZubTE1cVMxMVJ1M1BhT2NPbW8weGg1QnNPNkx3eFAyNjZtYll5OU81aVNjb1pBSEpXVnhsRnpDb0VLQ1F3YUs2QlVvZ3FpbGZvZXRDVmREeUx0d1RYTkhTNTlSMlRocUUwdGtsby03alU1am1kQTFuVlRDTWxUQnZLYko1TElQVktFR19MZ2NyZnVHQnRrOVNfQ0xZR0pzM1JCVTdMS0V2dzUxdWx4QUQzZTJXVThoVEZRcUtjNmlmUm1teVp5QzB1NVhsR3dsZFBsLUlYa1ZXRzB5Z2tsenpEU2xHVEFnRklJZlNhWUJvWUZqaEZwTExyZlNxaXJYcnpjVlU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
