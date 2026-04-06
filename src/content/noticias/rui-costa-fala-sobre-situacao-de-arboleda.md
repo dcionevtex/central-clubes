@@ -1,0 +1,13 @@
+---
+title: "Rui Costa fala sobre situação de Arboleda"
+description: "Rui Costa fala sobre situação de Arboleda  portalhortolandia.com.br"
+pubDate: "2026-04-06T16:11:07.000Z"
+source: "portalhortolandia.com.br"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxPcHRBV2dsalg4Rjd1NS12c2g2VFlOcC1Wd0JTTW5LS2tRdVQ5S3hhZlhsSHo5RDgzcUhIYWpNVkJMV2c0ckp0Z2p3QWRRSkZPUV9zMlBUaVN2TmxZMTdSM29kMkxxYVpBbXhSWkEtakxFandrWmRZODJzR2NkSnJVOWlhVC3SAYQBQVVfeXFMT3B0QVdnbGpYOEY3dTUtdnNoNlRZTnAtVndCU01uS0trUXVUOUt4YWZYbEh6OUQ4M3FISGFqTVZCTFdnNHJKdGdqd0FkUUpGT1FfczJQVGlTdk5sWTE3UjNvZDJMcWFaQW14UlpBLWpMRWp3a1pkWTgyc0djZEpyVTlpYVQt?oc=5"
+---
+
+### Fonte Original: portalhortolandia.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxPcHRBV2dsalg4Rjd1NS12c2g2VFlOcC1Wd0JTTW5LS2tRdVQ5S3hhZlhsSHo5RDgzcUhIYWpNVkJMV2c0ckp0Z2p3QWRRSkZPUV9zMlBUaVN2TmxZMTdSM29kMkxxYVpBbXhSWkEtakxFandrWmRZODJzR2NkSnJVOWlhVC3SAYQBQVVfeXFMT3B0QVdnbGpYOEY3dTUtdnNoNlRZTnAtVndCU01uS0trUXVUOUt4YWZYbEh6OUQ4M3FISGFqTVZCTFdnNHJKdGdqd0FkUUpGT1FfczJQVGlTdk5sWTE3UjNvZDJMcWFaQW14UlpBLWpMRWp3a1pkWTgyc0djZEpyVTlpYVQt?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

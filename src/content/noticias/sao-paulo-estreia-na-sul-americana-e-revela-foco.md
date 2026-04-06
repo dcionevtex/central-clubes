@@ -1,0 +1,13 @@
+---
+title: "São Paulo estreia na Sul-Americana e revela foco"
+description: "São Paulo estreia na Sul-Americana e revela foco  portalhortolandia.com.br"
+pubDate: "2026-04-06T15:43:46.000Z"
+source: "portalhortolandia.com.br"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTFAxX0hiOWt2TGhIRXZIS2x3bGVSLUlwdDJrRi1ncmJLaC1BSmlOQkFuU0FaWGdpczBHc2MxSjhHY2kydWpOQ0Fsa0pIX2dRaTFQWkE2X3ktUmhrcUVqYUxoV1U1WThDbHUtdWNJUkdoZVNBV3lER0RJVFlNbU5FLXPSAX9BVV95cUxQMV9IYjlrdkxoSEV2SEtsd2xlUi1JcHQya0YtZ3JiS2gtQUppTkJBblNBWlhnaXMwR3NjMUo4R2NpMnVqTkNBbGtKSF9nUWkxUFpBNl95LVJoa3FFamFMaFdVNVk4Q2x1LXVjSVJHaGVTQVd5REdESVRZTW1ORS1z?oc=5"
+---
+
+### Fonte Original: portalhortolandia.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTFAxX0hiOWt2TGhIRXZIS2x3bGVSLUlwdDJrRi1ncmJLaC1BSmlOQkFuU0FaWGdpczBHc2MxSjhHY2kydWpOQ0Fsa0pIX2dRaTFQWkE2X3ktUmhrcUVqYUxoV1U1WThDbHUtdWNJUkdoZVNBV3lER0RJVFlNbU5FLXPSAX9BVV95cUxQMV9IYjlrdkxoSEV2SEtsd2xlUi1JcHQya0YtZ3JiS2gtQUppTkJBblNBWlhnaXMwR3NjMUo4R2NpMnVqTkNBbGtKSF9nUWkxUFpBNl95LVJoa3FFamFMaFdVNVk4Q2x1LXVjSVJHaGVTQVd5REdESVRZTW1ORS1z?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
