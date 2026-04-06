@@ -1,0 +1,13 @@
+---
+title: "Caso Arboleda: São Paulo se pronuncia e concede prazo ao jogador"
+description: "Caso Arboleda: São Paulo se pronuncia e concede prazo ao jogador  portalhortolandia.com.br"
+pubDate: "2026-04-06T18:53:46.000Z"
+source: "portalhortolandia.com.br"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxPUVRKRmJMalBadVRWRG9jX2NZTGIySjJNQXdvb05WWTQyTUVvOS01eXFHc0NNNWF2YndOT3VTYTBaSFFYXzhoSzVXcU8zMEtrenVuM3VjVFRpR09GZDZnYkN4ZjNzbVV3S2xWb0pnN29XbTdxRGowLWVJdXNVdmhaRWJtQ0bSAYQBQVVfeXFMT1FUSkZiTGpQWnVUVkRvY19jWUxiMkoyTUF3b29OVlk0Mk1FbzktNXlxR3NDTTVhdmJ3Tk91U2EwWkhRWF84aEs1V3FPMzBLa3p1bjN1Y1RUaUdPRmQ2Z2JDeGYzc21Vd0tsVm9KZzdvV203cURqMC1lSXVzVXZoWkVibUNG?oc=5"
+---
+
+### Fonte Original: portalhortolandia.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxPUVRKRmJMalBadVRWRG9jX2NZTGIySjJNQXdvb05WWTQyTUVvOS01eXFHc0NNNWF2YndOT3VTYTBaSFFYXzhoSzVXcU8zMEtrenVuM3VjVFRpR09GZDZnYkN4ZjNzbVV3S2xWb0pnN29XbTdxRGowLWVJdXNVdmhaRWJtQ0bSAYQBQVVfeXFMT1FUSkZiTGpQWnVUVkRvY19jWUxiMkoyTUF3b29OVlk0Mk1FbzktNXlxR3NDTTVhdmJ3Tk91U2EwWkhRWF84aEs1V3FPMzBLa3p1bjN1Y1RUaUdPRmQ2Z2JDeGYzc21Vd0tsVm9KZzdvV203cURqMC1lSXVzVXZoWkVibUNG?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo se posiciona sobre sumiço de Arboleda e exige esclarecimentos"
+description: "São Paulo se posiciona sobre sumiço de Arboleda e exige esclarecimentos  Rádio Itatiaia"
+pubDate: "2026-04-06T18:43:36.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9wFBVV95cUxPbTZuZDhla3B2dlZtRnpmSmxocmF4TVNTQW94N2FHNXJuZzZ2bXV0Qzc5dHhMTVhaV3VxT0JGYjN5dU5Va2RSQTBEanAydmduRHZnRFRJcVRyMlN0akdId0ltaUM0d2t1cDdSTi1ZNjNWaGw3X20zbUpYSG9SQTNEemlVanVQXy13ZGllSHRMdzNWUHZheHE3OTdUMGJrUlNGWE53b1gxU2xlNjRib29yMVhmd0VQWW8waENDZ2xOLVMtclE4aTRaMzVDNHViMGZCVGN5R21BcGU4UXBveWk5LV93MFM1c1A1ZlJiOS1wUUEtb0UzYXJZ?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9wFBVV95cUxPbTZuZDhla3B2dlZtRnpmSmxocmF4TVNTQW94N2FHNXJuZzZ2bXV0Qzc5dHhMTVhaV3VxT0JGYjN5dU5Va2RSQTBEanAydmduRHZnRFRJcVRyMlN0akdId0ltaUM0d2t1cDdSTi1ZNjNWaGw3X20zbUpYSG9SQTNEemlVanVQXy13ZGllSHRMdzNWUHZheHE3OTdUMGJrUlNGWE53b1gxU2xlNjRib29yMVhmd0VQWW8waENDZ2xOLVMtclE4aTRaMzVDNHViMGZCVGN5R21BcGU4UXBveWk5LV93MFM1c1A1ZlJiOS1wUUEtb0UzYXJZ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

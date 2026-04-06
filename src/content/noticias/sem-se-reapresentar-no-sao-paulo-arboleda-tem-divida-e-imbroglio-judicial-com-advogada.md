@@ -1,0 +1,13 @@
+---
+title: "Sem se reapresentar no São Paulo, Arboleda tem dívida e imbróglio judicial com advogada"
+description: "Sem se reapresentar no São Paulo, Arboleda tem dívida e imbróglio judicial com advogada  Terra"
+pubDate: "2026-04-06T19:39:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMihwJBVV95cUxOUEtEMUxudlM1UlBGN0l6VXh6Sk5JaGVETTRnWlR6VVotYWNycm5JQjdqUFpmYkRxZGFvUGhMU3RKZGtFTGdNYXJiM3BjMkRjdW1fR291OUJwSUpmclp5dEZUZ2Y0anI5MWgwc05leUdmaVgzd001dGwtSDdKUWpmUFI5MDRxdThQZHUtVEpQSjlWNnAtNnB0VFNTengzeWVFajFucTl1WVNUTnFXLXhYOTU4d0RJV0xIOWRSR2Jld2Z4STNBNFdwRFNGeUNTTEhUa3hxMVh3QjZmNmVNZUhlckZuODVaRkZsMGItZ0ozM1Y1azFEcDNtYlFzZHljLU9yTlZtSFY1VQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwJBVV95cUxOUEtEMUxudlM1UlBGN0l6VXh6Sk5JaGVETTRnWlR6VVotYWNycm5JQjdqUFpmYkRxZGFvUGhMU3RKZGtFTGdNYXJiM3BjMkRjdW1fR291OUJwSUpmclp5dEZUZ2Y0anI5MWgwc05leUdmaVgzd001dGwtSDdKUWpmUFI5MDRxdThQZHUtVEpQSjlWNnAtNnB0VFNTengzeWVFajFucTl1WVNUTnFXLXhYOTU4d0RJV0xIOWRSR2Jld2Z4STNBNFdwRFNGeUNTTEhUa3hxMVh3QjZmNmVNZUhlckZuODVaRkZsMGItZ0ozM1Y1azFEcDNtYlFzZHljLU9yTlZtSFY1VQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
