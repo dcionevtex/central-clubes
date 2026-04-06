@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde contato com Arboleda e avalia negociar zagueiro"
+description: "São Paulo perde contato com Arboleda e avalia negociar zagueiro  Jogada 10"
+pubDate: "2026-04-06T14:56:17.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMikgFBVV95cUxOQ0tjaTlFYk16MDZHVWJ6REFEZEljVlk5b3J1TjExRUtJOERvRnNpN242TGE3dTlXQXdWSjJkYzA0bkIxcHpHVXZNRTdwX1ZIdmJ0VERPVERKNDM2ZUJsV3VxSzNpU21qSXEtNFZTU1JXVzlzTkdHMHF2all2eThadnFLUm43bDhqdHg5Vlk0UVZsUdIBlwFBVV95cUxPX3BEdldiUGF6dzJDV0dJT1ZUTHdzOUNRd0xINXJmRXhQeXM5VHJTaVBsNGw3NkowOENzMzJmRjkzWnZaV0U2eElFUUtPVWNlblRuOGxHWEZSXzA2NGxidnVpVDVfamdxRndIVjd5aF9NeF9VY0xqaFdMTVF2UllhM0tBSFRuZ0FyVWZJbEw0b1VQNmpUalg0?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgFBVV95cUxOQ0tjaTlFYk16MDZHVWJ6REFEZEljVlk5b3J1TjExRUtJOERvRnNpN242TGE3dTlXQXdWSjJkYzA0bkIxcHpHVXZNRTdwX1ZIdmJ0VERPVERKNDM2ZUJsV3VxSzNpU21qSXEtNFZTU1JXVzlzTkdHMHF2all2eThadnFLUm43bDhqdHg5Vlk0UVZsUdIBlwFBVV95cUxPX3BEdldiUGF6dzJDV0dJT1ZUTHdzOUNRd0xINXJmRXhQeXM5VHJTaVBsNGw3NkowOENzMzJmRjkzWnZaV0U2eElFUUtPVWNlblRuOGxHWEZSXzA2NGxidnVpVDVfamdxRndIVjd5aF9NeF9VY0xqaFdMTVF2UllhM0tBSFRuZ0FyVWZJbEw0b1VQNmpUalg0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
