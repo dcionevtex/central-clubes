@@ -1,0 +1,13 @@
+---
+title: "Boston River x São Paulo pela Sul-Americana: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "Boston River x São Paulo pela Sul-Americana: onde assistir ao vivo, estatísticas, histórico e escalações  Gazeta Esportiva"
+pubDate: "2026-04-06T23:05:50.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxQR0ZmY3p0eEl0Z0c5dERodDJtbkZGcmtscGZDeHNpNFRjWmhZcUYzdDdpR18tQUJIYVZubnljWV94eXlWQld3bEF6YmNOMTRBN0NYWGltNVRLN3pTYXNPYlc2QWlFdzl4QVprVDYzLWdGMU9TYnR5cDUzTzRvOUpuU09aTGFqZ1MySHZhM3MzUdIBjwFBVV95cUxQR0ZmY3p0eEl0Z0c5dERodDJtbkZGcmtscGZDeHNpNFRjWmhZcUYzdDdpR18tQUJIYVZubnljWV94eXlWQld3bEF6YmNOMTRBN0NYWGltNVRLN3pTYXNPYlc2QWlFdzl4QVprVDYzLWdGMU9TYnR5cDUzTzRvOUpuU09aTGFqZ1MySHZhM3MzUQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxQR0ZmY3p0eEl0Z0c5dERodDJtbkZGcmtscGZDeHNpNFRjWmhZcUYzdDdpR18tQUJIYVZubnljWV94eXlWQld3bEF6YmNOMTRBN0NYWGltNVRLN3pTYXNPYlc2QWlFdzl4QVprVDYzLWdGMU9TYnR5cDUzTzRvOUpuU09aTGFqZ1MySHZhM3MzUdIBjwFBVV95cUxQR0ZmY3p0eEl0Z0c5dERodDJtbkZGcmtscGZDeHNpNFRjWmhZcUYzdDdpR18tQUJIYVZubnljWV94eXlWQld3bEF6YmNOMTRBN0NYWGltNVRLN3pTYXNPYlc2QWlFdzl4QVprVDYzLWdGMU9TYnR5cDUzTzRvOUpuU09aTGFqZ1MySHZhM3MzUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

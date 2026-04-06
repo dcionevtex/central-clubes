@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Lucca interessa à dupla de gigantes da Europa"
+description: "São Paulo: Lucca interessa à dupla de gigantes da Europa  Portal Hortolândia"
+pubDate: "2026-04-06T22:48:10.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE1Kakh0QlBPMnVLcTk0Mm9tZTFsUXZCVjd2MmxoVERlYS1mWk9MWTRoQkNpZEVPMHoxcktQMk9tcnRmRy01WkM2MC1iSkthcDdKbFlKX3pxMXB0RURiZU51aS1pMzhKNkhobEgtdXpFYWNkWUQ5OEJqR2N0YmhGQdIBfkFVX3lxTE1Kakh0QlBPMnVLcTk0Mm9tZTFsUXZCVjd2MmxoVERlYS1mWk9MWTRoQkNpZEVPMHoxcktQMk9tcnRmRy01WkM2MC1iSkthcDdKbFlKX3pxMXB0RURiZU51aS1pMzhKNkhobEgtdXpFYWNkWUQ5OEJqR2N0YmhGQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE1Kakh0QlBPMnVLcTk0Mm9tZTFsUXZCVjd2MmxoVERlYS1mWk9MWTRoQkNpZEVPMHoxcktQMk9tcnRmRy01WkM2MC1iSkthcDdKbFlKX3pxMXB0RURiZU51aS1pMzhKNkhobEgtdXpFYWNkWUQ5OEJqR2N0YmhGQdIBfkFVX3lxTE1Kakh0QlBPMnVLcTk0Mm9tZTFsUXZCVjd2MmxoVERlYS1mWk9MWTRoQkNpZEVPMHoxcktQMk9tcnRmRy01WkM2MC1iSkthcDdKbFlKX3pxMXB0RURiZU51aS1pMzhKNkhobEgtdXpFYWNkWUQ5OEJqR2N0YmhGQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
