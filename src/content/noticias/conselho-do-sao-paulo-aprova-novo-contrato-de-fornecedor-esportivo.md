@@ -1,0 +1,13 @@
+---
+title: "Conselho do São Paulo aprova novo contrato de fornecedor esportivo"
+description: "Conselho do São Paulo aprova novo contrato de fornecedor esportivo  jogada10.com.br"
+pubDate: "2026-04-07T22:03:48.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxQR3M5QjdvM1NraEZvMWdSbVBNckRUM0t2bFZ1M25NR24xdWFoQy1HRElySmh3dWNiVHU2OW1vdkh2clB2OWFUOTF3aHJib3VQNGt4ZU1oR2hTeUhSMzZTb0tYYVRvcDNiVVg1TUl5Zjc4UjF4Ni1UNVhWRUpUOXljSmRxTEFicGJxT2hJNGhQanBkQWg3dmfSAZsBQVVfeXFMT3Byc0RBTnVKb3hpMW54SDhxelhNVHNXa2ZZbEhxaE81QkMxWkZ5dHVnTE1vTDVJOVhlSWY3V0FQaDU5eWdza0tnMllVTmZZb2ZEV0QwdXp6NVcwOW5yNzFNODl0aW11VnNVZjd3eF9rS1c1OXJlb0M5cEdzbURwUmdkVDZqcVNPTW9XY2FPcG5ubEFJWGR1NkpTRWc?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxQR3M5QjdvM1NraEZvMWdSbVBNckRUM0t2bFZ1M25NR24xdWFoQy1HRElySmh3dWNiVHU2OW1vdkh2clB2OWFUOTF3aHJib3VQNGt4ZU1oR2hTeUhSMzZTb0tYYVRvcDNiVVg1TUl5Zjc4UjF4Ni1UNVhWRUpUOXljSmRxTEFicGJxT2hJNGhQanBkQWg3dmfSAZsBQVVfeXFMT3Byc0RBTnVKb3hpMW54SDhxelhNVHNXa2ZZbEhxaE81QkMxWkZ5dHVnTE1vTDVJOVhlSWY3V0FQaDU5eWdza0tnMllVTmZZb2ZEV0QwdXp6NVcwOW5yNzFNODl0aW11VnNVZjd3eF9rS1c1OXJlb0M5cEdzbURwUmdkVDZqcVNPTW9XY2FPcG5ubEFJWGR1NkpTRWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
