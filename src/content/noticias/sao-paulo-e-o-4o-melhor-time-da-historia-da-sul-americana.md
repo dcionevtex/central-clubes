@@ -1,0 +1,13 @@
+---
+title: "São Paulo é o 4º melhor time da história da Sul-Americana"
+description: "São Paulo é o 4º melhor time da história da Sul-Americana  Portal Hortolândia"
+pubDate: "2026-04-07T14:44:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNaGhQSklDZEQ0Ry1PZHdUOTIxeWRDRjR4MUUwdm9iQUFlU1JtaFY0TWxuUzVaMXVsbVdyRGd2VDQwZ2V0NHJzMkw0UzQ4c1ppV3RCbFB1VjYxNG5zRHozNlA4RmRKZ0l1RGxhcnRyTGRyWnljWmtDMS1rVmFSeG9SRdIBgAFBVV95cUxNaGhQSklDZEQ0Ry1PZHdUOTIxeWRDRjR4MUUwdm9iQUFlU1JtaFY0TWxuUzVaMXVsbVdyRGd2VDQwZ2V0NHJzMkw0UzQ4c1ppV3RCbFB1VjYxNG5zRHozNlA4RmRKZ0l1RGxhcnRyTGRyWnljWmtDMS1rVmFSeG9SRQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNaGhQSklDZEQ0Ry1PZHdUOTIxeWRDRjR4MUUwdm9iQUFlU1JtaFY0TWxuUzVaMXVsbVdyRGd2VDQwZ2V0NHJzMkw0UzQ4c1ppV3RCbFB1VjYxNG5zRHozNlA4RmRKZ0l1RGxhcnRyTGRyWnljWmtDMS1rVmFSeG9SRdIBgAFBVV95cUxNaGhQSklDZEQ0Ry1PZHdUOTIxeWRDRjR4MUUwdm9iQUFlU1JtaFY0TWxuUzVaMXVsbVdyRGd2VDQwZ2V0NHJzMkw0UzQ4c1ppV3RCbFB1VjYxNG5zRHozNlA4RmRKZ0l1RGxhcnRyTGRyWnljWmtDMS1rVmFSeG9SRQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

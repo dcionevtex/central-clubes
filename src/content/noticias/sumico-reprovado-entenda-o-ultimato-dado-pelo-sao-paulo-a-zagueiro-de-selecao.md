@@ -1,0 +1,13 @@
+---
+title: "\"Sumiço\" reprovado: entenda o ultimato dado pelo São Paulo a zagueiro de Seleção"
+description: "\"Sumiço\" reprovado: entenda o ultimato dado pelo São Paulo a zagueiro de Seleção  TNH1"
+pubDate: "2026-04-07T15:21:37.000Z"
+source: "TNH1"
+link: "https://news.google.com/rss/articles/CBMitAFBVV95cUxQVFZXU1RDQS15REFETXUybmU0YnZLR0FuRUZ1c0REUV9PdGwyVzRvVkNlNjFUdXI2OVJCblNEblNBTXFBV3BEdTBDQ1ZDeVUtOEM5aWU3X2VaLXZUclI3cGFBaHU3Y2loeW5KVl9ETzE4dmJnS05nRVNBNG5ZZzhCSW9hdzFvai1NUThESy1EcE1mNVBnZndORmRHbHNaMUtzaFJxNWJVYjVDcXgyQjlRRTJ0SHHSAa8BQVVfeXFMTk1SVmJtNjRybGxBZVJoVXpVUHZERjdzdFBsWE1xcmVkUjNkWGNQNnFJaDA4ZG9udF9jc2Q4NktQMGphWTZydjktM1ZxbWR3MENoWjJVbXg0ZXI0clVsekNBS2tfOHJqVl9yTjhpRmRQOUZQMXN2OWpWeU5Ib2FvUjQxRDRfWnBBYXBQVmhLSDZtYmdsYUNwSVRDOUhLdnR2TldIek9JdV8wU3FHdGdrYw?oc=5"
+---
+
+### Fonte Original: TNH1
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMitAFBVV95cUxQVFZXU1RDQS15REFETXUybmU0YnZLR0FuRUZ1c0REUV9PdGwyVzRvVkNlNjFUdXI2OVJCblNEblNBTXFBV3BEdTBDQ1ZDeVUtOEM5aWU3X2VaLXZUclI3cGFBaHU3Y2loeW5KVl9ETzE4dmJnS05nRVNBNG5ZZzhCSW9hdzFvai1NUThESy1EcE1mNVBnZndORmRHbHNaMUtzaFJxNWJVYjVDcXgyQjlRRTJ0SHHSAa8BQVVfeXFMTk1SVmJtNjRybGxBZVJoVXpVUHZERjdzdFBsWE1xcmVkUjNkWGNQNnFJaDA4ZG9udF9jc2Q4NktQMGphWTZydjktM1ZxbWR3MENoWjJVbXg0ZXI0clVsekNBS2tfOHJqVl9yTjhpRmRQOUZQMXN2OWpWeU5Ib2FvUjQxRDRfWnBBYXBQVmhLSDZtYmdsYUNwSVRDOUhLdnR2TldIek9JdV8wU3FHdGdrYw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

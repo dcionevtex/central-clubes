@@ -1,0 +1,13 @@
+---
+title: "É o motivo da “fuga”? Arboleda, do São Paulo, é citado como “réu” em 14 processos"
+description: "É o motivo da “fuga”? Arboleda, do São Paulo, é citado como “réu” em 14 processos  Portal Leo Dias"
+pubDate: "2026-04-07T15:07:16.000Z"
+source: "Portal Leo Dias"
+link: "https://news.google.com/rss/articles/CBMirgFBVV95cUxOOUNHUC16RmRMOWVJejQ4UEIzc0NCQ3V0RnYxelVRbzZISkNfdFlIakRQNzFXcExWdm1wUE45Wl94Yi1hZV9VUWRuMmt6UHVOMFhJNFRMY2g3THA2YkVMM0pqd05GWWVDOUI2dHVHaDY2N1ZfWXdsaDVSTGlCRXlCTVhzZjY5bjFiQTBVN3JsRXBleEtadkJTQlV6ZXFKUHVJaUVNOE02em1TOXdrTFHSAbMBQVVfeXFMT1lYRlRvRTBGQWR4STcxT2N6WHBMOFJ6ZE9KYXJLN2QtbjlnZ3JCMzFDV1YtU3hHcUY4c0VZYW1ramM1NzZJXzQyRHJTM3JyaVN4ckNEd013WHZFVlBKMVBrVjVhSUp3el9vem5PZ3kwR1lBUE1PUjlUOUhqMF9ETTdEZkNfeEp1dUVmOFo3S1hLazc1OVZoTnN3Mzh3LU5xQjJxdDk4elowVGdhWVh3UWVCams?oc=5"
+---
+
+### Fonte Original: Portal Leo Dias
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgFBVV95cUxOOUNHUC16RmRMOWVJejQ4UEIzc0NCQ3V0RnYxelVRbzZISkNfdFlIakRQNzFXcExWdm1wUE45Wl94Yi1hZV9VUWRuMmt6UHVOMFhJNFRMY2g3THA2YkVMM0pqd05GWWVDOUI2dHVHaDY2N1ZfWXdsaDVSTGlCRXlCTVhzZjY5bjFiQTBVN3JsRXBleEtadkJTQlV6ZXFKUHVJaUVNOE02em1TOXdrTFHSAbMBQVVfeXFMT1lYRlRvRTBGQWR4STcxT2N6WHBMOFJ6ZE9KYXJLN2QtbjlnZ3JCMzFDV1YtU3hHcUY4c0VZYW1ramM1NzZJXzQyRHJTM3JyaVN4ckNEd013WHZFVlBKMVBrVjVhSUp3el9vem5PZ3kwR1lBUE1PUjlUOUhqMF9ETTdEZkNfeEp1dUVmOFo3S1hLazc1OVZoTnN3Mzh3LU5xQjJxdDk4elowVGdhWVh3UWVCams?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
