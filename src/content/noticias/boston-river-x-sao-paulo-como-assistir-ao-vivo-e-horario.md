@@ -1,0 +1,13 @@
+---
+title: "Boston River x São Paulo: Como assistir ao vivo e horário"
+description: "Boston River x São Paulo: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-04-07T10:00:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxOVFpCc2JTdWtPZFUxNXlvclVJSjV1VHZjSFRsRWF4OXVTWTVJX0RKcThaX0VGMVg1ZDNPSEo4eTVxVUF0ampUM2JUZWxTNmlYNGJXanBvc1UwbkRBOHh0UWpYeUxKdGFmXzFHeUl4Mm1XRjdjVWc5bm5BaDhMb041SEJB0gGCAUFVX3lxTE5UWkJzYlN1a09kVTE1eW9yVUlKNXVUdmNIVGxFYXg5dVNZNUlfREpxOFpfRUYxWDVkM09ISjh5NXFVQXRqalQzYlRlbFM2aVg0YldqcG9zVTBuREE4eHRRalh5TEp0YWZfMUd5SXgybVdGN2NVZzlubkFoOExvTjVIQkE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxOVFpCc2JTdWtPZFUxNXlvclVJSjV1VHZjSFRsRWF4OXVTWTVJX0RKcThaX0VGMVg1ZDNPSEo4eTVxVUF0ampUM2JUZWxTNmlYNGJXanBvc1UwbkRBOHh0UWpYeUxKdGFmXzFHeUl4Mm1XRjdjVWc5bm5BaDhMb041SEJB0gGCAUFVX3lxTE5UWkJzYlN1a09kVTE1eW9yVUlKNXVUdmNIVGxFYXg5dVNZNUlfREpxOFpfRUYxWDVkM09ISjh5NXFVQXRqalQzYlRlbFM2aVg0YldqcG9zVTBuREE4eHRRalh5TEp0YWZfMUd5SXgybVdGN2NVZzlubkFoOExvTjVIQkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
