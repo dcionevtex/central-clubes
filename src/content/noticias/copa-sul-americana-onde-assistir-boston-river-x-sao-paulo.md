@@ -1,0 +1,13 @@
+---
+title: "Copa Sul-Americana: Onde assistir Boston River x São Paulo?"
+description: "Copa Sul-Americana: Onde assistir Boston River x São Paulo?  InfoMoney"
+pubDate: "2026-04-07T22:30:00.000Z"
+source: "InfoMoney"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxOSHZYRWhDY0FaWnZOMDVtaEpGT2NCNmxoNWZTTHNkR05IalVQSHlRVDlKc0ZIUF9uSWl5T3o3N2ZGSHVuM3dWZlRUUzZOZ0VBMUhkck16bS1CNGxLNjY4b1ZLaF84SEoweG15a1A5NWk2Z09QLVJvRlVITThxaHh3MWo4SGpjNTZpSm1nQUs0TDI3X2PSAZgBQVVfeXFMUEd3ZGIwc3FmWlNlMmp1T1R1S3NMb1l2Sy0zMC1uZEJ6S19aNlREVXg1TloyY3JfUjJNV2ExOVozZ1Z4RzBJcEZIV2M5YkpkM3FlNVp3X1VYSzU0MFBnRHRlUUp6T2w1WUgtdkJfb3RDOW52YXRkVW5NRG80YlhUQVozRmdCeGhVbldmRVhpakRRNFhBcnVucVg?oc=5"
+---
+
+### Fonte Original: InfoMoney
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxOSHZYRWhDY0FaWnZOMDVtaEpGT2NCNmxoNWZTTHNkR05IalVQSHlRVDlKc0ZIUF9uSWl5T3o3N2ZGSHVuM3dWZlRUUzZOZ0VBMUhkck16bS1CNGxLNjY4b1ZLaF84SEoweG15a1A5NWk2Z09QLVJvRlVITThxaHh3MWo4SGpjNTZpSm1nQUs0TDI3X2PSAZgBQVVfeXFMUEd3ZGIwc3FmWlNlMmp1T1R1S3NMb1l2Sy0zMC1uZEJ6S19aNlREVXg1TloyY3JfUjJNV2ExOVozZ1Z4RzBJcEZIV2M5YkpkM3FlNVp3X1VYSzU0MFBnRHRlUUp6T2w1WUgtdkJfb3RDOW52YXRkVW5NRG80YlhUQVozRmdCeGhVbldmRVhpakRRNFhBcnVucVg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Conselho do São Paulo aprova renovação de contrato com a New Balance; veja detalhes"
+description: "Conselho do São Paulo aprova renovação de contrato com a New Balance; veja detalhes  Gazeta Esportiva"
+pubDate: "2026-04-07T23:05:01.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPR25iX1hqM0dMdVJOSHJteEFRYVZYQ3pyOWZvMC1OVW1KdjJwY0piYXdFdFlMTm8xM1UyWnVzODRuSVJBbUZJOURIc0FGX0xQVXNURjhDY085S1FYeHlNeXpIRlpZRHFydHRQTFZkZ0dWQWlaWlFkTjg2a3hOYTgwd0hB0gGCAUFVX3lxTE9HbmJfWGozR0x1Uk5Icm14QVFhVlhDenI5Zm8wLU5VbUp2MnBjSmJhd0V0WUxObzEzVTJadXM4NG5JUkFtRkk5REhzQUZfTFBVc1RGOENjTzlLUVh4eU15ekhGWllEcXJ0dFBMVmRnR1ZBaVpaUWROODZreE5hODB3SEE?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPR25iX1hqM0dMdVJOSHJteEFRYVZYQ3pyOWZvMC1OVW1KdjJwY0piYXdFdFlMTm8xM1UyWnVzODRuSVJBbUZJOURIc0FGX0xQVXNURjhDY085S1FYeHlNeXpIRlpZRHFydHRQTFZkZ0dWQWlaWlFkTjg2a3hOYTgwd0hB0gGCAUFVX3lxTE9HbmJfWGozR0x1Uk5Icm14QVFhVlhDenI5Zm8wLU5VbUp2MnBjSmJhd0V0WUxObzEzVTJadXM4NG5JUkFtRkk5REhzQUZfTFBVc1RGOENjTzlLUVh4eU15ekhGWllEcXJ0dFBMVmRnR1ZBaVpaUWROODZreE5hODB3SEE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

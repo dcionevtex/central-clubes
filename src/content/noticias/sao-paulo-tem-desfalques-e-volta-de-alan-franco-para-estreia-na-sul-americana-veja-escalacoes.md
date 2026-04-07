@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem desfalques e volta de Alan Franco para estreia na Sul-Americana; veja escalações"
+description: "São Paulo tem desfalques e volta de Alan Franco para estreia na Sul-Americana; veja escalações  Gazeta Esportiva"
+pubDate: "2026-04-07T23:23:10.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMirAFBVV95cUxQV2tNRmlQNFBtRmI3djM2XzBXSGwta0NIMGNRTGFFRlFDaDE4bW1CZUh5M296OENBZ0hzTVhQMWM5VjBteThyUlpFVXBIWGg1VlJKWGFURlV2T0dyaUVRUDV0X2FteXhpRXQ0TkxGVWQwRkdudVpuWkJNbXdGN3RjWTRkeXVaZ1R3TFRKcUs1VUgwNndBRXNubTNxSk9kZVYyS1FqMGFyVHZpT0Fx0gGsAUFVX3lxTFBXa01GaVA0UG1GYjd2MzZfMFdIbC1rQ0gwY1FMYUVGUUNoMThtbUJlSHkzb3o4Q0FnSHNNWFAxYzlWMG15OHJSWkVVcEhYaDVWUkpYYVRGVXZPR3JpRVFQNXRfYW15eGlFdDROTEZVZDBGR251Wm5aQk1td0Y3dGNZNGR5dVpnVHdMVEpxSzVVSDA2d0FFc25tM3FKT2RlVjJLUWowYXJUdmlPQXE?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirAFBVV95cUxQV2tNRmlQNFBtRmI3djM2XzBXSGwta0NIMGNRTGFFRlFDaDE4bW1CZUh5M296OENBZ0hzTVhQMWM5VjBteThyUlpFVXBIWGg1VlJKWGFURlV2T0dyaUVRUDV0X2FteXhpRXQ0TkxGVWQwRkdudVpuWkJNbXdGN3RjWTRkeXVaZ1R3TFRKcUs1VUgwNndBRXNubTNxSk9kZVYyS1FqMGFyVHZpT0Fx0gGsAUFVX3lxTFBXa01GaVA0UG1GYjd2MzZfMFdIbC1rQ0gwY1FMYUVGUUNoMThtbUJlSHkzb3o4Q0FnSHNNWFAxYzlWMG15OHJSWkVVcEhYaDVWUkpYYVRGVXZPR3JpRVFQNXRfYW15eGlFdDROTEZVZDBGR251Wm5aQk1td0Y3dGNZNGR5dVpnVHdMVEpxSzVVSDA2d0FFc25tM3FKT2RlVjJLUWowYXJUdmlPQXE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
