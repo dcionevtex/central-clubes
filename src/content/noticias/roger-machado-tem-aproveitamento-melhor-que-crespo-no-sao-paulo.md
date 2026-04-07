@@ -1,0 +1,13 @@
+---
+title: "Roger Machado tem aproveitamento melhor que Crespo no São Paulo"
+description: "Roger Machado tem aproveitamento melhor que Crespo no São Paulo  Jogada 10"
+pubDate: "2026-04-07T18:15:17.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMikgFBVV95cUxQYWd5aU9aSW9WYTRsSmwzdE9IVk1ZT21FQ2xiTzF5YmdTd0Y5YmNyYklLWjBCVWgzbDY0WmdWc2ZFNm1WMmtXN3FzM0VHdS1BZ3hNSWpKeks5WXBCUERBT2lkbW1XLTI0NEtHLXloTGRXeUtxUFdVWUFJUThTVVd5b250bXZJODFVRmRLbEhqejJQd9IBlwFBVV95cUxPVnRKSmV1emZpeDlDck1wTVN4X2ZXMmVmYnJReHJZMDhsY29TSnNxWktmN016QnZLbXJRaExBUml0ajFFU1htZElVUWdrMWJkOGw3dFpuSmNMN2t0eC03UlVfcG5sTnBUQ1laZElsV0YyOGFjSGotNUpuNzAxaVVOUEp2Y0M3akdwdndFY2ZDMHQ5RGdsRzZr?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgFBVV95cUxQYWd5aU9aSW9WYTRsSmwzdE9IVk1ZT21FQ2xiTzF5YmdTd0Y5YmNyYklLWjBCVWgzbDY0WmdWc2ZFNm1WMmtXN3FzM0VHdS1BZ3hNSWpKeks5WXBCUERBT2lkbW1XLTI0NEtHLXloTGRXeUtxUFdVWUFJUThTVVd5b250bXZJODFVRmRLbEhqejJQd9IBlwFBVV95cUxPVnRKSmV1emZpeDlDck1wTVN4X2ZXMmVmYnJReHJZMDhsY29TSnNxWktmN016QnZLbXJRaExBUml0ajFFU1htZElVUWdrMWJkOGw3dFpuSmNMN2t0eC03UlVfcG5sTnBUQ1laZElsV0YyOGFjSGotNUpuNzAxaVVOUEp2Y0M3akdwdndFY2ZDMHQ5RGdsRzZr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
