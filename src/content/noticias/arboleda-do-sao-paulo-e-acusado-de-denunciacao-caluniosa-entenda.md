@@ -1,0 +1,13 @@
+---
+title: "Arboleda, do São Paulo, é acusado de denunciação caluniosa. Entenda!"
+description: "Arboleda, do São Paulo, é acusado de denunciação caluniosa. Entenda!  Portal Leo Dias"
+pubDate: "2026-04-07T16:30:21.000Z"
+source: "Portal Leo Dias"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxOZDBJLUNhT2tjTVgybmQ0TlhaQjFqd3FNcHNhd0RzbFVUdTVtS1ZqbkxqMHNqa0xGNTFCYTNaRlFLSXhGMk04aFozSE9VcHVaYWU3WG4wM194ay1OVk10NGFNMkJWQnJfQzVPT19vQnFaYkJab0ZhNW53bkFhYXZmZjdUQ0FfSWZPOVlyVUpKV0l6Z2Q3UHdqd1hsYTZyaHBU0gGmAUFVX3lxTE05VV9CZTFfTXNKYUpMaVotcFRoZTRQNUQ0SFc4X0I2U2hKeEpTRVE5dDNXNjdmeTNLMnFKMjk2LTFKbGhFOFZQY2hORThhN0F1bkszS0JKX2ttMlJQbkNiTnEyUG9wZklqa2JSd1p5dGtnOWNuSS1WWlZ3T00xcUl2WHhLMzA3Z3NnV1h4RGZvbzY1OWhxZ3pNX2RNOGNlRjBYQjNCU0E?oc=5"
+---
+
+### Fonte Original: Portal Leo Dias
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxOZDBJLUNhT2tjTVgybmQ0TlhaQjFqd3FNcHNhd0RzbFVUdTVtS1ZqbkxqMHNqa0xGNTFCYTNaRlFLSXhGMk04aFozSE9VcHVaYWU3WG4wM194ay1OVk10NGFNMkJWQnJfQzVPT19vQnFaYkJab0ZhNW53bkFhYXZmZjdUQ0FfSWZPOVlyVUpKV0l6Z2Q3UHdqd1hsYTZyaHBU0gGmAUFVX3lxTE05VV9CZTFfTXNKYUpMaVotcFRoZTRQNUQ0SFc4X0I2U2hKeEpTRVE5dDNXNjdmeTNLMnFKMjk2LTFKbGhFOFZQY2hORThhN0F1bkszS0JKX2ttMlJQbkNiTnEyUG9wZklqa2JSd1p5dGtnOWNuSS1WWlZ3T00xcUl2WHhLMzA3Z3NnV1h4RGZvbzY1OWhxZ3pNX2RNOGNlRjBYQjNCU0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
