@@ -1,0 +1,13 @@
+---
+title: "Boston River x São Paulo: onde assistir ao jogo de hoje, 07/04"
+description: "Boston River x São Paulo: onde assistir ao jogo de hoje, 07/04  esporte.ig.com.br"
+pubDate: "2026-04-07T02:00:00.000Z"
+source: "esporte.ig.com.br"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxPNEFWN0QwcXJZdmFYZXJYVHhVMGRJT1FHVElHV3NhVTJzb1dMYmpXcjE4LVdXSjRXM2VmcUo2cG0zOHFKVE9yaVJMWUtsT0djd2p3dzd4VUZpZGZRc2wxbzFGTVZZVjVxT2pMQWpPUXNQLV9iV2U4YlgzMWhhajh4bTVLcTl1MTlBSmdWX3EwV2FhZnI1MDJpcGRLZnVqczRla3Fv0gGoAUFVX3lxTE91aFpnZzZzQThPX2xaRnpaOHR2ZXV6TTBqTGNYR0RkUFhNM3A2ZHdzVGZ0ZGJKRnBaWTQ3aHJsZ016WEJObmtpc2MzT2plcV9FYmV3UTd4NW1FT2dqRm9JS0VmUzhNdWtMV295Y05qa0twSnBncG1TaHNhcFJvME9SMUQ2aTdUVnQ5SzJPbDNFX3paWE5kekhaeW9GSUM0UldKazhhTzlTTA?oc=5"
+---
+
+### Fonte Original: esporte.ig.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxPNEFWN0QwcXJZdmFYZXJYVHhVMGRJT1FHVElHV3NhVTJzb1dMYmpXcjE4LVdXSjRXM2VmcUo2cG0zOHFKVE9yaVJMWUtsT0djd2p3dzd4VUZpZGZRc2wxbzFGTVZZVjVxT2pMQWpPUXNQLV9iV2U4YlgzMWhhajh4bTVLcTl1MTlBSmdWX3EwV2FhZnI1MDJpcGRLZnVqczRla3Fv0gGoAUFVX3lxTE91aFpnZzZzQThPX2xaRnpaOHR2ZXV6TTBqTGNYR0RkUFhNM3A2ZHdzVGZ0ZGJKRnBaWTQ3aHJsZ016WEJObmtpc2MzT2plcV9FYmV3UTd4NW1FT2dqRm9JS0VmUzhNdWtMV295Y05qa0twSnBncG1TaHNhcFJvME9SMUQ2aTdUVnQ5SzJPbDNFX3paWE5kekhaeW9GSUM0UldKazhhTzlTTA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
