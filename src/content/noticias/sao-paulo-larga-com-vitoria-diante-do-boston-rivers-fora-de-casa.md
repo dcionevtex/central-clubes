@@ -1,0 +1,13 @@
+---
+title: "São Paulo larga com vitória diante do Boston Rivers fora de casa"
+description: "São Paulo larga com vitória diante do Boston Rivers fora de casa  Portal Hortolândia"
+pubDate: "2026-04-08T02:26:47.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE43WUd3Q1JLYTVqTnF5TGRGRzF4SzNxWDN2Q2Qtb0hVMkg2ZmRuUDBUYktVY2NLYXlRWlRMY3hvbkFwVFB6c3VMY3NaV2JGWEdhQnBSSjlJcXZqVVVXRzd2d09ON0pUd29IUW9iSmFFZjZRWjlHYXBkNUhKRTVYaVHSAX9BVV95cUxON1lHd0NSS2E1ak5xeUxkRkcxeEszcVgzdkNkLW9IVTJINmZkblAwVGJLVWNjS2F5UVpUTGN4b25BcFRQenN1TGNzWldiRlhHYUJwUko5SXF2alVVV0c3dndPTjdKVHdvSFFvYkphRWY2UVo5R2FwZDVISkU1WGlR?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE43WUd3Q1JLYTVqTnF5TGRGRzF4SzNxWDN2Q2Qtb0hVMkg2ZmRuUDBUYktVY2NLYXlRWlRMY3hvbkFwVFB6c3VMY3NaV2JGWEdhQnBSSjlJcXZqVVVXRzd2d09ON0pUd29IUW9iSmFFZjZRWjlHYXBkNUhKRTVYaVHSAX9BVV95cUxON1lHd0NSS2E1ak5xeUxkRkcxeEszcVgzdkNkLW9IVTJINmZkblAwVGJLVWNjS2F5UVpUTGN4b25BcFRQenN1TGNzWldiRlhHYUJwUko5SXF2alVVV0c3dndPTjdKVHdvSFFvYkphRWY2UVo5R2FwZDVISkU1WGlR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

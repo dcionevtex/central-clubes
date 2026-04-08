@@ -1,0 +1,13 @@
+---
+title: "São Paulo bate o Boston River e estreia com vitória na Sul-Americana"
+description: "São Paulo bate o Boston River e estreia com vitória na Sul-Americana  Gazeta Esportiva"
+pubDate: "2026-04-08T02:25:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxQX2JoVnNybENXdUJCUWFBT09LWTEycDFXdEVKemRvaWtYdkdiZ1p1bURvMFVzOWFNRkJ0LW1jTHFyc21oMUZucFY4LWIwTVRzaHNfUV84VHRBLVQzdjVvWm9JcmdrNWo5Ym9NVE56eWY3MnJLR1hfS3ZGX0h2emJJYXJPeGp6RWNBUVlRd0hEdDZGd3RMWlFRNzQzVWk5ZEFRVWfSAacBQVVfeXFMTmRFb2ZEbmJKZ0xMTERKbFU2cmtkbXpoVXg4T0RIVU9rTEVkV2Z4S0VFaDBhY1kzZ18wUmFNUW1jR1pLVFR0ZGdXMzNXcXc2RlpENkRDU212WHNuWkdmeHB5YkZFUW1wcW1DTXNhQlR4NTJLOFc3RkFheEFEZjRXRnJ5Zk9vaEE3YkxyaXc4LVdkcktlZ2o3SzdEb0RKdTZ1OEFwN2lvVk0?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxQX2JoVnNybENXdUJCUWFBT09LWTEycDFXdEVKemRvaWtYdkdiZ1p1bURvMFVzOWFNRkJ0LW1jTHFyc21oMUZucFY4LWIwTVRzaHNfUV84VHRBLVQzdjVvWm9JcmdrNWo5Ym9NVE56eWY3MnJLR1hfS3ZGX0h2emJJYXJPeGp6RWNBUVlRd0hEdDZGd3RMWlFRNzQzVWk5ZEFRVWfSAacBQVVfeXFMTmRFb2ZEbmJKZ0xMTERKbFU2cmtkbXpoVXg4T0RIVU9rTEVkV2Z4S0VFaDBhY1kzZ18wUmFNUW1jR1pLVFR0ZGdXMzNXcXc2RlpENkRDU212WHNuWkdmeHB5YkZFUW1wcW1DTXNhQlR4NTJLOFc3RkFheEFEZjRXRnJ5Zk9vaEE3YkxyaXc4LVdkcktlZ2o3SzdEb0RKdTZ1OEFwN2lvVk0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

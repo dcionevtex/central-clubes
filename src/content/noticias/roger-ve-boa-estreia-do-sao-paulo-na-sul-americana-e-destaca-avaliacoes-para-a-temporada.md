@@ -1,0 +1,13 @@
+---
+title: "Roger vê “boa estreia” do São Paulo na Sul-Americana e destaca avaliações para a temporada"
+description: "Roger vê “boa estreia” do São Paulo na Sul-Americana e destaca avaliações para a temporada  Gazeta Esportiva"
+pubDate: "2026-04-08T03:16:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxOT2RCa1FneE9ldzNsWVVJN0RNWmNIdEJ0azR5UXhPdTQ2eW5hcXZLc0RiSjhpdjBCQWRJRFVLYjQteVJBVjkwZmNCLXl6STR5R2tXeXJHMFJpVGt5bTVtUGd4V1JIeGYtYWF0QjFxaVhxMEVqSWEyMndRUzNOakxNeFNSdnBBbzZ1aWt0TF9OdzY0SnRRX2F0N2hKZDd4azV2OS0w0gGoAUFVX3lxTE1ZM1o0MDRGSlVvRkwzQ2JmOVhQWTNEV3QzTEtTeDBuQWE5WGF1dklmbEdmZnE1b3dVUEpHRnVJb3h4U241WmUtNllvRF9uXzNORFh1TVdFckF1WDdyWWgzTW0xMERyTk1rOHNFcjF5eTR1VWFRZHp0T2d0T2hzSDQ5SDJKZ1QtZFlyVTdjNWxTQzR6UjVQZTRQN2NGMEhRUWFtemtiMkNZYQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxOT2RCa1FneE9ldzNsWVVJN0RNWmNIdEJ0azR5UXhPdTQ2eW5hcXZLc0RiSjhpdjBCQWRJRFVLYjQteVJBVjkwZmNCLXl6STR5R2tXeXJHMFJpVGt5bTVtUGd4V1JIeGYtYWF0QjFxaVhxMEVqSWEyMndRUzNOakxNeFNSdnBBbzZ1aWt0TF9OdzY0SnRRX2F0N2hKZDd4azV2OS0w0gGoAUFVX3lxTE1ZM1o0MDRGSlVvRkwzQ2JmOVhQWTNEV3QzTEtTeDBuQWE5WGF1dklmbEdmZnE1b3dVUEpHRnVJb3h4U241WmUtNllvRF9uXzNORFh1TVdFckF1WDdyWWgzTW0xMERyTk1rOHNFcjF5eTR1VWFRZHp0T2d0T2hzSDQ5SDJKZ1QtZFlyVTdjNWxTQzR6UjVQZTRQN2NGMEhRUWFtemtiMkNZYQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

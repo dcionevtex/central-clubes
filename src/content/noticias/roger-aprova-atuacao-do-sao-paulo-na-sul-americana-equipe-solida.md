@@ -1,0 +1,13 @@
+---
+title: "Roger aprova atuação do São Paulo na Sul-Americana: ”Equipe sólida”"
+description: "Roger aprova atuação do São Paulo na Sul-Americana: ”Equipe sólida”  Jogada 10"
+pubDate: "2026-04-08T03:28:09.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxOdUFqUjlYM1k4UEdvVXRRelhiU1BpRGo1OFNiSGZzV3ZqV0cwSjZYeW5RY0lnNnpwRll4aWlWd1dCdTk0NUNmTmM5OHpWcUlBNVk3ZnVwNjJYcEEtWXFFei1PREVYWnZGQkYyWlYyalhWTDFRS1EtZ19pSTVSV1pNRzlMOXJHNjJ6N1RFLWxlVWVsV0HSAZgBQVVfeXFMTzR6M1Etb0Vxdmx4a21ZQVJGSGotZTVrZDNYaVM5X0tCSjRuSUM1WG1sZVZDVk16alo1NlEyMGRSbTBxZ2I2TklWY09lS0YtR25QWTZZQTJXUkdKWk9KMGtfRVlkb2x4RDdlS0RJWEJwcmZTNFZLZW5CTFFmYjhpbV9KMVJ4dDU4dVhKR1htNlNHSEdScHdEd1M?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxOdUFqUjlYM1k4UEdvVXRRelhiU1BpRGo1OFNiSGZzV3ZqV0cwSjZYeW5RY0lnNnpwRll4aWlWd1dCdTk0NUNmTmM5OHpWcUlBNVk3ZnVwNjJYcEEtWXFFei1PREVYWnZGQkYyWlYyalhWTDFRS1EtZ19pSTVSV1pNRzlMOXJHNjJ6N1RFLWxlVWVsV0HSAZgBQVVfeXFMTzR6M1Etb0Vxdmx4a21ZQVJGSGotZTVrZDNYaVM5X0tCSjRuSUM1WG1sZVZDVk16alo1NlEyMGRSbTBxZ2I2TklWY09lS0YtR25QWTZZQTJXUkdKWk9KMGtfRVlkb2x4RDdlS0RJWEJwcmZTNFZLZW5CTFFmYjhpbV9KMVJ4dDU4dVhKR1htNlNHSEdScHdEd1M?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
