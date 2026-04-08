@@ -1,0 +1,13 @@
+---
+title: "São Paulo concede prazo para Arboleda se apresentar"
+description: "São Paulo concede prazo para Arboleda se apresentar  Portal Hortolândia"
+pubDate: "2026-04-08T16:01:56.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxPT0g3dF9aSzVnam9OWjNEOXhpXzhPT0FFQ2thMWJBQnBPamh0a2N4Q1BySHVvVlpWRi1VQldLY0g1NWdmTTJBSW1oaVg0eHFUdlZRa0poYlE2Mkdnd2ZKc3lPalljRlBiT2x5T2tTVDF3cklnRUZTckhyRF9RbzNPOFYyZDbSAYQBQVVfeXFMT09IN3RfWks1Z2pvTlozRDl4aV84T09BRUNrYTFiQUJwT2podGtjeENQckh1b1ZaVkYtVUJXS2NINTVnZk0yQUltaGlYNHhxVHZWUWtKaGJRNjJHZ3dmSnN5T2pZY0ZQYk9seU9rU1Qxd3JJZ0VGU3JIckRfUW8zTzhWMmQ2?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxPT0g3dF9aSzVnam9OWjNEOXhpXzhPT0FFQ2thMWJBQnBPamh0a2N4Q1BySHVvVlpWRi1VQldLY0g1NWdmTTJBSW1oaVg0eHFUdlZRa0poYlE2Mkdnd2ZKc3lPalljRlBiT2x5T2tTVDF3cklnRUZTckhyRF9RbzNPOFYyZDbSAYQBQVVfeXFMT09IN3RfWks1Z2pvTlozRDl4aV84T09BRUNrYTFiQUJwT2podGtjeENQckh1b1ZaVkYtVUJXS2NINTVnZk0yQUltaGlYNHhxVHZWUWtKaGJRNjJHZ3dmSnN5T2pZY0ZQYk9seU9rU1Qxd3JJZ0VGU3JIckRfUW8zTzhWMmQ2?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
