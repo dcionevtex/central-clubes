@@ -1,0 +1,13 @@
+---
+title: "Jovens agradam, e Roger Machado revela estratégia para uso da base no São Paulo"
+description: "Jovens agradam, e Roger Machado revela estratégia para uso da base no São Paulo  Gazeta Esportiva"
+pubDate: "2026-04-08T10:04:01.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxPaHBZZTVoSS1DNTNtVTNQeUNnV1pNRElOVW50VFZZeGZ4X2w0cEhiZ3d3alRxTXh4cWV1RWdWdTVwZVk1SlQySDVhbFNzRTBHZmdyelZNNFVNcGw1UTEtRTQ3U0VpcHpualpUZnp3dmJtTzVOTTdMNjZYSEFyTFY3M3NVQVplWmlGTFhZSEJhaFg3RHhI0gGUAUFVX3lxTE9ocFllNWhJLUM1M21VM1B5Q2dXWk1ESU5VbnRUVll4ZnhfbDRwSGJnd3dqVHFNeHhxZXVFZ1Z1NXBlWTVKVDJINWFsU3NFMEdmZ3J6Vk00VU1wbDVRMS1FNDdTRWlwem5qWlRmend2Ym1PNU5NN0w2NlhIQXJMVjczc1VBWmVaaUZMWFlIQmFoWDdEeEg?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxPaHBZZTVoSS1DNTNtVTNQeUNnV1pNRElOVW50VFZZeGZ4X2w0cEhiZ3d3alRxTXh4cWV1RWdWdTVwZVk1SlQySDVhbFNzRTBHZmdyelZNNFVNcGw1UTEtRTQ3U0VpcHpualpUZnp3dmJtTzVOTTdMNjZYSEFyTFY3M3NVQVplWmlGTFhZSEJhaFg3RHhI0gGUAUFVX3lxTE9ocFllNWhJLUM1M21VM1B5Q2dXWk1ESU5VbnRUVll4ZnhfbDRwSGJnd3dqVHFNeHhxZXVFZ1Z1NXBlWTVKVDJINWFsU3NFMEdmZ3J6Vk00VU1wbDVRMS1FNDdTRWlwem5qWlRmend2Ym1PNU5NN0w2NlhIQXJMVjczc1VBWmVaaUZMWFlIQmFoWDdEeEg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
