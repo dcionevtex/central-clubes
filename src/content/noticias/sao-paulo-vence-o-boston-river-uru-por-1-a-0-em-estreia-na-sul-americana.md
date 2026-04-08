@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence o Boston River-URU por 1 a 0 em estreia na Sul-Americana"
+description: "São Paulo vence o Boston River-URU por 1 a 0 em estreia na Sul-Americana  Diário do Poder"
+pubDate: "2026-04-08T13:25:00.000Z"
+source: "Diário do Poder"
+link: "https://news.google.com/rss/articles/CBMirgFBVV95cUxQcXJ0Tno5M1ZvSTVKQ1lodUUyaG13VmMtX1EwMW1TS2JVTGZsXy0zN2t0SUJ5T3gyT0FERXVGU3BqWFdEanRQVF9QeWVDZERGckppRHRFZ0Fubk56MTNReUZPaC1zV3RBT2d4T1hvWEJETTAzdWdZWmFVLUNWTWN0YzVwZmV2LS0xSmZVZnVMZkMydXNZby1qakpsUWpKRWZkOEZaY211OU5FWWtBbnfSAbMBQVVfeXFMUHkwcnlaV0RCUzgxNXNnelY1RDd6YktlbXlYd0tkalRlMVRpNUN1TzRRRkZSMlQwRnVvMTJ6Y1M1NUQ3d0MydXpOeFFlVXVKZjFpOEg3ZnJBaVJ2TS1ZaDdQYi1wY3E2MG1sLW03VG4wbEptM2xMNHN0aWlFaU1kM283bDJvc0J4ZVlDcHZoWkNSbW8yaVNvNlBGVVVSZFotbVg1RGc2OWh1QURERTR5RFJuWTg?oc=5"
+---
+
+### Fonte Original: Diário do Poder
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgFBVV95cUxQcXJ0Tno5M1ZvSTVKQ1lodUUyaG13VmMtX1EwMW1TS2JVTGZsXy0zN2t0SUJ5T3gyT0FERXVGU3BqWFdEanRQVF9QeWVDZERGckppRHRFZ0Fubk56MTNReUZPaC1zV3RBT2d4T1hvWEJETTAzdWdZWmFVLUNWTWN0YzVwZmV2LS0xSmZVZnVMZkMydXNZby1qakpsUWpKRWZkOEZaY211OU5FWWtBbnfSAbMBQVVfeXFMUHkwcnlaV0RCUzgxNXNnelY1RDd6YktlbXlYd0tkalRlMVRpNUN1TzRRRkZSMlQwRnVvMTJ6Y1M1NUQ3d0MydXpOeFFlVXVKZjFpOEg3ZnJBaVJ2TS1ZaDdQYi1wY3E2MG1sLW03VG4wbEptM2xMNHN0aWlFaU1kM283bDJvc0J4ZVlDcHZoWkNSbW8yaVNvNlBGVVVSZFotbVg1RGc2OWh1QURERTR5RFJuWTg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
