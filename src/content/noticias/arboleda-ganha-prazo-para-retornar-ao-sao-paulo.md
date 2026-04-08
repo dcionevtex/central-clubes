@@ -1,0 +1,13 @@
+---
+title: "Arboleda ganha \"prazo\" para retornar ao São Paulo"
+description: "Arboleda ganha \"prazo\" para retornar ao São Paulo  ABCD Jornal"
+pubDate: "2026-04-08T16:09:35.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNNG1OX2ZXT3k4dUdNTTVoM3g1VEVwN1lHclNuRWZJU0xtQnRINXhLQjVQeXhQUVJCNWdvTVB3TVpfWlZudVBqcDg3N3FlMk12cFdEZXVoYi1OLU9ZSHB2T2JsMXR4ZXF6VlVjNmhwNnFzcnJ0OUpnT3docUtJSEVSdDFCS213ZnpUNXN5RDRvaUJoMHozNUp4R2JtNksycjVDbGVPeTBPQ3nSAagBQVVfeXFMTTRtTl9mV095OHVHTU01aDN4NVRFcDdZR3JTbkVmSVNMbUJ0SDV4S0I1UHl4UFFSQjVnb01Qd01aX1pWbnVQanA4NzdxZTJNdnBXRGV1aGItTi1PWUhwdk9ibDF0eGVxelZVYzZocDZxc3JydDlKZ093aHFLSUhFUnQxQkttd2Z6VDVzeUQ0b2lCaDB6MzVKeEdibTZLMnI1Q2xlT3kwT0N5?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNNG1OX2ZXT3k4dUdNTTVoM3g1VEVwN1lHclNuRWZJU0xtQnRINXhLQjVQeXhQUVJCNWdvTVB3TVpfWlZudVBqcDg3N3FlMk12cFdEZXVoYi1OLU9ZSHB2T2JsMXR4ZXF6VlVjNmhwNnFzcnJ0OUpnT3docUtJSEVSdDFCS213ZnpUNXN5RDRvaUJoMHozNUp4R2JtNksycjVDbGVPeTBPQ3nSAagBQVVfeXFMTTRtTl9mV095OHVHTU01aDN4NVRFcDdZR3JTbkVmSVNMbUJ0SDV4S0I1UHl4UFFSQjVnb01Qd01aX1pWbnVQanA4NzdxZTJNdnBXRGV1aGItTi1PWUhwdk9ibDF0eGVxelZVYzZocDZxc3JydDlKZ093aHFLSUhFUnQxQkttd2Z6VDVzeUQ0b2lCaDB6MzVKeEdibTZLMnI1Q2xlT3kwT0N5?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Tetê recebe primeiros minutos e deve ter mais espaço"
+description: "São Paulo: Tetê recebe primeiros minutos e deve ter mais espaço  Portal Hortolândia"
+pubDate: "2026-04-08T12:57:10.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxNVW5hNDYxXzhRTFpGUnJCN211Vm1XQXprOC1KUmtHa1Vpd3oxQ3I4azFUMUhfTVloYTI3b05sX2g3aG04R3hSa2RoeWQtS2tCZ0ZsZTk3VGRORk10RVZoZ1hIc09WZC1pTTRoV1BGbjRDbDRHSjJ2V0dDQWZSTmt0YWhJdm9yd9IBhgFBVV95cUxNVW5hNDYxXzhRTFpGUnJCN211Vm1XQXprOC1KUmtHa1Vpd3oxQ3I4azFUMUhfTVloYTI3b05sX2g3aG04R3hSa2RoeWQtS2tCZ0ZsZTk3VGRORk10RVZoZ1hIc09WZC1pTTRoV1BGbjRDbDRHSjJ2V0dDQWZSTmt0YWhJdm9ydw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxNVW5hNDYxXzhRTFpGUnJCN211Vm1XQXprOC1KUmtHa1Vpd3oxQ3I4azFUMUhfTVloYTI3b05sX2g3aG04R3hSa2RoeWQtS2tCZ0ZsZTk3VGRORk10RVZoZ1hIc09WZC1pTTRoV1BGbjRDbDRHSjJ2V0dDQWZSTmt0YWhJdm9yd9IBhgFBVV95cUxNVW5hNDYxXzhRTFpGUnJCN211Vm1XQXprOC1KUmtHa1Vpd3oxQ3I4azFUMUhfTVloYTI3b05sX2g3aG04R3hSa2RoeWQtS2tCZ0ZsZTk3VGRORk10RVZoZ1hIc09WZC1pTTRoV1BGbjRDbDRHSjJ2V0dDQWZSTmt0YWhJdm9ydw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

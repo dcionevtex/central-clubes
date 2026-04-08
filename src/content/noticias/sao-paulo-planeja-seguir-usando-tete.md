@@ -1,0 +1,13 @@
+---
+title: "São Paulo planeja seguir usando Tetê"
+description: "São Paulo planeja seguir usando Tetê  ABCD Jornal"
+pubDate: "2026-04-08T13:22:21.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNM2J3RzIwcW5lVmVnbVJOZ2YwQzFNd0FULUdGeFk4U2hCRFdlaWY5a2twd3ZaSlUyV2QwV0FCZHZrSmVVM19NUWx0VENQRWVrMnhjdHBPTFl2VlQyc2JRdm9XN2FjOEdNWkRuZ213cUgwTEVNc3ZGNFh2ZmJTU0VYcEZ3Z3A4NUpnMUJscXk2RzF6NnozZnBJVTVn0gGaAUFVX3lxTE0zYndHMjBxbmVWZWdtUk5nZjBDMU13QVQtR0Z4WThTaEJEV2VpZjlra3B3dlpKVTJXZDBXQUJkdmtKZVUzX01RbHRUQ1BFZWsyeGN0cE9MWXZWVDJzYlF2b1c3YWM4R01aRG5nbXdxSDBMRU1zdkY0WHZmYlNTRVhwRndncDg1SmcxQmxxeTZHMXo2ejNmcElVNWc?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNM2J3RzIwcW5lVmVnbVJOZ2YwQzFNd0FULUdGeFk4U2hCRFdlaWY5a2twd3ZaSlUyV2QwV0FCZHZrSmVVM19NUWx0VENQRWVrMnhjdHBPTFl2VlQyc2JRdm9XN2FjOEdNWkRuZ213cUgwTEVNc3ZGNFh2ZmJTU0VYcEZ3Z3A4NUpnMUJscXk2RzF6NnozZnBJVTVn0gGaAUFVX3lxTE0zYndHMjBxbmVWZWdtUk5nZjBDMU13QVQtR0Z4WThTaEJEV2VpZjlra3B3dlpKVTJXZDBXQUJkdmtKZVUzX01RbHRUQ1BFZWsyeGN0cE9MWXZWVDJzYlF2b1c3YWM4R01aRG5nbXdxSDBMRU1zdkY0WHZmYlNTRVhwRndncDg1SmcxQmxxeTZHMXo2ejNmcElVNWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
