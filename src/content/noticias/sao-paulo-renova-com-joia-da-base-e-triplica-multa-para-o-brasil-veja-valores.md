@@ -1,0 +1,13 @@
+---
+title: "São Paulo renova com joia da base e triplica multa para o Brasil; veja valores"
+description: "São Paulo renova com joia da base e triplica multa para o Brasil; veja valores  Jogada 10"
+pubDate: "2026-04-08T22:04:35.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxPLXNMcmdRTUNham1tQUc3cmVCTGlhbkxhQkpWakwtUHNGc2pWZ3FVcGtFeWI2RmRzN1pLLWNhNDlUVGZ5MlNIbzdOblRJUThncy1uanBlYmxIcTNUYmtHQjFBaTE5QVZ3R2c0QTJrc2wwNnZyWHZhbXI5eW02NHVtU1UyZ1ZwdmkzQVJzZDQtLTV6OUJzMTdKbGkzY0xVMHNwdmVIdNIBqgFBVV95cUxPU3hoODRHSm1EcXNYZDUwUmU4VllWbEMwRVEtNmxXUGo4NU90eWJwN0dvV2ctMWpzRUpzMFZ0WkVNQmMyMHBLUVdJXzA5ajRMc3BCYVhIYUZzbE5SX0RTUVB2WDVueFJWcGdoeVZyWENFenFCcUZHaWNkS0I4RzZUWVBZcHNMMXNkV1pGNXhZSkhmajRKWDMxNkRQRHp3VTJMUUYwV2doWUVHUQ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxPLXNMcmdRTUNham1tQUc3cmVCTGlhbkxhQkpWakwtUHNGc2pWZ3FVcGtFeWI2RmRzN1pLLWNhNDlUVGZ5MlNIbzdOblRJUThncy1uanBlYmxIcTNUYmtHQjFBaTE5QVZ3R2c0QTJrc2wwNnZyWHZhbXI5eW02NHVtU1UyZ1ZwdmkzQVJzZDQtLTV6OUJzMTdKbGkzY0xVMHNwdmVIdNIBqgFBVV95cUxPU3hoODRHSm1EcXNYZDUwUmU4VllWbEMwRVEtNmxXUGo4NU90eWJwN0dvV2ctMWpzRUpzMFZ0WkVNQmMyMHBLUVdJXzA5ajRMc3BCYVhIYUZzbE5SX0RTUVB2WDVueFJWcGdoeVZyWENFenFCcUZHaWNkS0I4RzZUWVBZcHNMMXNkV1pGNXhZSkhmajRKWDMxNkRQRHp3VTJMUUYwV2doWUVHUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

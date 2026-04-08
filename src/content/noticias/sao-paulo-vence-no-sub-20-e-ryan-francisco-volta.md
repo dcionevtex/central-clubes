@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence no Sub-20 e Ryan Francisco volta"
+description: "São Paulo vence no Sub-20 e Ryan Francisco volta  Portal Hortolândia"
+pubDate: "2026-04-08T21:42:12.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE9IQmNPQUw3UkpGMTZFVy1mQmJqSHlxd1RkZDMycXV5NWxaRGFTbk9VZWpKa0FUSm4yZGRFSkxyRzhSb3lBMlIzV0RTWE5VeG93ZVUyLXIwT2xneDVfd3kxUWZ5LThYblpOWVRsNzNtSF82elVWVGplaFR5SDIwUdIBfkFVX3lxTE9IQmNPQUw3UkpGMTZFVy1mQmJqSHlxd1RkZDMycXV5NWxaRGFTbk9VZWpKa0FUSm4yZGRFSkxyRzhSb3lBMlIzV0RTWE5VeG93ZVUyLXIwT2xneDVfd3kxUWZ5LThYblpOWVRsNzNtSF82elVWVGplaFR5SDIwUQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE9IQmNPQUw3UkpGMTZFVy1mQmJqSHlxd1RkZDMycXV5NWxaRGFTbk9VZWpKa0FUSm4yZGRFSkxyRzhSb3lBMlIzV0RTWE5VeG93ZVUyLXIwT2xneDVfd3kxUWZ5LThYblpOWVRsNzNtSF82elVWVGplaFR5SDIwUdIBfkFVX3lxTE9IQmNPQUw3UkpGMTZFVy1mQmJqSHlxd1RkZDMycXV5NWxaRGFTbk9VZWpKa0FUSm4yZGRFSkxyRzhSb3lBMlIzV0RTWE5VeG93ZVUyLXIwT2xneDVfd3kxUWZ5LThYblpOWVRsNzNtSF82elVWVGplaFR5SDIwUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
