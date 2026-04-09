@@ -1,0 +1,13 @@
+---
+title: "São Paulo se reapresenta e sofre com lesão de volante"
+description: "São Paulo se reapresenta e sofre com lesão de volante  Portal Hortolândia"
+pubDate: "2026-04-09T22:35:11.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxPeGhhQXAtdl9PLTA1czltVG8yRE5ob1lTMEVvTkRLdkY5N2tMLUc5MTFYQWdRQXZNakxnUy1IV1Qxdi1mbGM5d0VLbDVIeE5aWVlZd3diSjNaOW5RbnFidWcxaGdHNDFVRExRbzdYUUItdWVia1ViVjlLWXMwaFN5U1lhc9IBgwFBVV95cUxPeGhhQXAtdl9PLTA1czltVG8yRE5ob1lTMEVvTkRLdkY5N2tMLUc5MTFYQWdRQXZNakxnUy1IV1Qxdi1mbGM5d0VLbDVIeE5aWVlZd3diSjNaOW5RbnFidWcxaGdHNDFVRExRbzdYUUItdWVia1ViVjlLWXMwaFN5U1lhcw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxPeGhhQXAtdl9PLTA1czltVG8yRE5ob1lTMEVvTkRLdkY5N2tMLUc5MTFYQWdRQXZNakxnUy1IV1Qxdi1mbGM5d0VLbDVIeE5aWVlZd3diSjNaOW5RbnFidWcxaGdHNDFVRExRbzdYUUItdWVia1ViVjlLWXMwaFN5U1lhc9IBgwFBVV95cUxPeGhhQXAtdl9PLTA1czltVG8yRE5ob1lTMEVvTkRLdkY5N2tMLUc5MTFYQWdRQXZNakxnUy1IV1Qxdi1mbGM5d0VLbDVIeE5aWVlZd3diSjNaOW5RbnFidWcxaGdHNDFVRExRbzdYUUItdWVia1ViVjlLWXMwaFN5U1lhcw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
