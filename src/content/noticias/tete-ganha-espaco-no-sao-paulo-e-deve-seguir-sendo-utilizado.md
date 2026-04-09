@@ -1,0 +1,13 @@
+---
+title: "Tetê ganha espaço no São Paulo e deve seguir sendo utilizado"
+description: "Tetê ganha espaço no São Paulo e deve seguir sendo utilizado  Bolavip Brasil"
+pubDate: "2026-04-09T17:28:09.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxPZHpaM0FiMFFLUzlLbHdHd1VUZUw0OFJ2dWhmT002aE5ndUw5RHBDS0VUd1pDSVVaOEtubTdtQmxfMzJOWVE1T2d1em1PMWcwdzdQMUZWT1VwM00ydzRYREM0S3NLRnp6N2ZOWlJZaXkwRjRPdjgwaGRBejQydE1kNXZ3YmZOWmd0Vk0tbFI0OHdrd0dwd3BGQtIBngFBVV95cUxOeW4xXzdadzIwUEFVbnZFSE5MckhYSllNZEdBVWFUZ2tiOGE1NUY5eEdiQnVPX0NCeWt0S3NZMHpWeVZnMUFfRlZwLTNLUlFobWkwUzFTSlZYQ2h0UmRVOUJVU0oyY21pUDdxcDd3dXpzdzhGXzNaZW5uWllqa3U4eHRGUGh5OG5vbVNYS2laTHEzcGl6ZmVFVDJqSnpDQQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxPZHpaM0FiMFFLUzlLbHdHd1VUZUw0OFJ2dWhmT002aE5ndUw5RHBDS0VUd1pDSVVaOEtubTdtQmxfMzJOWVE1T2d1em1PMWcwdzdQMUZWT1VwM00ydzRYREM0S3NLRnp6N2ZOWlJZaXkwRjRPdjgwaGRBejQydE1kNXZ3YmZOWmd0Vk0tbFI0OHdrd0dwd3BGQtIBngFBVV95cUxOeW4xXzdadzIwUEFVbnZFSE5MckhYSllNZEdBVWFUZ2tiOGE1NUY5eEdiQnVPX0NCeWt0S3NZMHpWeVZnMUFfRlZwLTNLUlFobWkwUzFTSlZYQ2h0UmRVOUJVU0oyY21pUDdxcDd3dXpzdzhGXzNaZW5uWllqa3U4eHRGUGh5OG5vbVNYS2laTHEzcGl6ZmVFVDJqSnpDQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
