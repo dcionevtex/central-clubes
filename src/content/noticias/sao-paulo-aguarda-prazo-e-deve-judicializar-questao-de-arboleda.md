@@ -1,0 +1,13 @@
+---
+title: "São Paulo aguarda prazo e deve judicializar questão de Arboleda"
+description: "São Paulo aguarda prazo e deve judicializar questão de Arboleda  Portal Hortolândia"
+pubDate: "2026-04-09T12:25:44.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxOSE9MaFN4ZTNPUEMxOVFxUFEyc0huanpXNlhkM1Z0a0lSY3Nsb3dRLVFPMldJRnl0WHNkTXBJM0ZGbC02VjMyVWdBU2g5bG9GWkdRNGdnbVdsengtYlFlMFNHRktEa2UtdllSbWpCZUZCcFpHdkh6VzNjcDhIalVQbNIBgAFBVV95cUxOSE9MaFN4ZTNPUEMxOVFxUFEyc0huanpXNlhkM1Z0a0lSY3Nsb3dRLVFPMldJRnl0WHNkTXBJM0ZGbC02VjMyVWdBU2g5bG9GWkdRNGdnbVdsengtYlFlMFNHRktEa2UtdllSbWpCZUZCcFpHdkh6VzNjcDhIalVQbA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxOSE9MaFN4ZTNPUEMxOVFxUFEyc0huanpXNlhkM1Z0a0lSY3Nsb3dRLVFPMldJRnl0WHNkTXBJM0ZGbC02VjMyVWdBU2g5bG9GWkdRNGdnbVdsengtYlFlMFNHRktEa2UtdllSbWpCZUZCcFpHdkh6VzNjcDhIalVQbNIBgAFBVV95cUxOSE9MaFN4ZTNPUEMxOVFxUFEyc0huanpXNlhkM1Z0a0lSY3Nsb3dRLVFPMldJRnl0WHNkTXBJM0ZGbC02VjMyVWdBU2g5bG9GWkdRNGdnbVdsengtYlFlMFNHRktEa2UtdllSbWpCZUZCcFpHdkh6VzNjcDhIalVQbA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
