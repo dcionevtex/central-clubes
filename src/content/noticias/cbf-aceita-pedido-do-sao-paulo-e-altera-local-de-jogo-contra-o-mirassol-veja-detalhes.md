@@ -1,0 +1,13 @@
+---
+title: "CBF aceita pedido do São Paulo e altera local de jogo contra o Mirassol; veja detalhes"
+description: "CBF aceita pedido do São Paulo e altera local de jogo contra o Mirassol; veja detalhes  Gazeta Esportiva"
+pubDate: "2026-04-09T07:04:31.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxQWUFjeUdmUnpFWjhLTkNGVHRGaXVDM3NrQWlBaDNmUWdOZmp5ZzBLTS1pRnhBbGx6VWZNMkVlNm9aalFMMnloVzB3dkRtQndkX3l1SE1OY3J4TjBQMmdsTGE0bFozZDRoTWlMdTA4QVk3cDl0SW40VXd0R0RqcFR6LTRJTTFTX1ZjNV9zWkdLbjA3aFhJWGJrVtIBmAFBVV95cUxQWUFjeUdmUnpFWjhLTkNGVHRGaXVDM3NrQWlBaDNmUWdOZmp5ZzBLTS1pRnhBbGx6VWZNMkVlNm9aalFMMnloVzB3dkRtQndkX3l1SE1OY3J4TjBQMmdsTGE0bFozZDRoTWlMdTA4QVk3cDl0SW40VXd0R0RqcFR6LTRJTTFTX1ZjNV9zWkdLbjA3aFhJWGJrVg?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxQWUFjeUdmUnpFWjhLTkNGVHRGaXVDM3NrQWlBaDNmUWdOZmp5ZzBLTS1pRnhBbGx6VWZNMkVlNm9aalFMMnloVzB3dkRtQndkX3l1SE1OY3J4TjBQMmdsTGE0bFozZDRoTWlMdTA4QVk3cDl0SW40VXd0R0RqcFR6LTRJTTFTX1ZjNV9zWkdLbjA3aFhJWGJrVtIBmAFBVV95cUxQWUFjeUdmUnpFWjhLTkNGVHRGaXVDM3NrQWlBaDNmUWdOZmp5ZzBLTS1pRnhBbGx6VWZNMkVlNm9aalFMMnloVzB3dkRtQndkX3l1SE1OY3J4TjBQMmdsTGE0bFozZDRoTWlMdTA4QVk3cDl0SW40VXd0R0RqcFR6LTRJTTFTX1ZjNV9zWkdLbjA3aFhJWGJrVg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
