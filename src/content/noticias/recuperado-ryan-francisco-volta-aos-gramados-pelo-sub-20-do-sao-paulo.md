@@ -1,0 +1,13 @@
+---
+title: "Recuperado, Ryan Francisco volta aos gramados pelo sub-20 do São Paulo"
+description: "Recuperado, Ryan Francisco volta aos gramados pelo sub-20 do São Paulo  Gazeta Esportiva"
+pubDate: "2026-04-09T22:12:05.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxPQl9PaEVsT2UxWUFzNTFSLTN2Mk9sS1VRcTkzMVItSU9YN203aGxkdFdTRjNXQmZuRHZNRDB4aHZXR2xPNEp2eW11MGdENkljNm9FTHNWOUoxXzJrZjkwZzhtME92NzVnSkE2ekdMb280ODNCYndSX2tncHFRbk4xMHpnMmpSU1BQQjdCQzczcXAxNTTSAZMBQVVfeXFMT0JfT2hFbE9lMVlBczUxUi0zdjJPbEtVUXE5MzFSLUlPWDdtN2hsZHRXU0YzV0JmbkR2TUQweGh2V0dsTzRKdnltdTBnRDZJYzZvRUxzVjlKMV8ya2Y5MGc4bTBPdjc1Z0pBNnpHTG9vNDgzQmJ3Ul9rZ3BxUW5OMTB6ZzJqUlNQUEI3QkM3M3FwMTU0?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxPQl9PaEVsT2UxWUFzNTFSLTN2Mk9sS1VRcTkzMVItSU9YN203aGxkdFdTRjNXQmZuRHZNRDB4aHZXR2xPNEp2eW11MGdENkljNm9FTHNWOUoxXzJrZjkwZzhtME92NzVnSkE2ekdMb280ODNCYndSX2tncHFRbk4xMHpnMmpSU1BQQjdCQzczcXAxNTTSAZMBQVVfeXFMT0JfT2hFbE9lMVlBczUxUi0zdjJPbEtVUXE5MzFSLUlPWDdtN2hsZHRXU0YzV0JmbkR2TUQweGh2V0dsTzRKdnltdTBnRDZJYzZvRUxzVjlKMV8ya2Y5MGc4bTBPdjc1Z0pBNnpHTG9vNDgzQmJ3Ul9rZ3BxUW5OMTB6ZzJqUlNQUEI3QkM3M3FwMTU0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
