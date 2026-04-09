@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Arboleda é visto em jogo"
+description: "São Paulo: Arboleda é visto em jogo  Portal Hortolândia"
+pubDate: "2026-04-09T03:10:26.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxQMnVPMTRrNmJ2VVNZdDJaVDg5WFFpR3VUX0hsZkdwQkhTWElxbVBkV1FGUnVvX1FJWk1FektYZzVpTm9LaURFV0ZrWTVpeTZTbDFwdjRyTzBSUG5ZOWJ5Yl9YbVJOS3p4TVQzUXpjZXA4RVVEbnQyNWZBSndwYy1fUW92REvSAYQBQVVfeXFMUDJ1TzE0azZidlVTWXQyWlQ4OVhRaUd1VF9IbGZHcEJIU1hJcW1QZFdRRlJ1b19RSVpNRXpLWGc1aU5vS2lERVdGa1k1aXk2U2wxcHY0ck8wUlBuWTlieWJfWG1STkt6eE1UM1F6Y2VwOEVVRG50MjVmQUp3cGMtX1FvdkRL?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxQMnVPMTRrNmJ2VVNZdDJaVDg5WFFpR3VUX0hsZkdwQkhTWElxbVBkV1FGUnVvX1FJWk1FektYZzVpTm9LaURFV0ZrWTVpeTZTbDFwdjRyTzBSUG5ZOWJ5Yl9YbVJOS3p4TVQzUXpjZXA4RVVEbnQyNWZBSndwYy1fUW92REvSAYQBQVVfeXFMUDJ1TzE0azZidlVTWXQyWlQ4OVhRaUd1VF9IbGZHcEJIU1hJcW1QZFdRRlJ1b19RSVpNRXpLWGc1aU5vS2lERVdGa1k1aXk2U2wxcHY0ck8wUlBuWTlieWJfWG1STkt6eE1UM1F6Y2VwOEVVRG50MjVmQUp3cGMtX1FvdkRL?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

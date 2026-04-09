@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Ryan Francisco retorna no Sub-20"
+description: "São Paulo: Ryan Francisco retorna no Sub-20  ABCD Jornal"
+pubDate: "2026-04-08T21:51:27.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxPUkQ0TC1tanB5MndJUjMyaHk5MEcxR1Z1b0VIbXd5Ylp1ZEVnS0M3dVlxRVNCZzJ0LXpPN3RiZXlFeEJsYlhGNmdDcHpXQ2RxODdsZUV1RmlqOHhPZTYxUFd0dmttVEpJU2lEZVdBWWpIRFNKS2toN1BwdU5Pb1NWcm8ta3E0THQ4cFBnaWhnTTJjU3pWMkN6TFNlajAtSGxLbnfSAaIBQVVfeXFMT1JENEwtbWpweTJ3SVIzMmh5OTBHMUdWdW9FSG13eWJadWRFZ0tDN3VZcUVTQmcydC16Tzd0YmV5RXhCbGJYRjZnQ3B6V0NkcTg3bGVFdUZpajh4T2U2MVBXdHZrbVRKSVNpRGVXQVlqSERTSktraDdQcHVOT29TVnJvLWtxNEx0OHBQZ2loZ00yY1N6VjJDekxTZWowLUhsS253?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxPUkQ0TC1tanB5MndJUjMyaHk5MEcxR1Z1b0VIbXd5Ylp1ZEVnS0M3dVlxRVNCZzJ0LXpPN3RiZXlFeEJsYlhGNmdDcHpXQ2RxODdsZUV1RmlqOHhPZTYxUFd0dmttVEpJU2lEZVdBWWpIRFNKS2toN1BwdU5Pb1NWcm8ta3E0THQ4cFBnaWhnTTJjU3pWMkN6TFNlajAtSGxLbnfSAaIBQVVfeXFMT1JENEwtbWpweTJ3SVIzMmh5OTBHMUdWdW9FSG13eWJadWRFZ0tDN3VZcUVTQmcydC16Tzd0YmV5RXhCbGJYRjZnQ3B6V0NkcTg3bGVFdUZpajh4T2U2MVBXdHZrbVRKSVNpRGVXQVlqSERTSktraDdQcHVOT29TVnJvLWtxNEx0OHBQZ2loZ00yY1N6VjJDekxTZWowLUhsS253?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
