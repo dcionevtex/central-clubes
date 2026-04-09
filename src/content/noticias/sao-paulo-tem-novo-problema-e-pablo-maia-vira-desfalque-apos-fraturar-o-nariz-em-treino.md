@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem novo problema e Pablo Maia vira desfalque após fraturar o nariz em treino"
+description: "São Paulo tem novo problema e Pablo Maia vira desfalque após fraturar o nariz em treino  Bolavip Brasil"
+pubDate: "2026-04-09T20:56:44.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxOd0JMUXMxaE1EMmdRMU1ocWQwdWpUMC1seXM0TTkwVzNYcGphZlFwYUxpWTZDbjZHTjN3OHNENjRSQ3BWRVlSTDBpRmFzalZ5Tm14SGFmUjVDRU9qbWY4TW5jMFp6bG5SQkREVDhNWS0xREZxYkdvNE9jNWx5WGhVWnA1NktTOUNUVUZZVWtPQjFqWE14REhuTdIBngFBVV95cUxQWnhuMnR3Vlp4Y3dRaDYwWkFzQ0hBTHc3Q2VUWUxja2Rmdi16X1c5WlRGY21rTDNGU1c2ODVWSUtzdWszYUJsVHNZbms2RFpMWVJqS29jaS1mdEg4SUNmNDhCUkRMRUdxNHpfWTdiQkxlS1V3WUJWU0prdHVEdkRDM0dRdmZ2STRIX2RnY2JMRnNJYlBabjZqU1JiVXJWZw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxOd0JMUXMxaE1EMmdRMU1ocWQwdWpUMC1seXM0TTkwVzNYcGphZlFwYUxpWTZDbjZHTjN3OHNENjRSQ3BWRVlSTDBpRmFzalZ5Tm14SGFmUjVDRU9qbWY4TW5jMFp6bG5SQkREVDhNWS0xREZxYkdvNE9jNWx5WGhVWnA1NktTOUNUVUZZVWtPQjFqWE14REhuTdIBngFBVV95cUxQWnhuMnR3Vlp4Y3dRaDYwWkFzQ0hBTHc3Q2VUWUxja2Rmdi16X1c5WlRGY21rTDNGU1c2ODVWSUtzdWszYUJsVHNZbms2RFpMWVJqS29jaS1mdEg4SUNmNDhCUkRMRUdxNHpfWTdiQkxlS1V3WUJWU0prdHVEdkRDM0dRdmZ2STRIX2RnY2JMRnNJYlBabjZqU1JiVXJWZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
