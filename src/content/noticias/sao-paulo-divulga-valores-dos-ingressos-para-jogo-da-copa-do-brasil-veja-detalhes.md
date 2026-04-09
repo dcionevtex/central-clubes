@@ -1,0 +1,13 @@
+---
+title: "São Paulo divulga valores dos ingressos para jogo da Copa do Brasil; veja detalhes"
+description: "São Paulo divulga valores dos ingressos para jogo da Copa do Brasil; veja detalhes  Gazeta Esportiva"
+pubDate: "2026-04-09T18:22:27.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxQVzNPWlpyaW5SUXFaUGZJdVBlQV9Ibm5yekh2V3pUNUM2d3ZtYkprY3hFSjFkMl9jLUQzUy1IQWpmN3hHNWhTd2E1eXZPWlBfdXVqNFk2QjVQRFdtOUptSlBycllNUFFmZndQWmF4d0dZQkFORzJEakIxZ09HSkdYOWg5cFZQTUFLUTdDeWhyX1lMYXJKOUhZOXJUYmRBZ9IBngFBVV95cUxQVzNPWlpyaW5SUXFaUGZJdVBlQV9Ibm5yekh2V3pUNUM2d3ZtYkprY3hFSjFkMl9jLUQzUy1IQWpmN3hHNWhTd2E1eXZPWlBfdXVqNFk2QjVQRFdtOUptSlBycllNUFFmZndQWmF4d0dZQkFORzJEakIxZ09HSkdYOWg5cFZQTUFLUTdDeWhyX1lMYXJKOUhZOXJUYmRBZw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxQVzNPWlpyaW5SUXFaUGZJdVBlQV9Ibm5yekh2V3pUNUM2d3ZtYkprY3hFSjFkMl9jLUQzUy1IQWpmN3hHNWhTd2E1eXZPWlBfdXVqNFk2QjVQRFdtOUptSlBycllNUFFmZndQWmF4d0dZQkFORzJEakIxZ09HSkdYOWg5cFZQTUFLUTdDeWhyX1lMYXJKOUhZOXJUYmRBZ9IBngFBVV95cUxQVzNPWlpyaW5SUXFaUGZJdVBlQV9Ibm5yekh2V3pUNUM2d3ZtYkprY3hFSjFkMl9jLUQzUy1IQWpmN3hHNWhTd2E1eXZPWlBfdXVqNFk2QjVQRFdtOUptSlBycllNUFFmZndQWmF4d0dZQkFORzJEakIxZ09HSkdYOWg5cFZQTUFLUTdDeWhyX1lMYXJKOUhZOXJUYmRBZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
