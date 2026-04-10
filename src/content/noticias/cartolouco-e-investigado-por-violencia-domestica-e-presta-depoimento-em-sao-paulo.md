@@ -1,0 +1,13 @@
+---
+title: "Cartolouco é investigado por violência doméstica e presta depoimento em São Paulo"
+description: "Cartolouco é investigado por violência doméstica e presta depoimento em São Paulo  Terra"
+pubDate: "2026-04-10T00:57:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi_gFBVV95cUxNQjBfZk0ybVJqcld5azZJSW9TaUQwYUY3X1ppQXZRUnZSYUg0aWo4eU5KVWVtRDF3bG4yNWJCQzhMZTlhQ2h1dklNLTRfbEFMZjF0V2ZDYXBqTWYwbXFjeTZJbnktbE9XVkxibERfWEpIV253a1c3dXlhR240VjFNcVhUbTdXSjRzU0pZR2xPaDJudzNCbWNVam53ZDFEWmM3RTlieVg1ZFctRHpfWDhmMjZKZnhfdFNPTVdqcFVIbS1OeVRKOEhRV09MVWhzSi1FTmEtWXcxNEM2OGNWMVdXUG9SUGRJNmYwTFF1dWFEWDhsSFE0Vl9ROXRnajY1Zw?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_gFBVV95cUxNQjBfZk0ybVJqcld5azZJSW9TaUQwYUY3X1ppQXZRUnZSYUg0aWo4eU5KVWVtRDF3bG4yNWJCQzhMZTlhQ2h1dklNLTRfbEFMZjF0V2ZDYXBqTWYwbXFjeTZJbnktbE9XVkxibERfWEpIV253a1c3dXlhR240VjFNcVhUbTdXSjRzU0pZR2xPaDJudzNCbWNVam53ZDFEWmM3RTlieVg1ZFctRHpfWDhmMjZKZnhfdFNPTVdqcFVIbS1OeVRKOEhRV09MVWhzSi1FTmEtWXcxNEM2OGNWMVdXUG9SUGRJNmYwTFF1dWFEWDhsSFE0Vl9ROXRnajY1Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
