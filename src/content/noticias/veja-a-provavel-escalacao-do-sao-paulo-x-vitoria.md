@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo x Vitória"
+description: "Veja a provável escalação do São Paulo x Vitória  Portal Hortolândia"
+pubDate: "2026-04-10T18:29:08.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE9KT0dKbUNxR1FrdlRyQXMyczRJcmVZSnlMbUVLckVNMnBRNmFYdG9iNXlfSVJ4SFAtQ05rLTBuZndJTF9tblI0Wmo2aURhQVA5MzVNMmFHRXpNaGNRVjBwZDR5clFYYjVXR1lwZTdtN3FlNXZOdGFINU04UjJwZ9IBfkFVX3lxTE9KT0dKbUNxR1FrdlRyQXMyczRJcmVZSnlMbUVLckVNMnBRNmFYdG9iNXlfSVJ4SFAtQ05rLTBuZndJTF9tblI0Wmo2aURhQVA5MzVNMmFHRXpNaGNRVjBwZDR5clFYYjVXR1lwZTdtN3FlNXZOdGFINU04UjJwZw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE9KT0dKbUNxR1FrdlRyQXMyczRJcmVZSnlMbUVLckVNMnBRNmFYdG9iNXlfSVJ4SFAtQ05rLTBuZndJTF9tblI0Wmo2aURhQVA5MzVNMmFHRXpNaGNRVjBwZDR5clFYYjVXR1lwZTdtN3FlNXZOdGFINU04UjJwZ9IBfkFVX3lxTE9KT0dKbUNxR1FrdlRyQXMyczRJcmVZSnlMbUVLckVNMnBRNmFYdG9iNXlfSVJ4SFAtQ05rLTBuZndJTF9tblI0Wmo2aURhQVA5MzVNMmFHRXpNaGNRVjBwZDR5clFYYjVXR1lwZTdtN3FlNXZOdGFINU04UjJwZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
