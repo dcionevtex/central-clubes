@@ -1,0 +1,13 @@
+---
+title: "Rival do São Paulo, Vitória é treinado por ‘freguês’ de Roger Machado"
+description: "Rival do São Paulo, Vitória é treinado por ‘freguês’ de Roger Machado  Gazeta Esportiva"
+pubDate: "2026-04-10T09:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxQRmNDbFlOTVg5TWpvMDc4d244c196YzRNSnVXNU1WNHlpNS0xYTctUGlJQVdzMC1nQU43YkZEank3YlZBSkJBQUx4d1pKRjlBVi12el81eUxadUt2dnJKZmcwS18xMFEyTHZoYXJOWHdPQ254WXQ2TWZIV2d5UTYyM2w0Qk82X0RaMDV1ZkJ2dkVEb0pjc00wWNIBngFBVV95cUxQSVJTLUZySGlPeThsS1pRQ3Z4SWVkTmZVajRCekR4dDVtaUZRN2tUM0JSN3JkeXlhMnF1d1pEd0Y3NW9xWVljVW43Z042SXVhblBYUE1PVElFTlZGMHZGT0FWZ2Z4LUNZaXBQenRYNm11V3FMbkhvTGlhOEdXeG1fMXZOMWZmUDFTXy1RNXJySllmcW9UeUFoUnRrNFlpdw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxQRmNDbFlOTVg5TWpvMDc4d244c196YzRNSnVXNU1WNHlpNS0xYTctUGlJQVdzMC1nQU43YkZEank3YlZBSkJBQUx4d1pKRjlBVi12el81eUxadUt2dnJKZmcwS18xMFEyTHZoYXJOWHdPQ254WXQ2TWZIV2d5UTYyM2w0Qk82X0RaMDV1ZkJ2dkVEb0pjc00wWNIBngFBVV95cUxQSVJTLUZySGlPeThsS1pRQ3Z4SWVkTmZVajRCekR4dDVtaUZRN2tUM0JSN3JkeXlhMnF1d1pEd0Y3NW9xWVljVW43Z042SXVhblBYUE1PVElFTlZGMHZGT0FWZ2Z4LUNZaXBQenRYNm11V3FMbkhvTGlhOEdXeG1fMXZOMWZmUDFTXy1RNXJySllmcW9UeUFoUnRrNFlpdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
