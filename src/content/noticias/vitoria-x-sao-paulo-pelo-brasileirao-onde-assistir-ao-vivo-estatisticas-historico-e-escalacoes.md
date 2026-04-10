@@ -1,0 +1,13 @@
+---
+title: "Vitória x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "Vitória x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações  Gazeta Esportiva"
+pubDate: "2026-04-10T23:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxNU01GaFV3ZFZCdXFHVHlwaXNFZlozY2p3SHU2eW9XREdZNTkyWGlXYnBVbFJtOHp2dmFncnlveUVJNnktblB2VUdsbDhQZUVjMVpGNU5sZ0RzTWdCVDBmVTRRc1laU200Qmk0RDBkVGZSeHZ4Vk9NZWxOWXVJVEFVeTBGa9IBiAFBVV95cUxNYXBMS2Fxd2FOMUJvcjBjTXdHVy01S1kzS1RfcVVfUjF6eEJIZllIMVpJUTdNTVM2Ui1ma2lxQWRUQVRsa3Y2bVNaR2swZUpjRVRtcnRNWEtYMTFUaVhyXzJ0Q19xQU0tZWdWQkRQeU9yT25CLVd4aTBRU0dob3gzV0VqVXo0YVVf?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxNU01GaFV3ZFZCdXFHVHlwaXNFZlozY2p3SHU2eW9XREdZNTkyWGlXYnBVbFJtOHp2dmFncnlveUVJNnktblB2VUdsbDhQZUVjMVpGNU5sZ0RzTWdCVDBmVTRRc1laU200Qmk0RDBkVGZSeHZ4Vk9NZWxOWXVJVEFVeTBGa9IBiAFBVV95cUxNYXBMS2Fxd2FOMUJvcjBjTXdHVy01S1kzS1RfcVVfUjF6eEJIZllIMVpJUTdNTVM2Ui1ma2lxQWRUQVRsa3Y2bVNaR2swZUpjRVRtcnRNWEtYMTFUaVhyXzJ0Q19xQU0tZWdWQkRQeU9yT25CLVd4aTBRU0dob3gzV0VqVXo0YVVf?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
