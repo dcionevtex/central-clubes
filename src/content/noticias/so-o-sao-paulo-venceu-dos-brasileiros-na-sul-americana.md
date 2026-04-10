@@ -1,0 +1,13 @@
+---
+title: "Só o São Paulo venceu dos brasileiros na Sul-Americana"
+description: "Só o São Paulo venceu dos brasileiros na Sul-Americana  Portal Hortolândia"
+pubDate: "2026-04-10T12:19:09.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxPUzFhQjNWTjRHdzRGZDN3TmlfM25rNjBaVzFoRkxoUW9vM1p4UEM3c0U0cGdUT0dnVXprOFhVWkVSdmQ3SWZxdGdYb3FnVGR5ZS03dkdQUEpmZVowYmxENDJYcUIzLXRkRXJnMlJ5a1M4MW5ULUlVcF9tLUpIb0ZBU24zeklZSmfSAYcBQVVfeXFMT1MxYUIzVk40R3c0RmQzd05pXzNuazYwWlcxaEZMaFFvbzNaeFBDN3NFNHBnVE9HZ1V6azhYVVpFUnZkN0lmcXRnWG9xZ1RkeWUtN3ZHUFBKZmVaMGJsRDQyWHFCMy10ZEVyZzJSeWtTODFuVC1JVXBfbS1KSG9GQVNuM3pJWUpn?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxPUzFhQjNWTjRHdzRGZDN3TmlfM25rNjBaVzFoRkxoUW9vM1p4UEM3c0U0cGdUT0dnVXprOFhVWkVSdmQ3SWZxdGdYb3FnVGR5ZS03dkdQUEpmZVowYmxENDJYcUIzLXRkRXJnMlJ5a1M4MW5ULUlVcF9tLUpIb0ZBU24zeklZSmfSAYcBQVVfeXFMT1MxYUIzVk40R3c0RmQzd05pXzNuazYwWlcxaEZMaFFvbzNaeFBDN3NFNHBnVE9HZ1V6azhYVVpFUnZkN0lmcXRnWG9xZ1RkeWUtN3ZHUFBKZmVaMGJsRDQyWHFCMy10ZEVyZzJSeWtTODFuVC1JVXBfbS1KSG9GQVNuM3pJWUpn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
