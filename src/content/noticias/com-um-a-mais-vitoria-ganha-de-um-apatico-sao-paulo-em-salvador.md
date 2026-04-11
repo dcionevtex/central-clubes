@@ -1,0 +1,13 @@
+---
+title: "Com um a mais, Vitória ganha de um apático São Paulo em Salvador"
+description: "Com um a mais, Vitória ganha de um apático São Paulo em Salvador  ac24horas"
+pubDate: "2026-04-11T22:18:33.000Z"
+source: "ac24horas"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxQZTNaekdfX2h3aEhxaFVkWEc2RTF6Q01LQUh3Xy1ZMTh4ekdhUUdoYjhsMVgwOE9GVFViLU5PX3c5QWo1SUtiRFhncWlCVEdTV2VpMEFXMTVVZGN1MzFKYnRiRm5oSTJaOEl5RjVfY3Iyd2J3OUFNNWZTS1pBMk10ZUhqUWVzaDJlTElORHE2d0VlVjhZV1FNQVFmUFhNd9IBowFBVV95cUxPdkpVOTdkejByWHJUUVVudURkRXNTMEUyYlVhSHp2N001LTZ2QmlmaVhEWVAyQWFvUXJfbnBEZExJNDBBU3l2U3FoNUtpZVUwOUFuMUY4ZXJIS3dMUGVyS2lqRlJSRlctOHJYUVNBZDhuOUdGdnVYNm10Z2JFQ3RZMUVuRUpjNWtRbGtlTjlFWDZkbGZYOU5yUFB3MzhqeGIyeklj?oc=5"
+---
+
+### Fonte Original: ac24horas
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxQZTNaekdfX2h3aEhxaFVkWEc2RTF6Q01LQUh3Xy1ZMTh4ekdhUUdoYjhsMVgwOE9GVFViLU5PX3c5QWo1SUtiRFhncWlCVEdTV2VpMEFXMTVVZGN1MzFKYnRiRm5oSTJaOEl5RjVfY3Iyd2J3OUFNNWZTS1pBMk10ZUhqUWVzaDJlTElORHE2d0VlVjhZV1FNQVFmUFhNd9IBowFBVV95cUxPdkpVOTdkejByWHJUUVVudURkRXNTMEUyYlVhSHp2N001LTZ2QmlmaVhEWVAyQWFvUXJfbnBEZExJNDBBU3l2U3FoNUtpZVUwOUFuMUY4ZXJIS3dMUGVyS2lqRlJSRlctOHJYUVNBZDhuOUdGdnVYNm10Z2JFQ3RZMUVuRUpjNWtRbGtlTjlFWDZkbGZYOU5yUFB3MzhqeGIyeklj?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

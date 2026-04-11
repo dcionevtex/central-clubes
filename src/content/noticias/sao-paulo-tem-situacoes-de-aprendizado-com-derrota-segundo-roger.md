@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem situações de aprendizado com derrota, segundo Roger"
+description: "São Paulo tem situações de aprendizado com derrota, segundo Roger  Portal Hortolândia"
+pubDate: "2026-04-11T23:18:42.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxOektSMU9BLWRNaElGTTdzQ2tFeUVXMlVVa1JIVzZFam9JTTVuVHRWOWhLRmVRaWRsLW1seXhURkUzSGNNNDE2Y2RSVnEtdkw4ZXdieFhiTW03RDNsY1NPR1JtSU5BV3UzdzE0XzM1Y2REbjdDLWR5VmVOMmUwTHFEUGVLMjVuYTjSAYcBQVVfeXFMTnpLUjFPQS1kTWhJRk03c0NrRXlFVzJVVWtSSFc2RWpvSU01blR0VjloS0ZlUWlkbC1tbHl4VEZFM0hjTTQxNmNkUlZxLXZMOGV3YnhYYk1tN0QzbGNTT0dSbUlOQVd1M3cxNF8zNWNkRG43Qy1keVZlTjJlMExxRFBlSzI1bmE4?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxOektSMU9BLWRNaElGTTdzQ2tFeUVXMlVVa1JIVzZFam9JTTVuVHRWOWhLRmVRaWRsLW1seXhURkUzSGNNNDE2Y2RSVnEtdkw4ZXdieFhiTW03RDNsY1NPR1JtSU5BV3UzdzE0XzM1Y2REbjdDLWR5VmVOMmUwTHFEUGVLMjVuYTjSAYcBQVVfeXFMTnpLUjFPQS1kTWhJRk03c0NrRXlFVzJVVWtSSFc2RWpvSU01blR0VjloS0ZlUWlkbC1tbHl4VEZFM0hjTTQxNmNkUlZxLXZMOGV3YnhYYk1tN0QzbGNTT0dSbUlOQVd1M3cxNF8zNWNkRG43Qy1keVZlTjJlMExxRFBlSzI1bmE4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
