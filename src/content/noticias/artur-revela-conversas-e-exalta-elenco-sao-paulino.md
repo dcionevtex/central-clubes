@@ -1,0 +1,13 @@
+---
+title: "Artur revela conversas e exalta elenco são-paulino"
+description: "Artur revela conversas e exalta elenco são-paulino  Portal Hortolândia"
+pubDate: "2026-04-10T23:40:42.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE5Tb1VsYlhsaVBFZks5WFItT19PN3ZlbWpfd3I4d3lsWTR1QVc0amI1eVZCektrbzFTWmZIeUg2Yk05RDJRcXFjM01YeEVtVlE3NnNjZC1XRURMT0x1dzVpR2ZQRXJINHdGWGRUOGZzaXJpTU9UYzhSN1Fn0gF6QVVfeXFMTlNvVWxiWGxpUEVmSzlYUi1PX083dmVtal93cjh3eWxZNHVBVzRqYjV5VkJ6S2tvMVNaZkh5SDZiTTlEMlFxcWMzTVh4RW1WUTc2c2NkLVdFRExPTHV3NWlHZlBFckg0d0ZYZFQ4ZnNpcmlNT1RjOFI3UWc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE5Tb1VsYlhsaVBFZks5WFItT19PN3ZlbWpfd3I4d3lsWTR1QVc0amI1eVZCektrbzFTWmZIeUg2Yk05RDJRcXFjM01YeEVtVlE3NnNjZC1XRURMT0x1dzVpR2ZQRXJINHdGWGRUOGZzaXJpTU9UYzhSN1Fn0gF6QVVfeXFMTlNvVWxiWGxpUEVmSzlYUi1PX083dmVtal93cjh3eWxZNHVBVzRqYjV5VkJ6S2tvMVNaZkh5SDZiTTlEMlFxcWMzTVh4RW1WUTc2c2NkLVdFRExPTHV3NWlHZlBFckg0d0ZYZFQ4ZnNpcmlNT1RjOFI3UWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
