@@ -1,0 +1,13 @@
+---
+title: "São Paulo terá quatro mudanças para enfrentar o Vitória; veja a escalação"
+description: "São Paulo terá quatro mudanças para enfrentar o Vitória; veja a escalação  Gazeta Esportiva"
+pubDate: "2026-04-11T18:35:51.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxQdkdadjY0NVRwTW91RVBsd29HcmM0Ykd0ZGU3WGExQ2ZnZzY1cmFaTHhfWjBKRlRCOUw3ZlJGeTdpUGpYYTdTQnRVUXFfc1VrcUZnWnpvZW80bG5GYkF4VFE5YTB1WnZWVjB2RXRib3h4SFh2N0RqaVNtREFKRXAtUjg4ZlVOdGxTd2diOE5PWWZOdUlCZlNZcVQyRXlrR1VfSnfSAaIBQVVfeXFMUHZHWnY2NDVUcE1vdUVQbHdvR3JjNGJHdGRlN1hhMUNmZ2c2NXJhWkx4X1owSkZUQjlMN2ZSRnk3aVBqWGE3U0J0VVFxX3NVa3FGZ1p6b2VvNGxuRmJBeFRROWEwdVp2VlYwdkV0Ym94eEhYdjdEamlTbURBSkVwLVI4OGZVTnRsU3dnYjhOT1lmTnVJQmZTWXFUMkV5a0dVX0p3?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxQdkdadjY0NVRwTW91RVBsd29HcmM0Ykd0ZGU3WGExQ2ZnZzY1cmFaTHhfWjBKRlRCOUw3ZlJGeTdpUGpYYTdTQnRVUXFfc1VrcUZnWnpvZW80bG5GYkF4VFE5YTB1WnZWVjB2RXRib3h4SFh2N0RqaVNtREFKRXAtUjg4ZlVOdGxTd2diOE5PWWZOdUlCZlNZcVQyRXlrR1VfSnfSAaIBQVVfeXFMUHZHWnY2NDVUcE1vdUVQbHdvR3JjNGJHdGRlN1hhMUNmZ2c2NXJhWkx4X1owSkZUQjlMN2ZSRnk3aVBqWGE3U0J0VVFxX3NVa3FGZ1p6b2VvNGxuRmJBeFRROWEwdVp2VlYwdkV0Ym94eEhYdjdEamlTbURBSkVwLVI4OGZVTnRsU3dnYjhOT1lmTnVJQmZTWXFUMkV5a0dVX0p3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
