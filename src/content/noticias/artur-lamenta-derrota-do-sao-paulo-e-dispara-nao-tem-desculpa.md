@@ -1,0 +1,13 @@
+---
+title: "Artur lamenta derrota do São Paulo e dispara: “Não tem desculpa”"
+description: "Artur lamenta derrota do São Paulo e dispara: “Não tem desculpa”  Gazeta Esportiva"
+pubDate: "2026-04-11T21:41:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxPNVFZU2FrbjZ4STZnYkVkSnVQdzhLXzkwT2xxRlM5LWw2VVJTYWNjeGF3N3g5a285b1hUdVlzaHUtLWxvS1AwUGdSYWlyRElfV0JyWG9XZjFNbmpGMVQxT1dLTDB1akRoSndJSHNtWlZBWjVoZHotYTVCRTFDRDc3cnVoODFsdURCTzVfYnlUWXhVNTVXaGpNSWsyd1RGNWNQY1HSAacBQVVfeXFMUGtZY045em9LUjVSOXJ5R3NtVDBOMTRsTUhnVTZrMlhBUHNxX2c5VkZfZG9vSjRBWllSMmFKUGl0WEVURTJUb1F2OWNvWERMQzBxZUdHN1R0cTl4QmF5ZG5yLWhfNnZnNjlfTHVOM2FMTVRzZWdKMW5oWXF5cXlOZ0w5Z1A5WXVLdUxVdmJuWFlwMmVOY1ZVWVNkMWppanJvbTFLRERNQzQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxPNVFZU2FrbjZ4STZnYkVkSnVQdzhLXzkwT2xxRlM5LWw2VVJTYWNjeGF3N3g5a285b1hUdVlzaHUtLWxvS1AwUGdSYWlyRElfV0JyWG9XZjFNbmpGMVQxT1dLTDB1akRoSndJSHNtWlZBWjVoZHotYTVCRTFDRDc3cnVoODFsdURCTzVfYnlUWXhVNTVXaGpNSWsyd1RGNWNQY1HSAacBQVVfeXFMUGtZY045em9LUjVSOXJ5R3NtVDBOMTRsTUhnVTZrMlhBUHNxX2c5VkZfZG9vSjRBWllSMmFKUGl0WEVURTJUb1F2OWNvWERMQzBxZUdHN1R0cTl4QmF5ZG5yLWhfNnZnNjlfTHVOM2FMTVRzZWdKMW5oWXF5cXlOZ0w5Z1A5WXVLdUxVdmJuWFlwMmVOY1ZVWVNkMWppanJvbTFLRERNQzQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
