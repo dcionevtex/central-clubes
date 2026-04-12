@@ -1,0 +1,13 @@
+---
+title: "Roger lamenta derrota do São Paulo e vê equipe superior “em grande parte do jogo”"
+description: "Roger lamenta derrota do São Paulo e vê equipe superior “em grande parte do jogo”  Gazeta Esportiva"
+pubDate: "2026-04-11T23:07:29.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNZ1JSWlZpLWhPRU9CWVlUbUEzMUFBNHBzaGl1d1ZRTm11cExoUGlrenNEeDF4RWpTekI5cjJNQ2xyV0RCOW1vUncyRUo5c0ljWFBkbjRkRmJqeFJsTmRfUTFHenlieWJsY25Zd3N0OFJYTHdUOVhZR2FKTVVtSElmcTcwamhGTkpLT1ltNDh2SmdjS3h3RGt3TGlJemlEV1djODZGb1dKSjJrZ9IBqgFBVV95cUxNZ1JSWlZpLWhPRU9CWVlUbUEzMUFBNHBzaGl1d1ZRTm11cExoUGlrenNEeDF4RWpTekI5cjJNQ2xyV0RCOW1vUncyRUo5c0ljWFBkbjRkRmJqeFJsTmRfUTFHenlieWJsY25Zd3N0OFJYTHdUOVhZR2FKTVVtSElmcTcwamhGTkpLT1ltNDh2SmdjS3h3RGt3TGlJemlEV1djODZGb1dKSjJrZw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNZ1JSWlZpLWhPRU9CWVlUbUEzMUFBNHBzaGl1d1ZRTm11cExoUGlrenNEeDF4RWpTekI5cjJNQ2xyV0RCOW1vUncyRUo5c0ljWFBkbjRkRmJqeFJsTmRfUTFHenlieWJsY25Zd3N0OFJYTHdUOVhZR2FKTVVtSElmcTcwamhGTkpLT1ltNDh2SmdjS3h3RGt3TGlJemlEV1djODZGb1dKSjJrZ9IBqgFBVV95cUxNZ1JSWlZpLWhPRU9CWVlUbUEzMUFBNHBzaGl1d1ZRTm11cExoUGlrenNEeDF4RWpTekI5cjJNQ2xyV0RCOW1vUncyRUo5c0ljWFBkbjRkRmJqeFJsTmRfUTFHenlieWJsY25Zd3N0OFJYTHdUOVhZR2FKTVVtSElmcTcwamhGTkpLT1ltNDh2SmdjS3h3RGt3TGlJemlEV1djODZGb1dKSjJrZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
