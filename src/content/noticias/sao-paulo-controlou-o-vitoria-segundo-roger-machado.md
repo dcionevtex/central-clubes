@@ -1,0 +1,13 @@
+---
+title: "\"São Paulo controlou o Vitória\", segundo Roger Machado"
+description: "\"São Paulo controlou o Vitória\", segundo Roger Machado  ABCD Jornal"
+pubDate: "2026-04-11T23:37:43.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMirgFBVV95cUxPT0ZWeWJyZ2JvZXFkVkRHZ1U4ZUo3bHZ1dkctemFlS0ljZkYtNk5DaHhjUU50bGdpT05acGtsWFF1amtNWEZlbVB2RE91ZFB1YjVHR19BcjV1TjV0clUwVGo0OGdwQ2FTUVRxRHA3eTNUNmgySVhyZW1ETW1wTVo2UFQxamdRaXppU1R0eHFhdTlCRHh0YzZCdVpRVkJzbzk0Rjhqcl9EWFdneFVMOGfSAa4BQVVfeXFMT09GVnlicmdib2VxZFZER2dVOGVKN2x2dXZHLXphZUtJY2ZGLTZOQ2h4Y1FOdGxnaU9OWnBrbFhRdWprTVhGZW1QdkRPdWRQdWI1R0dfQXI1dU41dHJVMFRqNDhncENhU1FUcURwN3kzVDZoMklYcmVtRE1tcE1aNlBUMWpnUWl6aVNUdHhxYXU5QkR4dGM2QnVaUVZCc285NEY4anJfRFhXZ3hVTDhn?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgFBVV95cUxPT0ZWeWJyZ2JvZXFkVkRHZ1U4ZUo3bHZ1dkctemFlS0ljZkYtNk5DaHhjUU50bGdpT05acGtsWFF1amtNWEZlbVB2RE91ZFB1YjVHR19BcjV1TjV0clUwVGo0OGdwQ2FTUVRxRHA3eTNUNmgySVhyZW1ETW1wTVo2UFQxamdRaXppU1R0eHFhdTlCRHh0YzZCdVpRVkJzbzk0Rjhqcl9EWFdneFVMOGfSAa4BQVVfeXFMT09GVnlicmdib2VxZFZER2dVOGVKN2x2dXZHLXphZUtJY2ZGLTZOQ2h4Y1FOdGxnaU9OWnBrbFhRdWprTVhGZW1QdkRPdWRQdWI1R0dfQXI1dU41dHJVMFRqNDhncENhU1FUcURwN3kzVDZoMklYcmVtRE1tcE1aNlBUMWpnUWl6aVNUdHhxYXU5QkR4dGM2QnVaUVZCc285NEY4anJfRFhXZ3hVTDhn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
