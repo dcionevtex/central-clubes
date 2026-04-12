@@ -1,0 +1,13 @@
+---
+title: "Após derrota, São Paulo vê sequência ruim fora de casa pelo Brasileiro aumentar"
+description: "Após derrota, São Paulo vê sequência ruim fora de casa pelo Brasileiro aumentar  Gazeta Esportiva"
+pubDate: "2026-04-12T08:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxOQzF5U1BFOFlqZVRNRFRVdUFWa0RVNzAwRnBWcXRLaVpKQkNmSnpHT1pvanZ3RGdodWJrLXdlbjJuSlZMNno4UnM3Z0JmX3BzNy13TUxpNlBhYWJsT0pMdFdIVTZ1LWEwX3g2dUdNU3VSZ2xIb1c4NTY2cURhUEVVdG5LMkNWUXJVS2dpNl9XcnFZWG5JNlBUNGU1ODdoYVBs0gGmAUFVX3lxTE1yenNLUlo3MUZYUEJUWXlndHNLYjJlWnowMmlyMF9uaW1rei00SThmTXczTVBwUXZFTjlROFp1Yi1KYzlqNU12cE9hRF9mWGRObW1MRlNiQjJSZENvN3lwX3hQZHowMG5UZ25lZHp6dGwxRVV2UU5Ud3Fwdmpqdk9Gd3FsU05wYWpkVk1UY0J4T3UyQlRfWGsySkJmUzJYX2RRZWlwdGc?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxOQzF5U1BFOFlqZVRNRFRVdUFWa0RVNzAwRnBWcXRLaVpKQkNmSnpHT1pvanZ3RGdodWJrLXdlbjJuSlZMNno4UnM3Z0JmX3BzNy13TUxpNlBhYWJsT0pMdFdIVTZ1LWEwX3g2dUdNU3VSZ2xIb1c4NTY2cURhUEVVdG5LMkNWUXJVS2dpNl9XcnFZWG5JNlBUNGU1ODdoYVBs0gGmAUFVX3lxTE1yenNLUlo3MUZYUEJUWXlndHNLYjJlWnowMmlyMF9uaW1rei00SThmTXczTVBwUXZFTjlROFp1Yi1KYzlqNU12cE9hRF9mWGRObW1MRlNiQjJSZENvN3lwX3hQZHowMG5UZ25lZHp6dGwxRVV2UU5Ud3Fwdmpqdk9Gd3FsU05wYWpkVk1UY0J4T3UyQlRfWGsySkJmUzJYX2RRZWlwdGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
