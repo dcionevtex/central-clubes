@@ -1,0 +1,13 @@
+---
+title: "São Paulo treina após derrota e trio fica próximo de retorno"
+description: "São Paulo treina após derrota e trio fica próximo de retorno  Portal Hortolândia"
+pubDate: "2026-04-12T18:29:47.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTFBqYmpVVXV6ajJJa0xFLUVuX2ttRlphZkRTRHE0QmkweEFIa2F0UTh2VTdtT3FZc3BtUFVLd1ZweWhCbmtZZ1M1WHJKZnFHMzdhLU1wOHVGcXRNMHlXUnpTcnZxYmJYQlE5VWhmUl9icnF0Nnd5YXZvOHF2a1DSAXxBVV95cUxQamJqVVV1emoySWtMRS1Fbl9rbUZaYWZEU0RxNEJpMHhBSGthdFE4dlU3bU9xWXNwbVBVS3dWcHloQm5rWWdTNVhySmZxRzM3YS1NcDh1RnF0TTB5V1J6U3J2cWJiWEJROVVoZlJfYnJxdDZ3eWF2bzhxdmtQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTFBqYmpVVXV6ajJJa0xFLUVuX2ttRlphZkRTRHE0QmkweEFIa2F0UTh2VTdtT3FZc3BtUFVLd1ZweWhCbmtZZ1M1WHJKZnFHMzdhLU1wOHVGcXRNMHlXUnpTcnZxYmJYQlE5VWhmUl9icnF0Nnd5YXZvOHF2a1DSAXxBVV95cUxQamJqVVV1emoySWtMRS1Fbl9rbUZaYWZEU0RxNEJpMHhBSGthdFE4dlU3bU9xWXNwbVBVS3dWcHloQm5rWWdTNVhySmZxRzM3YS1NcDh1RnF0TTB5V1J6U3J2cWJiWEJROVVoZlJfYnJxdDZ3eWF2bzhxdmtQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
