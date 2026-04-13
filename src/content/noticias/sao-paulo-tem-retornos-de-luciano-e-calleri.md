@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem retornos de Luciano e Calleri"
+description: "São Paulo tem retornos de Luciano e Calleri  Portal Hortolândia"
+pubDate: "2026-04-13T20:07:50.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWZpNTRjRlJGeklIRy0tOXJaek90dkhtNm1GQnNaYk5qN0tvWGk4TFN3RDQ4cjJ1SERGOU1MR1FMLVFJNFlScTRNMVU1TmZnYkt4c1gtYllyYmJlN0Jya2JkOW15bHdqa1BlVDVMeno1aExmV2pqVGhoM3ltQ2VSUkRydHXSAYQBQVVfeXFMUDVmaTU0Y0ZSRnpJSEctLTlyWnpPdHZIbTZtRkJzWmJOajdLb1hpOExTd0Q0OHIydUhERjlNTEdRTC1RSTRZUnE0TTFVNU5mZ2JLeHNYLWJZcmJiZTdCcmtiZDlteWx3amtQZVQ1THp6NWhMZldqalRoaDN5bUNlUlJEcnR1?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxQNWZpNTRjRlJGeklIRy0tOXJaek90dkhtNm1GQnNaYk5qN0tvWGk4TFN3RDQ4cjJ1SERGOU1MR1FMLVFJNFlScTRNMVU1TmZnYkt4c1gtYllyYmJlN0Jya2JkOW15bHdqa1BlVDVMeno1aExmV2pqVGhoM3ltQ2VSUkRydHXSAYQBQVVfeXFMUDVmaTU0Y0ZSRnpJSEctLTlyWnpPdHZIbTZtRkJzWmJOajdLb1hpOExTd0Q0OHIydUhERjlNTEdRTC1RSTRZUnE0TTFVNU5mZ2JLeHNYLWJZcmJiZTdCcmtiZDlteWx3amtQZVQ1THp6NWhMZldqalRoaDN5bUNlUlJEcnR1?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
