@@ -1,0 +1,13 @@
+---
+title: "São Paulo lança novo uniforme; veja"
+description: "São Paulo lança novo uniforme; veja  Portal Hortolândia"
+pubDate: "2026-04-13T14:45:47.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxQMWZsODk0MzZDMjRucXQ2M2VBcERDZXlEc1RLVzlNcWJycU5RbDZJMm9RMlo3TjRRUDVGazNyRV9HVjk5Um1MWnVBRkgzNV9CMmR0Nm03SXQ2TXVhS1JJLW5vSGtuTW1GWFZfMXJ0RUR5YUlBOU5RMVM5Y2pYU2tIQUd30gGCAUFVX3lxTFAxZmw4OTQzNkMyNG5xdDYzZUFwRENleURzVEtXOU1xYnJxTlFsNkkyb1EyWjdONFFQNUZrM3JFX0dWOTlSbUxadUFGSDM1X0IyZHQ2bTdJdDZNdWFLUkktbm9Ia25NbUZYVl8xcnRFRHlhSUE5TlExUzljalhTa0hBR3c?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxQMWZsODk0MzZDMjRucXQ2M2VBcERDZXlEc1RLVzlNcWJycU5RbDZJMm9RMlo3TjRRUDVGazNyRV9HVjk5Um1MWnVBRkgzNV9CMmR0Nm03SXQ2TXVhS1JJLW5vSGtuTW1GWFZfMXJ0RUR5YUlBOU5RMVM5Y2pYU2tIQUd30gGCAUFVX3lxTFAxZmw4OTQzNkMyNG5xdDYzZUFwRENleURzVEtXOU1xYnJxTlFsNkkyb1EyWjdONFFQNUZrM3JFX0dWOTlSbUxadUFGSDM1X0IyZHQ2bTdJdDZNdWFLUkktbm9Ia25NbUZYVl8xcnRFRHlhSUE5TlExUzljalhTa0hBR3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
