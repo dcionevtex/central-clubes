@@ -1,0 +1,13 @@
+---
+title: "Vitória iguala feito de 24 anos após bater o São Paulo no Barradão"
+description: "Vitória iguala feito de 24 anos após bater o São Paulo no Barradão  A TARDE"
+pubDate: "2026-04-13T11:08:45.000Z"
+source: "A TARDE"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxOcE9Vajg5NE5wTlZOU1Vwc3VWRTI5MTBYSVBkam5JWXFobHJCRHY3MWtQWTVxN3c1a1JCQTdiRU9lQzFQV1RrTjFWcnVlcTIxOWdtRFQtLWgwUXR2UmtVc3RGOVdiLWc0ZGt3cEhxd2Q2amJycEh1RjZSVXhBNjBKVjlTUEhqQ09zcm5nZnNZQzFzbmxFbkN4TEk1bUdjZ0h0M2RYakYtQkjSAbABQVVfeXFMT0JCc0FnWjVHeXRQRkxlMW9uOG9aM1A3WERma0JEb2NXaGI3RU1mUGM5aXd6aFdhcDd0aUpFN1pROURBVmdVUWVDQTJPSTFVYkdocmxVZEQ4bVNiOFB4V2p1ZE0tdzAzNmxRMWNwNXM2TXdyZUNwc1kxLTJULXNOZVRQazFtdVJDNHk2SnlhMGYxS3hXczRjMVJ1WXFtOExvdUNmb1cyWXdUTzYyNVJlTkY?oc=5"
+---
+
+### Fonte Original: A TARDE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOcE9Vajg5NE5wTlZOU1Vwc3VWRTI5MTBYSVBkam5JWXFobHJCRHY3MWtQWTVxN3c1a1JCQTdiRU9lQzFQV1RrTjFWcnVlcTIxOWdtRFQtLWgwUXR2UmtVc3RGOVdiLWc0ZGt3cEhxd2Q2amJycEh1RjZSVXhBNjBKVjlTUEhqQ09zcm5nZnNZQzFzbmxFbkN4TEk1bUdjZ0h0M2RYakYtQkjSAbABQVVfeXFMT0JCc0FnWjVHeXRQRkxlMW9uOG9aM1A3WERma0JEb2NXaGI3RU1mUGM5aXd6aFdhcDd0aUpFN1pROURBVmdVUWVDQTJPSTFVYkdocmxVZEQ4bVNiOFB4V2p1ZE0tdzAzNmxRMWNwNXM2TXdyZUNwc1kxLTJULXNOZVRQazFtdVJDNHk2SnlhMGYxS3hXczRjMVJ1WXFtOExvdUNmb1cyWXdUTzYyNVJlTkY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
