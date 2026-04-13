@@ -1,0 +1,13 @@
+---
+title: "São Paulo vive dilema jurídico para rescindir contrato com Arboleda"
+description: "São Paulo vive dilema jurídico para rescindir contrato com Arboleda  Terra"
+pubDate: "2026-04-13T14:36:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi7gFBVV95cUxPeDJUcU9jWXRWVTZhWmhNR3N4Q1JYWkk1MXpyMzFkaHJBUk5IN3luQmRhWTVGWFllZF9ycGN0N2hCcC1yRDhVZzc3UTAzSXVVSHNaQUxXYmRvU0NOVWpvbTlPYkxOc2YyWDZTT2pVeENZeWJTaVJmd2lGWkdES1N1S0NBU1JDSXhoQkRkMnRQQ3JiNXZZNWRKQ3dvZGtSTUlBRGpMR3hialY0UFdSaVpYOUQ3eERQZU5DTUUwc1FteWNadE9pZ1c0bXhMdHRwRi13RC1OeTVWTWFRcU5ZclNhUG1ZZXdfRVUxa09pUHdn?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi7gFBVV95cUxPeDJUcU9jWXRWVTZhWmhNR3N4Q1JYWkk1MXpyMzFkaHJBUk5IN3luQmRhWTVGWFllZF9ycGN0N2hCcC1yRDhVZzc3UTAzSXVVSHNaQUxXYmRvU0NOVWpvbTlPYkxOc2YyWDZTT2pVeENZeWJTaVJmd2lGWkdES1N1S0NBU1JDSXhoQkRkMnRQQ3JiNXZZNWRKQ3dvZGtSTUlBRGpMR3hialY0UFdSaVpYOUQ3eERQZU5DTUUwc1FteWNadE9pZ1c0bXhMdHRwRi13RC1OeTVWTWFRcU5ZclNhUG1ZZXdfRVUxa09pUHdn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

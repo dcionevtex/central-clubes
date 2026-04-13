@@ -1,0 +1,13 @@
+---
+title: "São Paulo lança novo segundo uniforme para sequência da temporada; confira"
+description: "São Paulo lança novo segundo uniforme para sequência da temporada; confira  Gazeta Esportiva"
+pubDate: "2026-04-13T13:35:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxPVFJIUWI2d2I1bnlnS2hvTHhmcUM4YWM5RzJRelYycG54c29BOUtUQnVJblhLeDVremt6REhTNGJsVm9keXRrUTRLZThCMk9lb3ZXa2o4R3k0ellidUxtZU9wUzQ3OTFOLU9NclVUbzluXzRhSUdvd1BnRm1Tb25uNF8tTGkzYm_SAYwBQVVfeXFMT05YaEhZYnZHbnFSS2xLWVZLNV9KbTllRmQxNGhIWU1yUW5UUEE2cGkxellhUDE1Yy14Zmo5cndCbGwzRlp6X1V4TXV3elpxUU43SE9odzhIekZqS1oyaUpqazhsMEo5TkkxSEJQSW4xQVFIZEw4Z1pJZVZXc0xPdklZS2RoXzFGdlptQ0c?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVFJIUWI2d2I1bnlnS2hvTHhmcUM4YWM5RzJRelYycG54c29BOUtUQnVJblhLeDVremt6REhTNGJsVm9keXRrUTRLZThCMk9lb3ZXa2o4R3k0ellidUxtZU9wUzQ3OTFOLU9NclVUbzluXzRhSUdvd1BnRm1Tb25uNF8tTGkzYm_SAYwBQVVfeXFMT05YaEhZYnZHbnFSS2xLWVZLNV9KbTllRmQxNGhIWU1yUW5UUEE2cGkxellhUDE1Yy14Zmo5cndCbGwzRlp6X1V4TXV3elpxUU43SE9odzhIekZqS1oyaUpqazhsMEo5TkkxSEJQSW4xQVFIZEw4Z1pJZVZXc0xPdklZS2RoXzFGdlptQ0c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
