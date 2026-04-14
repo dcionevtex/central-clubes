@@ -1,0 +1,13 @@
+---
+title: "São Paulo x O’higgins: Onde assistir à Copa Sul-Americana?"
+description: "São Paulo x O’higgins: Onde assistir à Copa Sul-Americana?  InfoMoney"
+pubDate: "2026-04-14T20:00:00.000Z"
+source: "InfoMoney"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ0hLcnpnYVFVWm1XY2gweUd5dE9JdEJIYlB1SU9GOVl5dUQ1VDhtTk5RWW0za1RZNFktbkhzSF9LTUFjM2x6VFFmMmVLM3NFekpJTjFHNXdaeGdpa25Wc2FNQ3g3SW5KeDZrQnBNbWxxbm9vaFM5Yk90Y0RGY3AtbjA0aF8zZTJjaDdUNlhmd9IBlAFBVV95cUxNMEl2aFNRR0tCZDRjNks4c0d6OEJoT1hKdFh0RXA2Wk53ZzFhRDFkTVRDWVNGZWVmd3RreE5Mcmx0RUJKSGRNaTVCNXk1VVVpVEtoRlFuRlRaZ1hpblctMFRWTVBPTkVFdEY2Q1ZxUWZNcVd6RWJRZlk0X1ViV1JQVUY4N1N2bW5yeXZNSnNIaXhteUhQ?oc=5"
+---
+
+### Fonte Original: InfoMoney
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxQZ0hLcnpnYVFVWm1XY2gweUd5dE9JdEJIYlB1SU9GOVl5dUQ1VDhtTk5RWW0za1RZNFktbkhzSF9LTUFjM2x6VFFmMmVLM3NFekpJTjFHNXdaeGdpa25Wc2FNQ3g3SW5KeDZrQnBNbWxxbm9vaFM5Yk90Y0RGY3AtbjA0aF8zZTJjaDdUNlhmd9IBlAFBVV95cUxNMEl2aFNRR0tCZDRjNks4c0d6OEJoT1hKdFh0RXA2Wk53ZzFhRDFkTVRDWVNGZWVmd3RreE5Mcmx0RUJKSGRNaTVCNXk1VVVpVEtoRlFuRlRaZ1hpblctMFRWTVBPTkVFdEY2Q1ZxUWZNcVd6RWJRZlk0X1ViV1JQVUY4N1N2bW5yeXZNSnNIaXhteUhQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Notícias Ao Vivo do Brasil e do Mundo"
+description: "Notícias Ao Vivo do Brasil e do Mundo  CNN Brasil"
+pubDate: "2026-04-14T10:36:49.000Z"
+source: "CNN Brasil"
+link: "https://news.google.com/rss/articles/CBMijAJBVV95cUxNeWtON09hNEd0TGZVbnkzakx0eFNBR0ZaOExpdFNtU3AzR2VCV0VmeHJBNmhZVFNuVWI0bEJmVzJoUXd5eGM2Q3BqeTQyU2twcURYWndRR2E3SC1VWGlpWm5xYVVHM3FkVVdxcnZzUXYwc3Y5QXVUZlhWV3ppX2NZMExKSzFEM2dBR2ZyOWZEbmozV2xfMUtsbG5ZV1JRcnUzTUV4NDZQUGFZYzl6SHlEeU0yV3JybTE1UXhPQTRRbTRrWS1jbkxLSk5DQWphNGpFLUNnb2JRcEpJYUpzSmVwQkVJNXNwbUJfd3ZwZjFrZmNEdFJUU0tvblpxNzR0ZHhBMHJIUVFCZ1VvU3M5?oc=5"
+---
+
+### Fonte Original: CNN Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAJBVV95cUxNeWtON09hNEd0TGZVbnkzakx0eFNBR0ZaOExpdFNtU3AzR2VCV0VmeHJBNmhZVFNuVWI0bEJmVzJoUXd5eGM2Q3BqeTQyU2twcURYWndRR2E3SC1VWGlpWm5xYVVHM3FkVVdxcnZzUXYwc3Y5QXVUZlhWV3ppX2NZMExKSzFEM2dBR2ZyOWZEbmozV2xfMUtsbG5ZV1JRcnUzTUV4NDZQUGFZYzl6SHlEeU0yV3JybTE1UXhPQTRRbTRrWS1jbkxLSk5DQWphNGpFLUNnb2JRcEpJYUpzSmVwQkVJNXNwbUJfd3ZwZjFrZmNEdFJUU0tvblpxNzR0ZHhBMHJIUVFCZ1VvU3M5?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
