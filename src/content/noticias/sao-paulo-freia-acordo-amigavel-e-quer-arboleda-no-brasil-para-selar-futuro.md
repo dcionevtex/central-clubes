@@ -1,0 +1,13 @@
+---
+title: "São Paulo freia acordo amigável e quer Arboleda no Brasil para selar futuro"
+description: "São Paulo freia acordo amigável e quer Arboleda no Brasil para selar futuro  UOL"
+pubDate: "2026-04-14T08:34:36.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMivgJBVV95cUxQYjVJOHV3RVpsREt0bGx6MWxwU0poWDd0YlRIMkxRclpLQ2lNdGtaLVJ5ODhoR3U0WGgyWTNtb2pNZ0JUakVISzJtU1VHLWJsVHJBLXVCTWlZWktrdmZiNE83am5MWjVTRXEwdV9DMW5nNnNlai1MTEpHdXM0em5Ya2k4NU10WnNPN0NxTGFwQ0tURmJSWVVKcHV4bnZRaUlkSnBHYW9GcFY3b2poUWo1ZlpsYUhJVUNVSHgwZFJyZmsweVdZd0R1VDRKaWhrQjIxM2RZVjlsN0c1Tnl1SU54c2w3SW5BWHpHT3JxWWF5dndDVW5Uc01oTk9iNTk3WGVOVU5oU2M1QnBiV2JMdkI3RjdjbGtpclZHUTZ3YmdJMGlKRWVyTmEwZHdmVU5ycDBZdlJUWkd0M1NYSDhhb0E?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMivgJBVV95cUxQYjVJOHV3RVpsREt0bGx6MWxwU0poWDd0YlRIMkxRclpLQ2lNdGtaLVJ5ODhoR3U0WGgyWTNtb2pNZ0JUakVISzJtU1VHLWJsVHJBLXVCTWlZWktrdmZiNE83am5MWjVTRXEwdV9DMW5nNnNlai1MTEpHdXM0em5Ya2k4NU10WnNPN0NxTGFwQ0tURmJSWVVKcHV4bnZRaUlkSnBHYW9GcFY3b2poUWo1ZlpsYUhJVUNVSHgwZFJyZmsweVdZd0R1VDRKaWhrQjIxM2RZVjlsN0c1Tnl1SU54c2w3SW5BWHpHT3JxWWF5dndDVW5Uc01oTk9iNTk3WGVOVU5oU2M1QnBiV2JMdkI3RjdjbGtpclZHUTZ3YmdJMGlKRWVyTmEwZHdmVU5ycDBZdlJUWkd0M1NYSDhhb0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
