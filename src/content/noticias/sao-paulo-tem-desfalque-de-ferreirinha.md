@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem desfalque de Ferreirinha"
+description: "São Paulo tem desfalque de Ferreirinha  Portal Hortolândia"
+pubDate: "2026-04-14T21:40:14.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQWS04a0xKeGQ2VXdXamlTSzlxZWF3MEo0bVQwRzRNR0EyWHNRRFNhcGFFckRiNmh4ZUZneXlFN0tTVWhOamJra1MtV21IQUVXMG4tRjRBTU9EVmJxNjFTbnQ3UmZaRkZHWWJwZkM3dE5UeW5TYjZHV00xc05nWEJ5cjZCTdIBgwFBVV95cUxQWS04a0xKeGQ2VXdXamlTSzlxZWF3MEo0bVQwRzRNR0EyWHNRRFNhcGFFckRiNmh4ZUZneXlFN0tTVWhOamJra1MtV21IQUVXMG4tRjRBTU9EVmJxNjFTbnQ3UmZaRkZHWWJwZkM3dE5UeW5TYjZHV00xc05nWEJ5cjZCTQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQWS04a0xKeGQ2VXdXamlTSzlxZWF3MEo0bVQwRzRNR0EyWHNRRFNhcGFFckRiNmh4ZUZneXlFN0tTVWhOamJra1MtV21IQUVXMG4tRjRBTU9EVmJxNjFTbnQ3UmZaRkZHWWJwZkM3dE5UeW5TYjZHV00xc05nWEJ5cjZCTdIBgwFBVV95cUxQWS04a0xKeGQ2VXdXamlTSzlxZWF3MEo0bVQwRzRNR0EyWHNRRFNhcGFFckRiNmh4ZUZneXlFN0tTVWhOamJra1MtV21IQUVXMG4tRjRBTU9EVmJxNjFTbnQ3UmZaRkZHWWJwZkM3dE5UeW5TYjZHV00xc05nWEJ5cjZCTQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
