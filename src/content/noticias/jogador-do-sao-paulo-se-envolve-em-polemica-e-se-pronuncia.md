@@ -1,0 +1,13 @@
+---
+title: "Jogador do São Paulo se envolve em polêmica e se pronuncia"
+description: "Jogador do São Paulo se envolve em polêmica e se pronuncia  Portal Hortolândia"
+pubDate: "2026-04-14T16:41:04.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxNek8yNVJXdzRWbnJ2bkNiZ09ZOGFzdE5Nb3FLbkctaElkZlhoZklxUl8xaW1EaHBFZTFhbFNSVlFCcktqZ01vVnlrbm5yNWt3NWpaZkFpVnNTSWh3bmRNc2JGVmJOcm5mbzh0eW1XVnB3bTc2bzVpV3ROQzF3SnhVUDRZNWfSAYQBQVVfeXFMTXpPMjVSV3c0Vm5ydm5DYmdPWThhc3ROTW9xS25HLWhJZGZYaGZJcVJfMWltRGhwRWUxYWxTUlZRQnJLamdNb1Z5a25ucjVrdzVqWmZBaVZzU0lod25kTXNiRlZiTnJuZm84dHltV1Zwd203Nm81aVd0TkMxd0p4VVA0WTVn?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxNek8yNVJXdzRWbnJ2bkNiZ09ZOGFzdE5Nb3FLbkctaElkZlhoZklxUl8xaW1EaHBFZTFhbFNSVlFCcktqZ01vVnlrbm5yNWt3NWpaZkFpVnNTSWh3bmRNc2JGVmJOcm5mbzh0eW1XVnB3bTc2bzVpV3ROQzF3SnhVUDRZNWfSAYQBQVVfeXFMTXpPMjVSV3c0Vm5ydm5DYmdPWThhc3ROTW9xS25HLWhJZGZYaGZJcVJfMWltRGhwRWUxYWxTUlZRQnJLamdNb1Z5a25ucjVrdzVqWmZBaVZzU0lod25kTXNiRlZiTnJuZm84dHltV1Zwd203Nm81aVd0TkMxd0p4VVA0WTVn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

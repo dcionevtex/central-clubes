@@ -1,0 +1,13 @@
+---
+title: "Vasco x São Paulo: Cruzmaltino poupa antes de pegar o Tricolor"
+description: "Vasco x São Paulo: Cruzmaltino poupa antes de pegar o Tricolor  Portal Hortolândia"
+pubDate: "2026-04-14T15:30:14.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE9CbkVOQnRHSDZDVnVPV0tNMXdPc2EtOEZtNm83OVRFVGtZZy00bFVJZ1dEX3dOOWtNY21ndXRDUlBwM0F3UGFRdVZlVE5mQUZRaHVhb3duQWdxRURhanRhSk9zRTlVTlRkdE8wZ2Z6Y29NRzVSMHJUMmN3U1B0Z9IBfkFVX3lxTE9CbkVOQnRHSDZDVnVPV0tNMXdPc2EtOEZtNm83OVRFVGtZZy00bFVJZ1dEX3dOOWtNY21ndXRDUlBwM0F3UGFRdVZlVE5mQUZRaHVhb3duQWdxRURhanRhSk9zRTlVTlRkdE8wZ2Z6Y29NRzVSMHJUMmN3U1B0Zw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE9CbkVOQnRHSDZDVnVPV0tNMXdPc2EtOEZtNm83OVRFVGtZZy00bFVJZ1dEX3dOOWtNY21ndXRDUlBwM0F3UGFRdVZlVE5mQUZRaHVhb3duQWdxRURhanRhSk9zRTlVTlRkdE8wZ2Z6Y29NRzVSMHJUMmN3U1B0Z9IBfkFVX3lxTE9CbkVOQnRHSDZDVnVPV0tNMXdPc2EtOEZtNm83OVRFVGtZZy00bFVJZ1dEX3dOOWtNY21ndXRDUlBwM0F3UGFRdVZlVE5mQUZRaHVhb3duQWdxRURhanRhSk9zRTlVTlRkdE8wZ2Z6Y29NRzVSMHJUMmN3U1B0Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

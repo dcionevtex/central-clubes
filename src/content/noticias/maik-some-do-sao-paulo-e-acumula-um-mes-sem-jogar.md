@@ -1,0 +1,13 @@
+---
+title: "Maik \"some\" do São Paulo e acumula um mês sem jogar"
+description: "Maik \"some\" do São Paulo e acumula um mês sem jogar  ABCD Jornal"
+pubDate: "2026-04-14T13:56:09.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxQSGlVQTJfcTI4Y1M3R1RUWjF2Y3FJdEl1V0xiRHVQN21nN0JuUFd6ZlI5Tm1abTc0TGpVeWlSVUtPNjczWGhWajJ3YVpSNWgybFloSk9fSmJPWE52QnI4amR3UE1GbUhfNDlWWndoLTFhLTZjQ1JNWlhWZ3RZZ183N2R5VFhRNjVVTnFGTmJjOWI3OUR6a29FdjVGRWczenJtM1ViQ2luN0RKbFnSAasBQVVfeXFMUEhpVUEyX3EyOGNTN0dUVFoxdmNxSXRJdVdMYkR1UDdtZzdCblBXemZSOU5tWm03NExqVXlpUlVLTzY3M1hoVmoyd2FaUjVoMmxZaEpPX0piT1hOdkJyOGpkd1BNRm1IXzQ5Vlp3aC0xYS02Y0NSTVpYVmd0WWdfNzdkeVRYUTY1VU5xRk5iYzliNzlEemtvRXY1RkVnM3pybTNVYkNpbjdESmxZ?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQSGlVQTJfcTI4Y1M3R1RUWjF2Y3FJdEl1V0xiRHVQN21nN0JuUFd6ZlI5Tm1abTc0TGpVeWlSVUtPNjczWGhWajJ3YVpSNWgybFloSk9fSmJPWE52QnI4amR3UE1GbUhfNDlWWndoLTFhLTZjQ1JNWlhWZ3RZZ183N2R5VFhRNjVVTnFGTmJjOWI3OUR6a29FdjVGRWczenJtM1ViQ2luN0RKbFnSAasBQVVfeXFMUEhpVUEyX3EyOGNTN0dUVFoxdmNxSXRJdVdMYkR1UDdtZzdCblBXemZSOU5tWm03NExqVXlpUlVLTzY3M1hoVmoyd2FaUjVoMmxZaEpPX0piT1hOdkJyOGpkd1BNRm1IXzQ5Vlp3aC0xYS02Y0NSTVpYVmd0WWdfNzdkeVRYUTY1VU5xRk5iYzliNzlEemtvRXY1RkVnM3pybTNVYkNpbjdESmxZ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
