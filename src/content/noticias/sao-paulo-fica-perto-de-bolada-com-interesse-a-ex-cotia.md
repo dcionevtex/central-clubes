@@ -1,0 +1,13 @@
+---
+title: "São Paulo fica perto de bolada com interesse a ex-Cotia"
+description: "São Paulo fica perto de bolada com interesse a ex-Cotia  Portal Hortolândia"
+pubDate: "2026-04-14T21:02:48.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxNWnpVQ3k5V1JMM25IN2FPUVg0ejdGTGNjeFJseHhTZnZoSWtLOVp4OHczNjJpVHhWWFV1TEFsNnlPZnd0ZHdQTGtqMG9jYWZfUFE4ZU1BOGh1bDFacUNBckFXcVZTbEFsMDEwQS0wNWJUQ3VfdWRiaXBsSVNUQ0VpZTYxWkbSAYQBQVVfeXFMTVp6VUN5OVdSTDNuSDdhT1FYNHo3RkxjY3hSbHh4U2Z2aElrSzlaeDh3MzYyaVR4VlhVdUxBbDZ5T2Z3dGR3UExrajBvY2FmX1BROGVNQThodWwxWnFDQXJBV3FWU2xBbDAxMEEtMDViVEN1X3VkYmlwbElTVENFaWU2MVpG?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxNWnpVQ3k5V1JMM25IN2FPUVg0ejdGTGNjeFJseHhTZnZoSWtLOVp4OHczNjJpVHhWWFV1TEFsNnlPZnd0ZHdQTGtqMG9jYWZfUFE4ZU1BOGh1bDFacUNBckFXcVZTbEFsMDEwQS0wNWJUQ3VfdWRiaXBsSVNUQ0VpZTYxWkbSAYQBQVVfeXFMTVp6VUN5OVdSTDNuSDdhT1FYNHo3RkxjY3hSbHh4U2Z2aElrSzlaeDh3MzYyaVR4VlhVdUxBbDZ5T2Z3dGR3UExrajBvY2FmX1BROGVNQThodWwxWnFDQXJBV3FWU2xBbDAxMEEtMDViVEN1X3VkYmlwbElTVENFaWU2MVpG?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
