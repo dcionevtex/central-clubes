@@ -1,0 +1,13 @@
+---
+title: "Cadê? Maik perde espaço no São Paulo"
+description: "Cadê? Maik perde espaço no São Paulo  Portal Hortolândia"
+pubDate: "2026-04-14T13:37:28.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE05YmtMQUVadlRuR0lJV2dfMjdxd01CLXZUYXZyT0tkZzg0WlNlWWxfTWItTEpHMk9CYldPeFEwTFA3ZHN2NFRPN0NJM1hrNHlJbDNkczc3YzNoVDNkU1pWVjZHNkstM0tfdGp2RFMyOS0tTEFuRnZVTDZRWWPSAXxBVV95cUxNOWJrTEFFWnZUbkdJSVdnXzI3cXdNQi12VGF2ck9LZGc4NFpTZVlsX01iLUxKRzJPQmJXT3hRMExQN2RzdjRUTzdDSTNYazR5SWwzZHM3N2MzaFQzZFNaVlY2RzZLLTNLX3RqdkRTMjktLUxBbkZ2VUw2UVlj?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE05YmtMQUVadlRuR0lJV2dfMjdxd01CLXZUYXZyT0tkZzg0WlNlWWxfTWItTEpHMk9CYldPeFEwTFA3ZHN2NFRPN0NJM1hrNHlJbDNkczc3YzNoVDNkU1pWVjZHNkstM0tfdGp2RFMyOS0tTEFuRnZVTDZRWWPSAXxBVV95cUxNOWJrTEFFWnZUbkdJSVdnXzI3cXdNQi12VGF2ck9LZGc4NFpTZVlsX01iLUxKRzJPQmJXT3hRMExQN2RzdjRUTzdDSTNYazR5SWwzZHM3N2MzaFQzZFNaVlY2RzZLLTNLX3RqdkRTMjktLUxBbkZ2VUw2UVlj?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

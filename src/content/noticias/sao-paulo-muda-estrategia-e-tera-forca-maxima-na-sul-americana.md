@@ -1,0 +1,13 @@
+---
+title: "São Paulo muda estratégia e terá força máxima na Sul-Americana"
+description: "São Paulo muda estratégia e terá força máxima na Sul-Americana  jogada10.com.br"
+pubDate: "2026-04-14T13:58:53.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMikAFBVV95cUxNVzY4dFV4UEdPRExodmJHMFpFMFNnUVdidkxUc0RnelFRZWtUYUpBNGVxdk9MRDhoYl9WQ2ZZbjNZUDZHWWtYdEpkYmpmdi1kV29CX1pzYU9IWUZGZGFUN011UFBjT0FBZVZSLUlKNHc5ZWktZWZUYXFZclo0eHMtZXZxTVUxNl9YMF9GM244Ri3SAZYBQVVfeXFMT3RMRGpPOFNORHRBYjM1b2ZiLVducWdQZTNMeE05aXNPYlhlWVVTN1FsaElHZW83MHdkZjZBLUlzaW50b0xGV211SVpVS01RcDVWeGNfUzZsRlhfcVZOckl2YlYwYk9vYXZyNHB0U211S1hhMEVETG1oeVFmQjRYZlFHbGttekpFeHRmWTR0QWRMcGdNTzNR?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAFBVV95cUxNVzY4dFV4UEdPRExodmJHMFpFMFNnUVdidkxUc0RnelFRZWtUYUpBNGVxdk9MRDhoYl9WQ2ZZbjNZUDZHWWtYdEpkYmpmdi1kV29CX1pzYU9IWUZGZGFUN011UFBjT0FBZVZSLUlKNHc5ZWktZWZUYXFZclo0eHMtZXZxTVUxNl9YMF9GM244Ri3SAZYBQVVfeXFMT3RMRGpPOFNORHRBYjM1b2ZiLVducWdQZTNMeE05aXNPYlhlWVVTN1FsaElHZW83MHdkZjZBLUlzaW50b0xGV211SVpVS01RcDVWeGNfUzZsRlhfcVZOckl2YlYwYk9vYXZyNHB0U211S1hhMEVETG1oeVFmQjRYZlFHbGttekpFeHRmWTR0QWRMcGdNTzNR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
