@@ -1,0 +1,13 @@
+---
+title: "São Paulo x O'Higgins: Como assistir ao vivo e horário"
+description: "São Paulo x O'Higgins: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-04-14T10:31:07.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxQbG1ZcDRHMG9jUXJJdWtjRnRSUkZRLUZkSEVrNEtjUm5va2VwcXdMX1FLTHJkRW1tUzB3TWJ0MkZVVHVSdHdxLWp1em43d04wT19wLWVVeHRIbmcyQ25vVGlZaGVHTC1Ca1NGUXRPeG5xWVVyTDNreDJhS3ptd0NrLXJR0gGCAUFVX3lxTFBsbVlwNEcwb2NRckl1a2NGdFJSRlEtRmRIRWs0S2NSbm9rZXBxd0xfUUtMcmRFbW1TMHdNYnQyRlVUdVJ0d3EtanV6bjd3TjBPX3AtZVV4dEhuZzJDbm9UaVloZUdMLUJrU0ZRdE94bnFZVXJMM2t4MmFLem13Q2stclE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxQbG1ZcDRHMG9jUXJJdWtjRnRSUkZRLUZkSEVrNEtjUm5va2VwcXdMX1FLTHJkRW1tUzB3TWJ0MkZVVHVSdHdxLWp1em43d04wT19wLWVVeHRIbmcyQ25vVGlZaGVHTC1Ca1NGUXRPeG5xWVVyTDNreDJhS3ptd0NrLXJR0gGCAUFVX3lxTFBsbVlwNEcwb2NRckl1a2NGdFJSRlEtRmRIRWs0S2NSbm9rZXBxd0xfUUtMcmRFbW1TMHdNYnQyRlVUdVJ0d3EtanV6bjd3TjBPX3AtZVV4dEhuZzJDbm9UaVloZUdMLUJrU0ZRdE94bnFZVXJMM2t4MmFLem13Q2stclE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo não perde para times chilenos desde 2008"
+description: "São Paulo não perde para times chilenos desde 2008  Portal Hortolândia"
+pubDate: "2026-04-14T11:37:56.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxOX0VMZmpXZVJSaC1JV0RNWENNZHUxVmlYT3NjeXNZSE1wTGJ1c25YNHhfa09Gdno3N0p0SkhiZWt3YWpFLTdLeWxmS3N4MDlpWnlGR2Q1b25faWZHam51aHVFSnk2UXU1TFlwZmRNbExoQm52ZTlMWDhNNFByeW5BVm9yNNIBgwFBVV95cUxOX0VMZmpXZVJSaC1JV0RNWENNZHUxVmlYT3NjeXNZSE1wTGJ1c25YNHhfa09Gdno3N0p0SkhiZWt3YWpFLTdLeWxmS3N4MDlpWnlGR2Q1b25faWZHam51aHVFSnk2UXU1TFlwZmRNbExoQm52ZTlMWDhNNFByeW5BVm9yNA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxOX0VMZmpXZVJSaC1JV0RNWENNZHUxVmlYT3NjeXNZSE1wTGJ1c25YNHhfa09Gdno3N0p0SkhiZWt3YWpFLTdLeWxmS3N4MDlpWnlGR2Q1b25faWZHam51aHVFSnk2UXU1TFlwZmRNbExoQm52ZTlMWDhNNFByeW5BVm9yNNIBgwFBVV95cUxOX0VMZmpXZVJSaC1JV0RNWENNZHUxVmlYT3NjeXNZSE1wTGJ1c25YNHhfa09Gdno3N0p0SkhiZWt3YWpFLTdLeWxmS3N4MDlpWnlGR2Q1b25faWZHam51aHVFSnk2UXU1TFlwZmRNbExoQm52ZTlMWDhNNFByeW5BVm9yNA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
