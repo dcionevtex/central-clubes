@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde Marcos Antônio por lesão"
+description: "São Paulo perde Marcos Antônio por lesão  Portal Hortolândia"
+pubDate: "2026-04-14T22:53:12.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQSm9iOXVCWjgwREEzQldwRzR5elNVS2JlYndsT0pqWGg2OE9KbU0zUmJkWEJBM00yclZJdU11NFZvZ3JjRTBmNDNqdnc3LWVBXy1Qc01MLWtFX3d0c2FPV04wRHBYenlXeUZvLXJOckFxS25qNE8tSWpsY2dfV3JRbtIBgAFBVV95cUxQSm9iOXVCWjgwREEzQldwRzR5elNVS2JlYndsT0pqWGg2OE9KbU0zUmJkWEJBM00yclZJdU11NFZvZ3JjRTBmNDNqdnc3LWVBXy1Qc01MLWtFX3d0c2FPV04wRHBYenlXeUZvLXJOckFxS25qNE8tSWpsY2dfV3JRbg?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQSm9iOXVCWjgwREEzQldwRzR5elNVS2JlYndsT0pqWGg2OE9KbU0zUmJkWEJBM00yclZJdU11NFZvZ3JjRTBmNDNqdnc3LWVBXy1Qc01MLWtFX3d0c2FPV04wRHBYenlXeUZvLXJOckFxS25qNE8tSWpsY2dfV3JRbtIBgAFBVV95cUxQSm9iOXVCWjgwREEzQldwRzR5elNVS2JlYndsT0pqWGg2OE9KbU0zUmJkWEJBM00yclZJdU11NFZvZ3JjRTBmNDNqdnc3LWVBXy1Qc01MLWtFX3d0c2FPV04wRHBYenlXeUZvLXJOckFxS25qNE8tSWpsY2dfV3JRbg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
