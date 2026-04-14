@@ -1,0 +1,13 @@
+---
+title: "Escalação do São Paulo: Calleri e Luciano estão à disposição para jogo da Sul-Americana"
+description: "Escalação do São Paulo: Calleri e Luciano estão à disposição para jogo da Sul-Americana  Bolavip Brasil"
+pubDate: "2026-04-13T23:10:27.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxPYmlsYk03ZnZoejZnbFNjelNGei1Zb3hOQ19ic2FBcC0yYkxJOS0yZzduamlDa1ZvVjA2ZjZMTlR6VnlmSlpzNExPMllBVjB5Y0NHTGIzTy13b1BYRGhwbU1vUktJdWNRZHpScGhIRHpuRjJXYzdiLUhydkdPdWFLUnMwMEk1QTdSZzZMQXM1cS1jR3pBZU1GalFWTXhBWlXSAaQBQVVfeXFMTUJoczY2Q0xnNkJrbUM4RGh2eFpDN21CY0VoeEZBbUZGeFRXX3hjN1ZHQUtfOGVzWXFhQlYwSkJtU2dJTW9zaFc4TE0ySU1UbGhOaktPR2V3U2Q0OEY0ZUJSSVo5dzE3RGNWaVVOVkRKV0EtOUFiRGpYdDNqV1MzVVNaVUV0T0k5ZWtWSXpuc3lXN3hOSjlENno2RkFtampuMXpGb3A?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxPYmlsYk03ZnZoejZnbFNjelNGei1Zb3hOQ19ic2FBcC0yYkxJOS0yZzduamlDa1ZvVjA2ZjZMTlR6VnlmSlpzNExPMllBVjB5Y0NHTGIzTy13b1BYRGhwbU1vUktJdWNRZHpScGhIRHpuRjJXYzdiLUhydkdPdWFLUnMwMEk1QTdSZzZMQXM1cS1jR3pBZU1GalFWTXhBWlXSAaQBQVVfeXFMTUJoczY2Q0xnNkJrbUM4RGh2eFpDN21CY0VoeEZBbUZGeFRXX3hjN1ZHQUtfOGVzWXFhQlYwSkJtU2dJTW9zaFc4TE0ySU1UbGhOaktPR2V3U2Q0OEY0ZUJSSVo5dzE3RGNWaVVOVkRKV0EtOUFiRGpYdDNqV1MzVVNaVUV0T0k5ZWtWSXpuc3lXN3hOSjlENno2RkFtampuMXpGb3A?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
