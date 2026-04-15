@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Artur comemora gol e fase no clube"
+description: "São Paulo: Artur comemora gol e fase no clube  Portal Hortolândia"
+pubDate: "2026-04-15T14:28:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxPcjRFQ1Y1OVVDQkE5VkZmclZ6b0J1SEw2NUs4d2lPeW5hX0NEeXBEX3M3SXMxdG1KaEQ0b3RaXzNJTTlFQzRFeVJnQ0dJazhLY080ejFpdGVlQl9uamgwNEtFdUszSVJURDJEOG91bU83TGoxalZOb2NhdDltQUxvSNIBgAFBVV95cUxPcjRFQ1Y1OVVDQkE5VkZmclZ6b0J1SEw2NUs4d2lPeW5hX0NEeXBEX3M3SXMxdG1KaEQ0b3RaXzNJTTlFQzRFeVJnQ0dJazhLY080ejFpdGVlQl9uamgwNEtFdUszSVJURDJEOG91bU83TGoxalZOb2NhdDltQUxvSA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxPcjRFQ1Y1OVVDQkE5VkZmclZ6b0J1SEw2NUs4d2lPeW5hX0NEeXBEX3M3SXMxdG1KaEQ0b3RaXzNJTTlFQzRFeVJnQ0dJazhLY080ejFpdGVlQl9uamgwNEtFdUszSVJURDJEOG91bU83TGoxalZOb2NhdDltQUxvSNIBgAFBVV95cUxPcjRFQ1Y1OVVDQkE5VkZmclZ6b0J1SEw2NUs4d2lPeW5hX0NEeXBEX3M3SXMxdG1KaEQ0b3RaXzNJTTlFQzRFeVJnQ0dJazhLY080ejFpdGVlQl9uamgwNEtFdUszSVJURDJEOG91bU83TGoxalZOb2NhdDltQUxvSA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Fantasma das lesões volta a assombrar o São Paulo"
+description: "Fantasma das lesões volta a assombrar o São Paulo  iG Esportes"
+pubDate: "2026-04-15T11:12:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxNMUFyQnc0Q1R2TmF6SjNDUmFscUdOQ2JISjVpdDBIck8wa0FxbmI3alFlR3ZEeHZjX0ZkUG5ZRDZpSENDZExaVkVLVU40WFNKWDI1N1dDcW13dEJaNl84LWpDdHhoc0dYSFlVcjVubmhHY21GU3RHTE81NVFQbFM4a1BucVRuMEFha1QyMHkwbmRtdU9JU2JYUjN3d9IBmwFBVV95cUxNMUFyQnc0Q1R2TmF6SjNDUmFscUdOQ2JISjVpdDBIck8wa0FxbmI3alFlR3ZEeHZjX0ZkUG5ZRDZpSENDZExaVkVLVU40WFNKWDI1N1dDcW13dEJaNl84LWpDdHhoc0dYSFlVcjVubmhHY21GU3RHTE81NVFQbFM4a1BucVRuMEFha1QyMHkwbmRtdU9JU2JYUjN3dw?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxNMUFyQnc0Q1R2TmF6SjNDUmFscUdOQ2JISjVpdDBIck8wa0FxbmI3alFlR3ZEeHZjX0ZkUG5ZRDZpSENDZExaVkVLVU40WFNKWDI1N1dDcW13dEJaNl84LWpDdHhoc0dYSFlVcjVubmhHY21GU3RHTE81NVFQbFM4a1BucVRuMEFha1QyMHkwbmRtdU9JU2JYUjN3d9IBmwFBVV95cUxNMUFyQnc0Q1R2TmF6SjNDUmFscUdOQ2JISjVpdDBIck8wa0FxbmI3alFlR3ZEeHZjX0ZkUG5ZRDZpSENDZExaVkVLVU40WFNKWDI1N1dDcW13dEJaNl84LWpDdHhoc0dYSFlVcjVubmhHY21GU3RHTE81NVFQbFM4a1BucVRuMEFha1QyMHkwbmRtdU9JU2JYUjN3dw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
