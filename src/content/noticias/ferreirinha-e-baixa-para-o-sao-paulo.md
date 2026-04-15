@@ -1,0 +1,13 @@
+---
+title: "Ferreirinha é baixa para o São Paulo"
+description: "Ferreirinha é baixa para o São Paulo  ABCD Jornal"
+pubDate: "2026-04-14T21:49:49.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNWk9ycWVwLVA3dXJPbHhLWTdWQjhFTGhTMmJON18xWHpaQk4tS0xKRVk3VExwOV8xSUZTS1N0YXI0OHMzZDYxZ3hvSWprSjVFVnB3c1ljYUlsdmh6R1FvQ0E1NGVCRDYxZUZkTHcwNXIyT01xVmFCYUF6a1VuWlZKd0xGU3NWRWk1eWViaGxQSlVUbzZPNmVJck5B0gGaAUFVX3lxTE1aT3JxZXAtUDd1ck9seEtZN1ZCOEVMaFMyYk43XzFYelpCTi1LTEpFWTdUTHA5XzFJRlNLU3RhcjQ4czNkNjFneG9JamtKNUVWcHdzWWNhSWx2aHpHUW9DQTU0ZUJENjFlRmRMdzA1cjJPTXFWYUJhQXprVW5aVkp3TEZTc1ZFaTV5ZWJobFBKVVRvNk82ZUlyTkE?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNWk9ycWVwLVA3dXJPbHhLWTdWQjhFTGhTMmJON18xWHpaQk4tS0xKRVk3VExwOV8xSUZTS1N0YXI0OHMzZDYxZ3hvSWprSjVFVnB3c1ljYUlsdmh6R1FvQ0E1NGVCRDYxZUZkTHcwNXIyT01xVmFCYUF6a1VuWlZKd0xGU3NWRWk1eWViaGxQSlVUbzZPNmVJck5B0gGaAUFVX3lxTE1aT3JxZXAtUDd1ck9seEtZN1ZCOEVMaFMyYk43XzFYelpCTi1LTEpFWTdUTHA5XzFJRlNLU3RhcjQ4czNkNjFneG9JamtKNUVWcHdzWWNhSWx2aHpHUW9DQTU0ZUJENjFlRmRMdzA1cjJPTXFWYUJhQXprVW5aVkp3TEZTc1ZFaTV5ZWJobFBKVVRvNk82ZUlyTkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

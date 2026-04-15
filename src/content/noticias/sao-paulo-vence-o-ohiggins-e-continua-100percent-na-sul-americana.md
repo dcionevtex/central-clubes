@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence o O'Higgins e continua 100% na Sul-Americana"
+description: "São Paulo vence o O'Higgins e continua 100% na Sul-Americana  Imirante.com"
+pubDate: "2026-04-15T00:21:00.000Z"
+source: "Imirante.com"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVm1PcjctTkVuNEFTS2FhSWk2N0pEVFExTExrWGFzQ1NpVWc2dTljaThxYmU4Y1gyeG1RYTlUX1pNVTRVb1dNNkNXR2pxYmdHZm1OaUFfTlI3N3Q1YVRhTWVReTJtUWstV2xqY3ZqZEg1RlZsMVdlWUZIZUVNZzdOV09GMVJNRDBLUGcwNkxMSmFxalgwY2lNYjRKdFdlTDVXMjl0YkpMM3HSAa4BQVVfeXFMTUN1WGN3QmRpdVZwbmJ0ZGh2MDRnRXh5My1GTXA2cWJsb0hYWk16YzRwSVlMSlA0WnZTcXV3UnlkVlZZNlNCRW1hY2dLSUhxTnFUV1RGV2FCMmV0cm5rRUJESmQyR2Z4QjY3THN3VDJrM3k3QVZ6bXlKZVJUZ0R5NDJwZmJKaU15elVZRWJMY0hiMWQ1RDZaYlJTTEh5bV9reUt6VV9LMUdWVGpSSVl3?oc=5"
+---
+
+### Fonte Original: Imirante.com
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxPVm1PcjctTkVuNEFTS2FhSWk2N0pEVFExTExrWGFzQ1NpVWc2dTljaThxYmU4Y1gyeG1RYTlUX1pNVTRVb1dNNkNXR2pxYmdHZm1OaUFfTlI3N3Q1YVRhTWVReTJtUWstV2xqY3ZqZEg1RlZsMVdlWUZIZUVNZzdOV09GMVJNRDBLUGcwNkxMSmFxalgwY2lNYjRKdFdlTDVXMjl0YkpMM3HSAa4BQVVfeXFMTUN1WGN3QmRpdVZwbmJ0ZGh2MDRnRXh5My1GTXA2cWJsb0hYWk16YzRwSVlMSlA0WnZTcXV3UnlkVlZZNlNCRW1hY2dLSUhxTnFUV1RGV2FCMmV0cm5rRUJESmQyR2Z4QjY3THN3VDJrM3k3QVZ6bXlKZVJUZ0R5NDJwZmJKaU15elVZRWJMY0hiMWQ1RDZaYlJTTEh5bV9reUt6VV9LMUdWVGpSSVl3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

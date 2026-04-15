@@ -1,0 +1,13 @@
+---
+title: "São Paulo ouve vaias, mas vence O'Higgins com golaços e mantém 100% na Sul-Americana | Esportes | O Liberal"
+description: "São Paulo ouve vaias, mas vence O'Higgins com golaços e mantém 100% na Sul-Americana | Esportes | O Liberal  O Liberal"
+pubDate: "2026-04-15T00:17:37.000Z"
+source: "O Liberal"
+link: "https://news.google.com/rss/articles/CBMixAFBVV95cUxNWFNIOFVseHpUR1ZyVVpKN25rbW1qaV92WmZoNjY0dVBpR2Npb0NlUWM1blVkeUF0MEFrZHpzYThaYW9Pb2Y2UnF1NUJ4a0ZDczUtUjhQX1g1RmRZMERGOTZ6RHJjWlBXelVnMXc2NkRjVjkySjJqNHQyc0xUWlNMeXpSUGtvaFFuY21EbWw1bFJKelhabWgzQkJ4QUpkalhBeWp3QWd0Njg0SW12MTdzRTVUdl9nNGlsTHNSV1BjT3A5OWxD0gHKAUFVX3lxTE9ROXROVEVnemlGckhRSHBPakFZaS1QQ2xoUkVDbG1kdzMteXZnY3I1UlcxRmh4UlpDWXJidGdDUzNPTG5IQWhmODY1UUtKY2tMQVIwNDlpNDIwbUlSWVFCNjkzeDU4a3BMZUIzTlExalA1QVF1UXVLbEdlRE5JazBmSHc4UE5uNUJCajBNTmdIQndNN0VwZWhHN3VJTE5PdVQxVnVORXJuMEtpSWo4LWJHUkJXTkhTWk5ESnlTd2VmNTJUUG1YaklXOUE?oc=5"
+---
+
+### Fonte Original: O Liberal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMixAFBVV95cUxNWFNIOFVseHpUR1ZyVVpKN25rbW1qaV92WmZoNjY0dVBpR2Npb0NlUWM1blVkeUF0MEFrZHpzYThaYW9Pb2Y2UnF1NUJ4a0ZDczUtUjhQX1g1RmRZMERGOTZ6RHJjWlBXelVnMXc2NkRjVjkySjJqNHQyc0xUWlNMeXpSUGtvaFFuY21EbWw1bFJKelhabWgzQkJ4QUpkalhBeWp3QWd0Njg0SW12MTdzRTVUdl9nNGlsTHNSV1BjT3A5OWxD0gHKAUFVX3lxTE9ROXROVEVnemlGckhRSHBPakFZaS1QQ2xoUkVDbG1kdzMteXZnY3I1UlcxRmh4UlpDWXJidGdDUzNPTG5IQWhmODY1UUtKY2tMQVIwNDlpNDIwbUlSWVFCNjkzeDU4a3BMZUIzTlExalA1QVF1UXVLbEdlRE5JazBmSHc4UE5uNUJCajBNTmdIQndNN0VwZWhHN3VJTE5PdVQxVnVORXJuMEtpSWo4LWJHUkJXTkhTWk5ESnlTd2VmNTJUUG1YaklXOUE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
