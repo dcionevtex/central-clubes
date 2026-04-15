@@ -1,0 +1,13 @@
+---
+title: "São Paulo ultrapassa Independiente no ranking histórico da Sula"
+description: "São Paulo ultrapassa Independiente no ranking histórico da Sula  Portal Hortolândia"
+pubDate: "2026-04-15T11:39:28.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE9VRVM1MTZ5VnVxRE54SW4zQlBQcXJlNlA3NDVSX01SVjRGMkpfREFRVkxqWGpaZ1hNbndGblozS21PRWlkUGNROS14clNOa0lKVTE2eVZ0RWJ6N3hpYzdmcTV1anZGNjA2ZHlsZWduam00U3VoTDR3UkQyRjZGUdIBfkFVX3lxTE9VRVM1MTZ5VnVxRE54SW4zQlBQcXJlNlA3NDVSX01SVjRGMkpfREFRVkxqWGpaZ1hNbndGblozS21PRWlkUGNROS14clNOa0lKVTE2eVZ0RWJ6N3hpYzdmcTV1anZGNjA2ZHlsZWduam00U3VoTDR3UkQyRjZGUQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE9VRVM1MTZ5VnVxRE54SW4zQlBQcXJlNlA3NDVSX01SVjRGMkpfREFRVkxqWGpaZ1hNbndGblozS21PRWlkUGNROS14clNOa0lKVTE2eVZ0RWJ6N3hpYzdmcTV1anZGNjA2ZHlsZWduam00U3VoTDR3UkQyRjZGUdIBfkFVX3lxTE9VRVM1MTZ5VnVxRE54SW4zQlBQcXJlNlA3NDVSX01SVjRGMkpfREFRVkxqWGpaZ1hNbndGblozS21PRWlkUGNROS14clNOa0lKVTE2eVZ0RWJ6N3hpYzdmcTV1anZGNjA2ZHlsZWduam00U3VoTDR3UkQyRjZGUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
