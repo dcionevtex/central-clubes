@@ -1,0 +1,13 @@
+---
+title: "Ex-Seleção Brasileira assume time sub-20 do São Paulo"
+description: "Ex-Seleção Brasileira assume time sub-20 do São Paulo  Esporte News Mundo"
+pubDate: "2026-04-16T21:05:35.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxQRjd2YlU4bFBNQk8yM2FrMVI1NmVRV3Z5OU4yQVBTVHhyRXZES0Y2ejZSZ1ZQZ2tabFVRcTI1M1p1TDlpRXR5U0FJUndvRjRGX1JUdUE4RDdMNTNUQjljSTZpRDRaemVGa25EdWJ3dGtaNnRzaEJfNGZZU1Y1YmNvVXdFelJXbkRJMzJRWWxEY9IBlAFBVV95cUxPaUp4THpETU42MVItQklESWRHazlTQ0lvYXNPdmR5VzBxc1VLQ25ydUhyZnNwTTYyLVZVUk5Tb0I4UHJ2VmZWZmxwbTNWdU9GUkFRWlR5ZlhaV2ppNXlTdmluSkNrU2lkazFDaWZIN1ppTkVaZ0FIWjFtS1o0QVd5XzVKTHJLcUJVNG1CcjBvU29kUjlI?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxQRjd2YlU4bFBNQk8yM2FrMVI1NmVRV3Z5OU4yQVBTVHhyRXZES0Y2ejZSZ1ZQZ2tabFVRcTI1M1p1TDlpRXR5U0FJUndvRjRGX1JUdUE4RDdMNTNUQjljSTZpRDRaemVGa25EdWJ3dGtaNnRzaEJfNGZZU1Y1YmNvVXdFelJXbkRJMzJRWWxEY9IBlAFBVV95cUxPaUp4THpETU42MVItQklESWRHazlTQ0lvYXNPdmR5VzBxc1VLQ25ydUhyZnNwTTYyLVZVUk5Tb0I4UHJ2VmZWZmxwbTNWdU9GUkFRWlR5ZlhaV2ppNXlTdmluSkNrU2lkazFDaWZIN1ppTkVaZ0FIWjFtS1o0QVd5XzVKTHJLcUJVNG1CcjBvU29kUjlI?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

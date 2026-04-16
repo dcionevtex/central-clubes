@@ -1,0 +1,13 @@
+---
+title: "São Paulo leva gols no fim, cede empate ao Avaí e não entra no G8 do Brasileiro Sub-20"
+description: "São Paulo leva gols no fim, cede empate ao Avaí e não entra no G8 do Brasileiro Sub-20  jogada10.com.br"
+pubDate: "2026-04-16T20:45:05.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMirwFBVV95cUxNeXRTSVoxVDh5V0RPd0IyN0xrX3BhSjlZMU4xZFRzay0tMmZocTQ2WkszVUo3d3g3RDJkZThhUkZIa2U2MUhBMk1kdVhHbExvelJiMzBEMWpkYjVPOWFGZldVSWVrTWJ6VDMzUmtXMHZnZ3A5ODBoSGZxbElkY3VzZVBBOVNrNmg4YnphRnJ1R2JqR2hVRjJ4T0VIQklRbU5GUllxMzg5dFZlQXk3NEFr0gG0AUFVX3lxTE40MUE2VE4zM3lkWXc5bFc0RFNqRUd6QmhRS1NfRWtFR0k0cmVlWnJ0MDMwWkZ3dGVWcDRkVTdsVC1qUTliV2p4eVpSa2VhWHQ2VDZPTk5xaF9iYUhMWWxkRDI2bE1GU2ZjWVVJRnF0WTF2dzNkZlpOODB0YmZNdUJ6c0NyTHNoWUs1RVRrdWRSRlMzYUg3Y0NHVjVNcTNCVWRlcUlsZi0xTTl1cUlCNmdoRFRrUA?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirwFBVV95cUxNeXRTSVoxVDh5V0RPd0IyN0xrX3BhSjlZMU4xZFRzay0tMmZocTQ2WkszVUo3d3g3RDJkZThhUkZIa2U2MUhBMk1kdVhHbExvelJiMzBEMWpkYjVPOWFGZldVSWVrTWJ6VDMzUmtXMHZnZ3A5ODBoSGZxbElkY3VzZVBBOVNrNmg4YnphRnJ1R2JqR2hVRjJ4T0VIQklRbU5GUllxMzg5dFZlQXk3NEFr0gG0AUFVX3lxTE40MUE2VE4zM3lkWXc5bFc0RFNqRUd6QmhRS1NfRWtFR0k0cmVlWnJ0MDMwWkZ3dGVWcDRkVTdsVC1qUTliV2p4eVpSa2VhWHQ2VDZPTk5xaF9iYUhMWWxkRDI2bE1GU2ZjWVVJRnF0WTF2dzNkZlpOODB0YmZNdUJ6c0NyTHNoWUs1RVRrdWRSRlMzYUg3Y0NHVjVNcTNCVWRlcUlsZi0xTTl1cUlCNmdoRFRrUA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
