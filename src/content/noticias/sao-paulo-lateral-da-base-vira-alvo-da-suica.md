@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Lateral da base vira alvo da Suíça"
+description: "São Paulo: Lateral da base vira alvo da Suíça  Portal Hortolândia"
+pubDate: "2026-04-16T00:16:34.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE5yNlpQeENVeXdnM0tuNGh3U1BiREgyUWRjV0pkX0Mtbl9VNUJuTlB3NW5FRmlRX3c1ekJGMkd6OXdUOG1nR0wwY1VwSDZfNEloTzFxLUlCVl9pWUVjcTZhNHZLZ21YbUx4d2NtQldZWm1vMzlWSW94WFVwUkw2Z9IBfkFVX3lxTE5yNlpQeENVeXdnM0tuNGh3U1BiREgyUWRjV0pkX0Mtbl9VNUJuTlB3NW5FRmlRX3c1ekJGMkd6OXdUOG1nR0wwY1VwSDZfNEloTzFxLUlCVl9pWUVjcTZhNHZLZ21YbUx4d2NtQldZWm1vMzlWSW94WFVwUkw2Zw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE5yNlpQeENVeXdnM0tuNGh3U1BiREgyUWRjV0pkX0Mtbl9VNUJuTlB3NW5FRmlRX3c1ekJGMkd6OXdUOG1nR0wwY1VwSDZfNEloTzFxLUlCVl9pWUVjcTZhNHZLZ21YbUx4d2NtQldZWm1vMzlWSW94WFVwUkw2Z9IBfkFVX3lxTE5yNlpQeENVeXdnM0tuNGh3U1BiREgyUWRjV0pkX0Mtbl9VNUJuTlB3NW5FRmlRX3c1ekJGMkd6OXdUOG1nR0wwY1VwSDZfNEloTzFxLUlCVl9pWUVjcTZhNHZLZ21YbUx4d2NtQldZWm1vMzlWSW94WFVwUkw2Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Roger é exaltado por jogador ex-Manchester City"
+description: "Roger é exaltado por jogador ex-Manchester City  Portal Hortolândia"
+pubDate: "2026-04-15T22:44:45.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE9wQWVEeGpuMVZVanZkYk52dEhKV0Yyek1Tc0U0ZWhndGVYQWQ4NWd6OU9sT3lQM1l1Y2JET2NxaENRSW9GNzR0UlNhbUVDR3ZlZGxocXVmUjljN1pINHBDWEdQM3I0LW1qLWtzdmd0eFl0ZFY5a0VtRktQNWPSAXxBVV95cUxPcEFlRHhqbjFWVWp2ZGJOdnRISldGMnpNU3NFNGVoZ3RlWEFkODVnejlPbE95UDNZdWNiRE9jcWhDUUlvRjc0dFJTYW1FQ0d2ZWRsaHF1ZlI5YzdaSDRwQ1hHUDNyNC1tai1rc3ZndHhZdGRWOWtFbUZLUDVj?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE9wQWVEeGpuMVZVanZkYk52dEhKV0Yyek1Tc0U0ZWhndGVYQWQ4NWd6OU9sT3lQM1l1Y2JET2NxaENRSW9GNzR0UlNhbUVDR3ZlZGxocXVmUjljN1pINHBDWEdQM3I0LW1qLWtzdmd0eFl0ZFY5a0VtRktQNWPSAXxBVV95cUxPcEFlRHhqbjFWVWp2ZGJOdnRISldGMnpNU3NFNGVoZ3RlWEFkODVnejlPbE95UDNZdWNiRE9jcWhDUUlvRjc0dFJTYW1FQ0d2ZWRsaHF1ZlI5YzdaSDRwQ1hHUDNyNC1tai1rc3ZndHhZdGRWOWtFbUZLUDVj?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
