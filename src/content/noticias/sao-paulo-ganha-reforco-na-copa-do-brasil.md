@@ -1,0 +1,13 @@
+---
+title: "São Paulo ganha \"reforço\" na Copa do Brasil"
+description: "São Paulo ganha \"reforço\" na Copa do Brasil  Portal Hortolândia"
+pubDate: "2026-04-16T16:31:42.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxPclJmaUE4Mnh1Qnprc0FYNlFia09QNXkzTk05OWtoUG56QTh1dmV5VUxvR2IyY3lwencyeWQ0NWhqcjBuWnRiMnhPNk9aZGlHX01ZS1dGUHVtNWZ1a3BLNUJ1bUlTQy1lVDkxUzl5cVJtZUdkUm11Z2RwV0tGUGVPeVFoSdIBgwFBVV95cUxPclJmaUE4Mnh1Qnprc0FYNlFia09QNXkzTk05OWtoUG56QTh1dmV5VUxvR2IyY3lwencyeWQ0NWhqcjBuWnRiMnhPNk9aZGlHX01ZS1dGUHVtNWZ1a3BLNUJ1bUlTQy1lVDkxUzl5cVJtZUdkUm11Z2RwV0tGUGVPeVFoSQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxPclJmaUE4Mnh1Qnprc0FYNlFia09QNXkzTk05OWtoUG56QTh1dmV5VUxvR2IyY3lwencyeWQ0NWhqcjBuWnRiMnhPNk9aZGlHX01ZS1dGUHVtNWZ1a3BLNUJ1bUlTQy1lVDkxUzl5cVJtZUdkUm11Z2RwV0tGUGVPeVFoSdIBgwFBVV95cUxPclJmaUE4Mnh1Qnprc0FYNlFia09QNXkzTk05OWtoUG56QTh1dmV5VUxvR2IyY3lwencyeWQ0NWhqcjBuWnRiMnhPNk9aZGlHX01ZS1dGUHVtNWZ1a3BLNUJ1bUlTQy1lVDkxUzl5cVJtZUdkUm11Z2RwV0tGUGVPeVFoSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
