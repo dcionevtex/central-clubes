@@ -1,0 +1,13 @@
+---
+title: "São Paulo manda nova notificação para Arboleda"
+description: "São Paulo manda nova notificação para Arboleda  Portal Hortolândia"
+pubDate: "2026-04-16T17:40:54.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxQS1NidDdPdDBpNUxyc05VczFobkJlaDF3SE1kdng5NTZNV0dteTd5X3d3SVVlaGpvSkZfSnNuYXkwMkRXZmZaV2NLSFRiZTRCZUJfa0JiXzZTOGU5S3JQdmhsUVo2bnRJYlR3NE5aZFRaMUhEZUdZV3hjYTdmSlUxcVFLU3HSAYQBQVVfeXFMUEtTYnQ3T3QwaTVMcnNOVXMxaG5CZWgxd0hNZHZ4OTU2TVdHbXk3eV93d0lVZWhqb0pGX0pzbmF5MDJEV2ZmWldjS0hUYmU0QmVCX2tCYl82UzhlOUtyUHZobFFaNm50SWJUdzROWmRUWjFIRGVHWVd4Y2E3ZkpVMXFRS1Nx?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxQS1NidDdPdDBpNUxyc05VczFobkJlaDF3SE1kdng5NTZNV0dteTd5X3d3SVVlaGpvSkZfSnNuYXkwMkRXZmZaV2NLSFRiZTRCZUJfa0JiXzZTOGU5S3JQdmhsUVo2bnRJYlR3NE5aZFRaMUhEZUdZV3hjYTdmSlUxcVFLU3HSAYQBQVVfeXFMUEtTYnQ3T3QwaTVMcnNOVXMxaG5CZWgxd0hNZHZ4OTU2TVdHbXk3eV93d0lVZWhqb0pGX0pzbmF5MDJEV2ZmWldjS0hUYmU0QmVCX2tCYl82UzhlOUtyUHZobFFaNm50SWJUdzROWmRUWjFIRGVHWVd4Y2E3ZkpVMXFRS1Nx?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
