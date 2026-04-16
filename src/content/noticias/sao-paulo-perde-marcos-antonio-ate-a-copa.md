@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde Marcos Antônio até a Copa"
+description: "São Paulo perde Marcos Antônio até a Copa  Portal Hortolândia"
+pubDate: "2026-04-15T18:38:38.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxPVTBkM3NRR2cyTTJuY1VBS3ZfRS1IczF1Q1QzRG5adTRvbjhocER6NnRqSkFGUURfc1hNY1FWbElHUEM4dUMwSDZ4N0xDNjgxZ040WEREVFR4ZWZ2eE92R3lHU3hsbjRxUmN0NXNQUTcyeW9hRVFqMENaU051YUJIbEFMSklIQzDSAYcBQVVfeXFMT1UwZDNzUUdnMk0ybmNVQUt2X0UtSHMxdUNUM0RuWnU0b244aHBEejZ0akpBRlFEX3NYTWNRVmxJR1BDOHVDMEg2eDdMQzY4MWdONFhERFRUeGVmdnhPdkd5R1N4bG40cVJjdDVzUFE3MnlvYUVRajBDWlNOdWFCSGxBTEpJSEMw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxPVTBkM3NRR2cyTTJuY1VBS3ZfRS1IczF1Q1QzRG5adTRvbjhocER6NnRqSkFGUURfc1hNY1FWbElHUEM4dUMwSDZ4N0xDNjgxZ040WEREVFR4ZWZ2eE92R3lHU3hsbjRxUmN0NXNQUTcyeW9hRVFqMENaU051YUJIbEFMSklIQzDSAYcBQVVfeXFMT1UwZDNzUUdnMk0ybmNVQUt2X0UtSHMxdUNUM0RuWnU0b244aHBEejZ0akpBRlFEX3NYTWNRVmxJR1BDOHVDMEg2eDdMQzY4MWdONFhERFRUeGVmdnhPdkd5R1N4bG40cVJjdDVzUFE3MnlvYUVRajBDWlNOdWFCSGxBTEpJSEMw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
