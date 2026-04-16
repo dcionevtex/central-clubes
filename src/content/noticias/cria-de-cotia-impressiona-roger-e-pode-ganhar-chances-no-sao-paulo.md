@@ -1,0 +1,13 @@
+---
+title: "Cria de Cotia impressiona Roger e pode ganhar chances no São Paulo"
+description: "Cria de Cotia impressiona Roger e pode ganhar chances no São Paulo  jogada10.com.br"
+pubDate: "2026-04-16T13:43:43.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxNNTlvWkVHUFl5MDlXV1Zid3pPR0RadHhnVlR1b3lDTGlSVlU1SE1PNkw2Y09SeU8zRXZIQzBYUUVHcGJ0bkRzc0ozVlphTmpFbHR4N1poVDVuSGhPQjNOUWtId3VFNXBOeXNHOGozYmhlaDlCQjZER1poZl90Rzc1dGNSTjF4NXBEUkNfbTB6TDlNY0FDTXfSAZsBQVVfeXFMT19QX2tSQk1ZTm50RllTUXdtUTZnZzhVbFVJcG16cG9aOEZCWG0tWlQzQkNNLXJWdTBYdnV6YVJzWl9PbTZ2cGd0QWJzb2RYdmkwOVNvRUN1eE1KZTZvY2lFT3lld0UzVjBfeWNrUElKNlRfcGhhbHJPVzdzV3dYUFVUV0c1eFQyMktwQjRmRVZ2aGJxMUxUYW9XZlE?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxNNTlvWkVHUFl5MDlXV1Zid3pPR0RadHhnVlR1b3lDTGlSVlU1SE1PNkw2Y09SeU8zRXZIQzBYUUVHcGJ0bkRzc0ozVlphTmpFbHR4N1poVDVuSGhPQjNOUWtId3VFNXBOeXNHOGozYmhlaDlCQjZER1poZl90Rzc1dGNSTjF4NXBEUkNfbTB6TDlNY0FDTXfSAZsBQVVfeXFMT19QX2tSQk1ZTm50RllTUXdtUTZnZzhVbFVJcG16cG9aOEZCWG0tWlQzQkNNLXJWdTBYdnV6YVJzWl9PbTZ2cGd0QWJzb2RYdmkwOVNvRUN1eE1KZTZvY2lFT3lld0UzVjBfeWNrUElKNlRfcGhhbHJPVzdzV3dYUFVUV0c1eFQyMktwQjRmRVZ2aGJxMUxUYW9XZlE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
