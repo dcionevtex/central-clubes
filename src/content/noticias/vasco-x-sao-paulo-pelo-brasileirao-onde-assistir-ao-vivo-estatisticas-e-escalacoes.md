@@ -1,0 +1,13 @@
+---
+title: "Vasco x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas e escalações"
+description: "Vasco x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas e escalações  Gazeta Esportiva"
+pubDate: "2026-04-17T23:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxPemdLMkVJRVhRRDczLVk2SDVFODgxUV8wNkx3eU9SWFNWWks1QU9xVHJJa1pheFdwLWRSeFpoR2QtSmFHa19rNkZjeVFrT0hiVW5ibnNiSnpYWFAyNlpnaUJDNTZWcUlXUTUwd29tRk83WmNOS0FOZTVETWhtV2xvYzQ5dWhFWmYxeVBDWGdYV01HcnNLWThFTFAxVDZWMm80WjJPYWNR0gGrAUFVX3lxTE1pMW9GTHU2cEE5WGl2Sno4dGREd2RfTVVSQ1VIY2dLaTQ3bmxhRWpVcWVXMWk4bDRUOE9PcGRrY2hyM3NPSWZtUy13UWFOeHctQ0d3YzZ4VVQzZGxoX1RvQ2lSYTBYSFJWLUVOTmt0R211UnhBVWxRcGExSnY2R0tFTWllNWlfX1RKdEI5ZzV4bWJVOG0xejlYTTVYVGNZN0VFbU1IT0FzUExydw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxPemdLMkVJRVhRRDczLVk2SDVFODgxUV8wNkx3eU9SWFNWWks1QU9xVHJJa1pheFdwLWRSeFpoR2QtSmFHa19rNkZjeVFrT0hiVW5ibnNiSnpYWFAyNlpnaUJDNTZWcUlXUTUwd29tRk83WmNOS0FOZTVETWhtV2xvYzQ5dWhFWmYxeVBDWGdYV01HcnNLWThFTFAxVDZWMm80WjJPYWNR0gGrAUFVX3lxTE1pMW9GTHU2cEE5WGl2Sno4dGREd2RfTVVSQ1VIY2dLaTQ3bmxhRWpVcWVXMWk4bDRUOE9PcGRrY2hyM3NPSWZtUy13UWFOeHctQ0d3YzZ4VVQzZGxoX1RvQ2lSYTBYSFJWLUVOTmt0R211UnhBVWxRcGExSnY2R0tFTWllNWlfX1RKdEI5ZzV4bWJVOG0xejlYTTVYVGNZN0VFbU1IT0FzUExydw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
