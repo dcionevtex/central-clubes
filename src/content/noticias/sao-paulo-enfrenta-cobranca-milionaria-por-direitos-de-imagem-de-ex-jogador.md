@@ -1,0 +1,13 @@
+---
+title: "São Paulo enfrenta cobrança milionária por direitos de imagem de ex-jogador"
+description: "São Paulo enfrenta cobrança milionária por direitos de imagem de ex-jogador  jogada10.com.br"
+pubDate: "2026-04-17T19:50:11.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxQd1dmTmhDQmVlZnZieDlrTlk2VmRwX1pGZEZwYjdTbnZjM0Zyc2xYM2dBTWxGRm85d0RTYVlNMXRwRmI2RkFCZmVYUlBmbUt6WGJNRS0wVXRMUmcxbXY4MmFad2ZFUVFLOGxOY1ZZSHNoSzhEYUUtVjJ2MXlpLTJxWGZndVNIbnZ5NmVBZGZQallWTDc0a0ZrQm5CeEFoaXdiNmfSAacBQVVfeXFMTlV5MlVkb0lCd0czREhtT3V4U2pZODQ2RmxfSElKSnB1dWttMzRmSG5ubE04WDBMYVVGTFhxS19GaDMwNUVxU0NocXZHSjhacW1TdlE0c3hLNlZDeFU1OUVjN1hIRm1Qbll2SkdpeGY4UlF6bXNSVWJLRmhydGRLYllOeGNMRFctREhoQ3E5a2M1RnFSdnJ0STFtM1lPWG16cUlPSnpEU1U?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxQd1dmTmhDQmVlZnZieDlrTlk2VmRwX1pGZEZwYjdTbnZjM0Zyc2xYM2dBTWxGRm85d0RTYVlNMXRwRmI2RkFCZmVYUlBmbUt6WGJNRS0wVXRMUmcxbXY4MmFad2ZFUVFLOGxOY1ZZSHNoSzhEYUUtVjJ2MXlpLTJxWGZndVNIbnZ5NmVBZGZQallWTDc0a0ZrQm5CeEFoaXdiNmfSAacBQVVfeXFMTlV5MlVkb0lCd0czREhtT3V4U2pZODQ2RmxfSElKSnB1dWttMzRmSG5ubE04WDBMYVVGTFhxS19GaDMwNUVxU0NocXZHSjhacW1TdlE0c3hLNlZDeFU1OUVjN1hIRm1Qbll2SkdpeGY4UlF6bXNSVWJLRmhydGRLYllOeGNMRFctREhoQ3E5a2M1RnFSdnJ0STFtM1lPWG16cUlPSnpEU1U?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

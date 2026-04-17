@@ -1,0 +1,13 @@
+---
+title: "São Paulo aposta em Artur sem custos e vê atleta assumir protagonismo"
+description: "São Paulo aposta em Artur sem custos e vê atleta assumir protagonismo  jogada10.com.br"
+pubDate: "2026-04-17T19:50:10.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNckp3UTEtekF2TXdiVHlsd3NwTmJTakRxQnF1c2FCa0JJdl9DT0lOTXVzN1ZEV1NqUjBBXzNlbmRPV2pmNnNKRG5PUEdpcmM4czdTM2ZCV1c5aGVCWmktM21USm9vcEpFVS1NTVE5aUdiVXRYUUVTRk1xSEZlelo2R1k0U2pYcURDYWVoTFlTSDJXdDAtT0lUY0Jn0gGfAUFVX3lxTFB6dkREcVhGT1FTTWVaOFZuQmhia2Y4ZUJRcHZNUGRYY0VYMTB0V2dPb0ROem1mUEw1TEs3ZFZWcjAzVGR2eTJtaTV5ekF4MHhpWDJQU3BrR1B3aVljZnN2UmtFcnNQNHNPX0VJMVFrbDRib19TR29jUTE4YjJ2RXpNTTljeENJNlRZYnQwNXVMUzBPZndrZnFlZ3hEMWpFVQ?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNckp3UTEtekF2TXdiVHlsd3NwTmJTakRxQnF1c2FCa0JJdl9DT0lOTXVzN1ZEV1NqUjBBXzNlbmRPV2pmNnNKRG5PUEdpcmM4czdTM2ZCV1c5aGVCWmktM21USm9vcEpFVS1NTVE5aUdiVXRYUUVTRk1xSEZlelo2R1k0U2pYcURDYWVoTFlTSDJXdDAtT0lUY0Jn0gGfAUFVX3lxTFB6dkREcVhGT1FTTWVaOFZuQmhia2Y4ZUJRcHZNUGRYY0VYMTB0V2dPb0ROem1mUEw1TEs3ZFZWcjAzVGR2eTJtaTV5ekF4MHhpWDJQU3BrR1B3aVljZnN2UmtFcnNQNHNPX0VJMVFrbDRib19TR29jUTE4YjJ2RXpNTTljeENJNlRZYnQwNXVMUzBPZndrZnFlZ3hEMWpFVQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
