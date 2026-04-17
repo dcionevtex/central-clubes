@@ -1,0 +1,13 @@
+---
+title: "Moreira vira opção no meio e ganha espaço com Roger no São Paulo"
+description: "Moreira vira opção no meio e ganha espaço com Roger no São Paulo  jogada10.com.br"
+pubDate: "2026-04-17T15:14:12.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxNSFAxTEFXbmNmNnUxUE5fUmVBaDdaVXFjcHd5VmhXazZ3bUZ5bkZYYV9nbUpIV3Y1SF9LbFhLTHE0SVAwaHh0aWRtRmFUcDFJZllUVEthU3Rwa2d3aWJRd0c3RVJ6cEU4STg0SVI0Sk1Wb0k1Q1pZakR5ckl1Qk9abV84RHpjeUMwbWNlMXZVR2Z5SlHSAZgBQVVfeXFMT1JaaHFRbENkWmx1VlZlMW1ObXdVblRMb011ZVpWSXJuRUhpUS1lMm1fMFh3aTdaS2JfNzB4WTI1bmthUHoxUzY4c09fMVl0NEVvTFBnemlrMC1jdExLZ1REWWlTdjVmS2tLbXJMOXliU0M5NnZDVEtqSjBmUU5aV3l0WTZRWTJPS0dJbktfNUo3TVBnX3hDaXY?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxNSFAxTEFXbmNmNnUxUE5fUmVBaDdaVXFjcHd5VmhXazZ3bUZ5bkZYYV9nbUpIV3Y1SF9LbFhLTHE0SVAwaHh0aWRtRmFUcDFJZllUVEthU3Rwa2d3aWJRd0c3RVJ6cEU4STg0SVI0Sk1Wb0k1Q1pZakR5ckl1Qk9abV84RHpjeUMwbWNlMXZVR2Z5SlHSAZgBQVVfeXFMT1JaaHFRbENkWmx1VlZlMW1ObXdVblRMb011ZVpWSXJuRUhpUS1lMm1fMFh3aTdaS2JfNzB4WTI1bmthUHoxUzY4c09fMVl0NEVvTFBnemlrMC1jdExLZ1REWWlTdjVmS2tLbXJMOXliU0M5NnZDVEtqSjBmUU5aV3l0WTZRWTJPS0dJbktfNUo3TVBnX3hDaXY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
