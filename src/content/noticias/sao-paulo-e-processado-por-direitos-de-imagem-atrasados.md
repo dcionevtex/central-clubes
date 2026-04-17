@@ -1,0 +1,13 @@
+---
+title: "São Paulo é processado por direitos de imagem atrasados"
+description: "São Paulo é processado por direitos de imagem atrasados  Portal Hortolândia"
+pubDate: "2026-04-17T20:38:05.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiigFBVV95cUxOTkxvVEFQbmNwN0lnTV9NMWhFLUl2SkZXVTFXUF9HNXQwR3cybVJnYUl1RURUV1oxbnJQNFItajNQcUtXTUNCTHBCMW9CVHdVejhQTXJhY1FObGd0S01hNVVjdW02ME5wdVUzaExVbXl3LXpNaWhpUDFRUXFLUzFLamFzdklaRnYwS0HSAYoBQVVfeXFMTk5Mb1RBUG5jcDdJZ01fTTFoRS1JdkpGV1UxV1BfRzV0MEd3Mm1SZ2FJdUVEVFdaMW5yUDRSLWozUHFLV01DQkxwQjFvQlR3VXo4UE1yYWNRTmxndEtNYTVVY3VtNjBOcHVVM2hMVW15dy16TWloaVAxUVFxS1MxS2phc3ZJWkZ2MEtB?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigFBVV95cUxOTkxvVEFQbmNwN0lnTV9NMWhFLUl2SkZXVTFXUF9HNXQwR3cybVJnYUl1RURUV1oxbnJQNFItajNQcUtXTUNCTHBCMW9CVHdVejhQTXJhY1FObGd0S01hNVVjdW02ME5wdVUzaExVbXl3LXpNaWhpUDFRUXFLUzFLamFzdklaRnYwS0HSAYoBQVVfeXFMTk5Mb1RBUG5jcDdJZ01fTTFoRS1JdkpGV1UxV1BfRzV0MEd3Mm1SZ2FJdUVEVFdaMW5yUDRSLWozUHFLV01DQkxwQjFvQlR3VXo4UE1yYWNRTmxndEtNYTVVY3VtNjBOcHVVM2hMVW15dy16TWloaVAxUVFxS1MxS2phc3ZJWkZ2MEtB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
