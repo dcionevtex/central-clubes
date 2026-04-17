@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Casares tenta barrar investigações"
+description: "São Paulo: Casares tenta barrar investigações  Portal Hortolândia"
+pubDate: "2026-04-17T10:46:48.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiiAFBVV95cUxPTUVOWFpQZmc4NUF4aFlFblJoazl4UlRIX3RmYVJfSHdXVkVHZ1YxUV9DcVJxT3laYjdzbFBJVXhyVjFwcW9YUGtnbFZzcDR3RWhKVkhyVXg3LVpKRVQzTTVPMjhEZHM5b2VjWV9NY1Y0NjAxclRscnlpUUdsMXRjV1U2ZEhtTFNu0gGIAUFVX3lxTE9NRU5YWlBmZzg1QXhoWUVuUmhrOXhSVEhfdGZhUl9Id1dWRUdnVjFRX0NxUnFPeVpiN3NsUElVeHJWMXBxb1hQa2dsVnNwNHdFaEpWSHJVeDctWkpFVDNNNU8yOERkczlvZWNZX01jVjQ2MDFyVGxyeWlRR2wxdGNXVTZkSG1MU24?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAFBVV95cUxPTUVOWFpQZmc4NUF4aFlFblJoazl4UlRIX3RmYVJfSHdXVkVHZ1YxUV9DcVJxT3laYjdzbFBJVXhyVjFwcW9YUGtnbFZzcDR3RWhKVkhyVXg3LVpKRVQzTTVPMjhEZHM5b2VjWV9NY1Y0NjAxclRscnlpUUdsMXRjV1U2ZEhtTFNu0gGIAUFVX3lxTE9NRU5YWlBmZzg1QXhoWUVuUmhrOXhSVEhfdGZhUl9Id1dWRUdnVjFRX0NxUnFPeVpiN3NsUElVeHJWMXBxb1hQa2dsVnNwNHdFaEpWSHJVeDctWkpFVDNNNU8yOERkczlvZWNZX01jVjQ2MDFyVGxyeWlRR2wxdGNXVTZkSG1MU24?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
