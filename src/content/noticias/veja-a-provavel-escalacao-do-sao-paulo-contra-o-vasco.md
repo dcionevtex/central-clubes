@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo contra o Vasco"
+description: "Veja a provável escalação do São Paulo contra o Vasco  Portal Hortolândia"
+pubDate: "2026-04-17T21:51:58.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxOSnh3OUhjWTFqenQ5ZVV6ME9IMnljUWZVQy02Q3BFUUpFY1JmSzNqaEFzN094MFJnTXNHd09rdi1lcDNJY3dETVJmYkRJSmVsbTFiWEp3VGwxR28zbnNmMzY4UXQ1NlBaTTRIV3dUX1dnUlc2c0d6Slp6clVlaFdmellXMFPSAYQBQVVfeXFMTkp4dzlIY1kxanp0OWVVejBPSDJ5Y1FmVUMtNkNwRVFKRWNSZkszamhBczdPeDBSZ01zR3dPa3YtZXAzSWN3RE1SZmJESUplbG0xYlhKd1RsMUdvM25zZjM2OFF0NTZQWk00SFd3VF9XZ1JXNnNHekpaenJVZWhXZnpZVzBT?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxOSnh3OUhjWTFqenQ5ZVV6ME9IMnljUWZVQy02Q3BFUUpFY1JmSzNqaEFzN094MFJnTXNHd09rdi1lcDNJY3dETVJmYkRJSmVsbTFiWEp3VGwxR28zbnNmMzY4UXQ1NlBaTTRIV3dUX1dnUlc2c0d6Slp6clVlaFdmellXMFPSAYQBQVVfeXFMTkp4dzlIY1kxanp0OWVVejBPSDJ5Y1FmVUMtNkNwRVFKRWNSZkszamhBczdPeDBSZ01zR3dPa3YtZXAzSWN3RE1SZmJESUplbG0xYlhKd1RsMUdvM25zZjM2OFF0NTZQWk00SFd3VF9XZ1JXNnNHekpaenJVZWhXZnpZVzBT?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
