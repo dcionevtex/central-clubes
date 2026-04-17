@@ -1,0 +1,13 @@
+---
+title: "Contratação ganha chance de protagonismo no São Paulo, e Roger recebe reforço"
+description: "Contratação ganha chance de protagonismo no São Paulo, e Roger recebe reforço  Rádio Itatiaia"
+pubDate: "2026-04-17T08:30:23.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_gFBVV95cUxQN1gtTGZGaWRWWHZCUXpqZ2FwdDlwb0F5dDFBTmRmbUtPbGZNYU4tLTBuYUFRMEFqUHZNNnVuXzNfMzZLbkFNTElrZTlaX2FuajFGSzBZM0t3bWlWSkgzZzNnckpHd3NyT0paeWRUTE94Y0tZMlZEOFBrczd1MHplZmR6RXJMcFpIVnpEWXdBUXJjNVE3a09YaW5VS1R4QVdMSGNwMVZVS1NTUWI5N3dmaUxpd2ZXRkFlUTdfaDRIVnJHemFLVHlrYXoybDZ4UEpISjVLVGJ0RTRtZXpMQkZkVTRoT0dKTFNTWWltSzFwcENMeGN2T1BYd0pOTXktZw?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_gFBVV95cUxQN1gtTGZGaWRWWHZCUXpqZ2FwdDlwb0F5dDFBTmRmbUtPbGZNYU4tLTBuYUFRMEFqUHZNNnVuXzNfMzZLbkFNTElrZTlaX2FuajFGSzBZM0t3bWlWSkgzZzNnckpHd3NyT0paeWRUTE94Y0tZMlZEOFBrczd1MHplZmR6RXJMcFpIVnpEWXdBUXJjNVE3a09YaW5VS1R4QVdMSGNwMVZVS1NTUWI5N3dmaUxpd2ZXRkFlUTdfaDRIVnJHemFLVHlrYXoybDZ4UEpISjVLVGJ0RTRtZXpMQkZkVTRoT0dKTFNTWWltSzFwcENMeGN2T1BYd0pOTXktZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
