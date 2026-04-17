@@ -1,0 +1,13 @@
+---
+title: "Vasco x São Paulo: onde assistir, escalações e arbitragem"
+description: "Vasco x São Paulo: onde assistir, escalações e arbitragem  jogada10.com.br"
+pubDate: "2026-04-17T14:21:02.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxQWElWVE1waVlVcXZ4SkY0bS1Lb25QNUJUcUJOR2tsUmhBRnIyNXAyY2VlOXhNRldPWkQtRHN3SENYem9tYWFsX2kyQ28zWTJiOFdYdU0zOGRucG9IUURERWRvNlZCSUlieE9tSEZ2aDZZblk5R3hOVEtfZXdZZE5kdks4S1FrTlltRDhWd1RxTdIBjwFBVV95cUxQWElWVE1waVlVcXZ4SkY0bS1Lb25QNUJUcUJOR2tsUmhBRnIyNXAyY2VlOXhNRldPWkQtRHN3SENYem9tYWFsX2kyQ28zWTJiOFdYdU0zOGRucG9IUURERWRvNlZCSUlieE9tSEZ2aDZZblk5R3hOVEtfZXdZZE5kdks4S1FrTlltRDhWd1RxTQ?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxQWElWVE1waVlVcXZ4SkY0bS1Lb25QNUJUcUJOR2tsUmhBRnIyNXAyY2VlOXhNRldPWkQtRHN3SENYem9tYWFsX2kyQ28zWTJiOFdYdU0zOGRucG9IUURERWRvNlZCSUlieE9tSEZ2aDZZblk5R3hOVEtfZXdZZE5kdks4S1FrTlltRDhWd1RxTdIBjwFBVV95cUxQWElWVE1waVlVcXZ4SkY0bS1Lb25QNUJUcUJOR2tsUmhBRnIyNXAyY2VlOXhNRldPWkQtRHN3SENYem9tYWFsX2kyQ28zWTJiOFdYdU0zOGRucG9IUURERWRvNlZCSUlieE9tSEZ2aDZZblk5R3hOVEtfZXdZZE5kdks4S1FrTlltRDhWd1RxTQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
