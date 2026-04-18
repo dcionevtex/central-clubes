@@ -1,0 +1,13 @@
+---
+title: "SÃO PAULO ESCALADO COM NOVIDADES PARA ENFRENTAR O VASCO"
+description: "SÃO PAULO ESCALADO COM NOVIDADES PARA ENFRENTAR O VASCO  LANCE!"
+pubDate: "2026-04-18T21:37:54.000Z"
+source: "LANCE!"
+link: "https://news.google.com/rss/articles/CBMikAFBVV95cUxPS09mNjJ5ZHhDMl9XYnBEUmNBaUFRT2JKS3h1QUlzbG5VUkhLQ2tPMnVTU05yWXdWSlNuOWVtVEZVbVktWGYyTm5fQlBiWXZ0ZFRZMGFWbnBXUGZvYUJXUFNZSk9yNDEyVDRsc1FjYVR2cHMyU1dETkd0QnAxSXZvSHhZb0U3VHlYTmhEcnBLM3U?oc=5"
+---
+
+### Fonte Original: LANCE!
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAFBVV95cUxPS09mNjJ5ZHhDMl9XYnBEUmNBaUFRT2JKS3h1QUlzbG5VUkhLQ2tPMnVTU05yWXdWSlNuOWVtVEZVbVktWGYyTm5fQlBiWXZ0ZFRZMGFWbnBXUGZvYUJXUFNZSk9yNDEyVDRsc1FjYVR2cHMyU1dETkd0QnAxSXZvSHhZb0U3VHlYTmhEcnBLM3U?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
