@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Bahia não deve acontecer no Morumbi; entenda a decisão"
+description: "São Paulo x Bahia não deve acontecer no Morumbi; entenda a decisão  A TARDE"
+pubDate: "2026-04-18T16:53:33.000Z"
+source: "A TARDE"
+link: "https://news.google.com/rss/articles/CBMipwFBVV95cUxPR3Q1WXFiZUJ2UktNRVZWd1VnbGNCM284N1pELUVxcnYweHRXR3dRR0dxZEJ0elFITy05RlNlZkx0ZTdqTUp3N3NiVjF1Y0JJOTdjeUczNV9uQkNCZlR1Vko3T2hmcDdYTWttcmVpWmdBODltUW9lb2w3NXRZYzJQQnkxVUotbGtxbU1BU1NJOVp4eWJ3VE1HaVFIZ0FUdF93d1FidTdEVdIBrwFBVV95cUxQaXdUU3VKU01QckZ5czFuaF9nY2xydDVpXzJjNUJPX0w1V2hXS2dIZU9rblMtU3lRd2pQd0NwUnRQei1CRjlQUENzVzQ3RUE4UWhWS3lPTDBybURpYktrdHJfZWxYRzVnZHFxTU5SSEQtc01sd29qWkJVTGZKRUotSDEza1l3eFNRWmQzX0s4VHBMY040ZEtwWl9iTDhENzY5NWEwcHFSbEZyRDUwVUNr?oc=5"
+---
+
+### Fonte Original: A TARDE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwFBVV95cUxPR3Q1WXFiZUJ2UktNRVZWd1VnbGNCM284N1pELUVxcnYweHRXR3dRR0dxZEJ0elFITy05RlNlZkx0ZTdqTUp3N3NiVjF1Y0JJOTdjeUczNV9uQkNCZlR1Vko3T2hmcDdYTWttcmVpWmdBODltUW9lb2w3NXRZYzJQQnkxVUotbGtxbU1BU1NJOVp4eWJ3VE1HaVFIZ0FUdF93d1FidTdEVdIBrwFBVV95cUxQaXdUU3VKU01QckZ5czFuaF9nY2xydDVpXzJjNUJPX0w1V2hXS2dIZU9rblMtU3lRd2pQd0NwUnRQei1CRjlQUENzVzQ3RUE4UWhWS3lPTDBybURpYktrdHJfZWxYRzVnZHFxTU5SSEQtc01sd29qWkJVTGZKRUotSDEza1l3eFNRWmQzX0s4VHBMY040ZEtwWl9iTDhENzY5NWEwcHFSbEZyRDUwVUNr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
