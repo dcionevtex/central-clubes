@@ -1,0 +1,13 @@
+---
+title: "Empate com seis gols e clássico marcam o fechamento da 6ª rodada do Brasileiro Sub-20"
+description: "Empate com seis gols e clássico marcam o fechamento da 6ª rodada do Brasileiro Sub-20  CBF"
+pubDate: "2026-04-17T18:54:00.000Z"
+source: "CBF"
+link: "https://news.google.com/rss/articles/CBMilAJBVV95cUxOczlCcWxtNFNCRms3LWF6ZDVJTnpqWktGM3ZYaTRlVWw4VXVmWHRHWkEweEFCZWtpSmZjMkNUTkkwd0gzVWpwa3FVbTdQSl9YTUtTWEM5ekRQZU5UYnJXWTAzVlR6SlVlYkpIMWVieUFTMmh4NUliMGVFZy0yU2ZLY3h3emI0aUtPX2dJZ0g1amVRTnpDTnFPanNuSkRrdHdsT0dTcVNjdFlKeEd1N19nREY0dGpwYnRpd0hKNkpPWUxYTXJnUFA3MHppcHpSZmFyUmRNTDRwZklZc3hYb3ozMlR1cUd4dVQycU1xamRxRTJqVEZNbDl6eTZlSXcxZmV1X2dJTi1VN0YxNHZVemZ3QXlIZlY?oc=5"
+---
+
+### Fonte Original: CBF
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAJBVV95cUxOczlCcWxtNFNCRms3LWF6ZDVJTnpqWktGM3ZYaTRlVWw4VXVmWHRHWkEweEFCZWtpSmZjMkNUTkkwd0gzVWpwa3FVbTdQSl9YTUtTWEM5ekRQZU5UYnJXWTAzVlR6SlVlYkpIMWVieUFTMmh4NUliMGVFZy0yU2ZLY3h3emI0aUtPX2dJZ0g1amVRTnpDTnFPanNuSkRrdHdsT0dTcVNjdFlKeEd1N19nREY0dGpwYnRpd0hKNkpPWUxYTXJnUFA3MHppcHpSZmFyUmRNTDRwZklZc3hYb3ozMlR1cUd4dVQycU1xamRxRTJqVEZNbDl6eTZlSXcxZmV1X2dJTi1VN0YxNHZVemZ3QXlIZlY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
