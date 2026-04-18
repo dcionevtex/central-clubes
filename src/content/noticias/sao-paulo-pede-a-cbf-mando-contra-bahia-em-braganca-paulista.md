@@ -1,0 +1,13 @@
+---
+title: "São Paulo pede à CBF mando contra Bahia em Bragança Paulista"
+description: "São Paulo pede à CBF mando contra Bahia em Bragança Paulista  jogada10.com.br"
+pubDate: "2026-04-18T01:33:53.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxNRzJFU0NUd1F5SXdtS21jcHRiS0tVcUppclp0MkptWkI3Z2JTMm9JNldkbE9RTUJHREFRYlhJc3dOTVBobmFVeTBrbUVsd0k4dGdCZHB6alhXQkt3Wk4xQ2picE5MNXRqeDNEY293THdWd0NacGpocUN2VDFFUWQ1d2lVUWdXSWNUSTRzbVpKSTQxRXg5M0HSAZsBQVVfeXFMUHFBNXFOUU1pVzNKYllfV19uWkUxWU9kX2tlRHRXbm45eWk2akotbEVjdGdwX0xWRVgtZWNDekthY1pJZmdub2NDVFBIUVRHcW1VZkYxcG5nWDBqaW1qYnpHOFZkNFprNkRORWtfUXVYU0VJcmtfbXVBRVMtX0tNZ0cwUnJXMFlHUmtYS1lxOEpXdEVKNUlscVl2VkE?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxNRzJFU0NUd1F5SXdtS21jcHRiS0tVcUppclp0MkptWkI3Z2JTMm9JNldkbE9RTUJHREFRYlhJc3dOTVBobmFVeTBrbUVsd0k4dGdCZHB6alhXQkt3Wk4xQ2picE5MNXRqeDNEY293THdWd0NacGpocUN2VDFFUWQ1d2lVUWdXSWNUSTRzbVpKSTQxRXg5M0HSAZsBQVVfeXFMUHFBNXFOUU1pVzNKYllfV19uWkUxWU9kX2tlRHRXbm45eWk2akotbEVjdGdwX0xWRVgtZWNDekthY1pJZmdub2NDVFBIUVRHcW1VZkYxcG5nWDBqaW1qYnpHOFZkNFprNkRORWtfUXVYU0VJcmtfbXVBRVMtX0tNZ0cwUnJXMFlHUmtYS1lxOEpXdEVKNUlscVl2VkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
