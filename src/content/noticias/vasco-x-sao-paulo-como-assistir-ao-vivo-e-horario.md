@@ -1,0 +1,13 @@
+---
+title: "Vasco x São Paulo: Como assistir ao vivo e horário"
+description: "Vasco x São Paulo: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-04-18T18:00:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQWmhkX2FBaEg2ME52MEM4V0R5Z29reXdqT21tQU4yMjhSZnQ2S0UxOW51SWU4dGRjcHhvSUF2U0Q0UDctdFh4LVJfLTE4ZTg4eHJ0VlVoeTRWOWszN0lvak9MZGxEWVlNZU5hSHZHa2g0ZTZOOVlzdl9wbUNsaFVkNtIBgAFBVV95cUxQWmhkX2FBaEg2ME52MEM4V0R5Z29reXdqT21tQU4yMjhSZnQ2S0UxOW51SWU4dGRjcHhvSUF2U0Q0UDctdFh4LVJfLTE4ZTg4eHJ0VlVoeTRWOWszN0lvak9MZGxEWVlNZU5hSHZHa2g0ZTZOOVlzdl9wbUNsaFVkNg?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQWmhkX2FBaEg2ME52MEM4V0R5Z29reXdqT21tQU4yMjhSZnQ2S0UxOW51SWU4dGRjcHhvSUF2U0Q0UDctdFh4LVJfLTE4ZTg4eHJ0VlVoeTRWOWszN0lvak9MZGxEWVlNZU5hSHZHa2g0ZTZOOVlzdl9wbUNsaFVkNtIBgAFBVV95cUxQWmhkX2FBaEg2ME52MEM4V0R5Z29reXdqT21tQU4yMjhSZnQ2S0UxOW51SWU4dGRjcHhvSUF2U0Q0UDctdFh4LVJfLTE4ZTg4eHJ0VlVoeTRWOWszN0lvak9MZGxEWVlNZU5hSHZHa2g0ZTZOOVlzdl9wbUNsaFVkNg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
