@@ -1,0 +1,13 @@
+---
+title: "Qual o horário e onde assistir a São Paulo x Grêmio"
+description: "Qual o horário e onde assistir a São Paulo x Grêmio  GZH"
+pubDate: "2026-04-19T09:03:53.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMinAJBVV95cUxOd2M2eTk4MXhZTndZYzJseUxpTDR2YWZHQm1vNTF6WVRPaUxFcWF4R21iZG5uem9zTzNobk1KUk81TkQ5Z3gyMkI1TFFkTUhrcDZVM2E4WlFPd0otcHBHektXOGFfRTVHYTQwbm5BMHY3by1fZWp4emphVmJTZDJycy12aWpvaDExTUFQbVZZalNLZ0I1c3lQWlJkTTB6SkRNSS1YcUlGYnZDYlc3QlJMSDRhTURKcEZaSVc4WnhFWUtPTDVRZ3hmNEx3Y1dKUFF5MmhzR0pvZWI4VHNOdVdVVldqV0JyY1hOem9TZFdYanpPY2lDZlR5Z2N0MV9rd3hpR01LSUNlZFpwM0dQTVFIYUZFX2tJV3IwTGZSOQ?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAJBVV95cUxOd2M2eTk4MXhZTndZYzJseUxpTDR2YWZHQm1vNTF6WVRPaUxFcWF4R21iZG5uem9zTzNobk1KUk81TkQ5Z3gyMkI1TFFkTUhrcDZVM2E4WlFPd0otcHBHektXOGFfRTVHYTQwbm5BMHY3by1fZWp4emphVmJTZDJycy12aWpvaDExTUFQbVZZalNLZ0I1c3lQWlJkTTB6SkRNSS1YcUlGYnZDYlc3QlJMSDRhTURKcEZaSVc4WnhFWUtPTDVRZ3hmNEx3Y1dKUFF5MmhzR0pvZWI4VHNOdVdVVldqV0JyY1hOem9TZFdYanpPY2lDZlR5Z2N0MV9rd3hpR01LSUNlZFpwM0dQTVFIYUZFX2tJV3IwTGZSOQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

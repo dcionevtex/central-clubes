@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem nova baixa no meio de campo; confira"
+description: "São Paulo tem nova baixa no meio de campo; confira  Portal Hortolândia"
+pubDate: "2026-04-19T16:25:36.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxNU2V1N1FiVThlSGl5ZVJUYUJSWElkdDRzckQ3QS13T0JTRzdZY2JUR0J4bGJVRDJxY1Qxc1dhaEYyV2gzNmltTHJpMGQ2MDgyNWtkOGE5WGJ1VEJsNTNpZnluNWhNTXp6MEtWcXVuNVBxdnBLQXAtUjhRWXhHSGxXSW930gGCAUFVX3lxTE1TZXU3UWJVOGVIaXllUlRhQlJYSWR0NHNyRDdBLXdPQlNHN1ljYlRHQnhsYlVEMnFjVDFzV2FoRjJXaDM2aW1McmkwZDYwODI1a2Q4YTlYYnVUQmw1M2lmeW41aE1NenowS1ZxdW41UHF2cEtBcC1SOFFZeEdIbFdJb3c?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxNU2V1N1FiVThlSGl5ZVJUYUJSWElkdDRzckQ3QS13T0JTRzdZY2JUR0J4bGJVRDJxY1Qxc1dhaEYyV2gzNmltTHJpMGQ2MDgyNWtkOGE5WGJ1VEJsNTNpZnluNWhNTXp6MEtWcXVuNVBxdnBLQXAtUjhRWXhHSGxXSW930gGCAUFVX3lxTE1TZXU3UWJVOGVIaXllUlRhQlJYSWR0NHNyRDdBLXdPQlNHN1ljYlRHQnhsYlVEMnFjVDFzV2FoRjJXaDM2aW1McmkwZDYwODI1a2Q4YTlYYnVUQmw1M2lmeW41aE1NenowS1ZxdW41UHF2cEtBcC1SOFFZeEdIbFdJb3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
