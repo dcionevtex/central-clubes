@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger vai ser demitido? Entenda o cenário"
+description: "São Paulo: Roger vai ser demitido? Entenda o cenário  Portal Hortolândia"
+pubDate: "2026-04-19T12:46:07.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxPN3c0SHdSMHdFdklkbUdhLTV3eS1lLUk3UjRzOGpXRUVqSmxfZFhHS0w3MFpQaFM5UXhoMDlIa2NtT2E5WmdCRXZYazRGNHItdFFoQV94WXRqY0tGcFk3b0JFYVhhaUdCZW9VbVVtWkU4Zk5welZtUy1tblhqN1NJQ9IBgAFBVV95cUxPN3c0SHdSMHdFdklkbUdhLTV3eS1lLUk3UjRzOGpXRUVqSmxfZFhHS0w3MFpQaFM5UXhoMDlIa2NtT2E5WmdCRXZYazRGNHItdFFoQV94WXRqY0tGcFk3b0JFYVhhaUdCZW9VbVVtWkU4Zk5welZtUy1tblhqN1NJQw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxPN3c0SHdSMHdFdklkbUdhLTV3eS1lLUk3UjRzOGpXRUVqSmxfZFhHS0w3MFpQaFM5UXhoMDlIa2NtT2E5WmdCRXZYazRGNHItdFFoQV94WXRqY0tGcFk3b0JFYVhhaUdCZW9VbVVtWkU4Zk5welZtUy1tblhqN1NJQ9IBgAFBVV95cUxPN3c0SHdSMHdFdklkbUdhLTV3eS1lLUk3UjRzOGpXRUVqSmxfZFhHS0w3MFpQaFM5UXhoMDlIa2NtT2E5WmdCRXZYazRGNHItdFFoQV94WXRqY0tGcFk3b0JFYVhhaUdCZW9VbVVtWkU4Zk5welZtUy1tblhqN1NJQw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
