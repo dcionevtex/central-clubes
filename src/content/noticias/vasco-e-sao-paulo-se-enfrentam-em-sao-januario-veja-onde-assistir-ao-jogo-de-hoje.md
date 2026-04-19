@@ -1,0 +1,13 @@
+---
+title: "Vasco e São Paulo se enfrentam em São Januário; veja onde assistir ao jogo de hoje"
+description: "Vasco e São Paulo se enfrentam em São Januário; veja onde assistir ao jogo de hoje  InfoMoney"
+pubDate: "2026-04-18T19:00:00.000Z"
+source: "InfoMoney"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxPTkN3MGR2RzVtWHNVdjg1bWVXeHhhVWJaTDVJajZOYU9namNEMEdBSHpNa3BDYWtCaHQ2Q0dZUTVlSTZMU2lENU91eUdvUkVIYmtyMVk0ZVlMYkNFQ3htM3JGUVV6dFdtd0NBekd5WnN5dWtpT2h6MFV0enhMZVRNNmpMVTFCNnPSAYwBQVVfeXFMTW95ZjN2cjlhRDVPTVlOWVpUNjkwU19WT2NxTUNEWmVaajdUc2c4bUl4NENSdmhjOUhlVmRaTzFzUl9KV1VZVmYwTjhLd0U3T1ZYOFBDUlE4R01NX2JrdzdDaTc3Z05idHhQajlCUHZtSnFHaGNqVmp1aHBVRkRQVDZ2NkRSTWpfMzFTSWY?oc=5"
+---
+
+### Fonte Original: InfoMoney
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxPTkN3MGR2RzVtWHNVdjg1bWVXeHhhVWJaTDVJajZOYU9namNEMEdBSHpNa3BDYWtCaHQ2Q0dZUTVlSTZMU2lENU91eUdvUkVIYmtyMVk0ZVlMYkNFQ3htM3JGUVV6dFdtd0NBekd5WnN5dWtpT2h6MFV0enhMZVRNNmpMVTFCNnPSAYwBQVVfeXFMTW95ZjN2cjlhRDVPTVlOWVpUNjkwU19WT2NxTUNEWmVaajdUc2c4bUl4NENSdmhjOUhlVmRaTzFzUl9KV1VZVmYwTjhLd0U3T1ZYOFBDUlE4R01NX2JrdzdDaTc3Z05idHhQajlCUHZtSnFHaGNqVmp1aHBVRkRQVDZ2NkRSTWpfMzFTSWY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

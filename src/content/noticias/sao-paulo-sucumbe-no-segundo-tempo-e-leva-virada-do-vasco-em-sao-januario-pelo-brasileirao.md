@@ -1,0 +1,13 @@
+---
+title: "São Paulo sucumbe no segundo tempo e leva virada do Vasco em São Januário pelo Brasileirão"
+description: "São Paulo sucumbe no segundo tempo e leva virada do Vasco em São Januário pelo Brasileirão  Estadão"
+pubDate: "2026-04-18T23:32:00.000Z"
+source: "Estadão"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxOeXk2b3JTbXo3WEhwQWdYWHNFNzY4NmhjaFozM3JqVjhPU2NiRlpJaVk5Ulo3bVlvUHBUTFpSV2EzX1FvZHBRQnZNTFN0RzFZZ0dmaUNwUnd1XzBzdUlpTUh6RE5EOUk1TVVoOWg1V3NaQ2dMd0R6bG9RU0dYLVdxTTVNdnJyOXphdEtValpfX0luR1Q3MFJWbm5BZ2xpRXVWNzF0S9IBqgFBVV95cUxNMVZxY2IteUE5ejZGeEI4MmJvdkJJX2RtVlBiMnh3NFhHNzFJMVZaOWE4TFhlUW8xT2t5b0hoM3NGZ3RmMWJlZmZCWEcyWjRNNjFrZEtUbEd0bnY1cURnclpqNHNmVFRFbElCLVlRVUtPZjA5MTZrRk1qeHRRUGVQTlM0R2JZMVpNcnI2alVONC05Z2RGMm56RkFSME1PM2xRQ2RLbThURWJkUQ?oc=5"
+---
+
+### Fonte Original: Estadão
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxOeXk2b3JTbXo3WEhwQWdYWHNFNzY4NmhjaFozM3JqVjhPU2NiRlpJaVk5Ulo3bVlvUHBUTFpSV2EzX1FvZHBRQnZNTFN0RzFZZ0dmaUNwUnd1XzBzdUlpTUh6RE5EOUk1TVVoOWg1V3NaQ2dMd0R6bG9RU0dYLVdxTTVNdnJyOXphdEtValpfX0luR1Q3MFJWbm5BZ2xpRXVWNzF0S9IBqgFBVV95cUxNMVZxY2IteUE5ejZGeEI4MmJvdkJJX2RtVlBiMnh3NFhHNzFJMVZaOWE4TFhlUW8xT2t5b0hoM3NGZ3RmMWJlZmZCWEcyWjRNNjFrZEtUbEd0bnY1cURnclpqNHNmVFRFbElCLVlRVUtPZjA5MTZrRk1qeHRRUGVQTlM0R2JZMVpNcnI2alVONC05Z2RGMm56RkFSME1PM2xRQ2RLbThURWJkUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

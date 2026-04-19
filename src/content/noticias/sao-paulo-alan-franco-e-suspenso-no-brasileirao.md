@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Alan Franco é suspenso no Brasileirão"
+description: "São Paulo: Alan Franco é suspenso no Brasileirão  Portal Hortolândia"
+pubDate: "2026-04-19T00:08:34.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxQeWdmNGN1WFpDLWd4ald3dW5CcUo5d3RHOWN6NGxTcHhMcHB5dndxWWtybTMyeGpES1A2SjlzV25RM3NYdTJZSmdVT3Axa1p3c2g3NWNmUEpUU0lJM3NPVDFyWG01V3E4alJOUFBicTNIcm9uNG5FRjJqZ0s0aFc1NmhBUVFaQdIBhgFBVV95cUxQeWdmNGN1WFpDLWd4ald3dW5CcUo5d3RHOWN6NGxTcHhMcHB5dndxWWtybTMyeGpES1A2SjlzV25RM3NYdTJZSmdVT3Axa1p3c2g3NWNmUEpUU0lJM3NPVDFyWG01V3E4alJOUFBicTNIcm9uNG5FRjJqZ0s0aFc1NmhBUVFaQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxQeWdmNGN1WFpDLWd4ald3dW5CcUo5d3RHOWN6NGxTcHhMcHB5dndxWWtybTMyeGpES1A2SjlzV25RM3NYdTJZSmdVT3Axa1p3c2g3NWNmUEpUU0lJM3NPVDFyWG01V3E4alJOUFBicTNIcm9uNG5FRjJqZ0s0aFc1NmhBUVFaQdIBhgFBVV95cUxQeWdmNGN1WFpDLWd4ald3dW5CcUo5d3RHOWN6NGxTcHhMcHB5dndxWWtybTMyeGpES1A2SjlzV25RM3NYdTJZSmdVT3Axa1p3c2g3NWNmUEpUU0lJM3NPVDFyWG01V3E4alJOUFBicTNIcm9uNG5FRjJqZ0s0aFc1NmhBUVFaQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
