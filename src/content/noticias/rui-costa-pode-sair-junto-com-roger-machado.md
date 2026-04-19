@@ -1,0 +1,13 @@
+---
+title: "Rui Costa pode sair junto com Roger Machado"
+description: "Rui Costa pode sair junto com Roger Machado  Portal Hortolândia"
+pubDate: "2026-04-19T14:24:18.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSHljWDM1V05lQmozcnMzaENuTXRDUXZGbmxfMjhfMGRwWnhJcjlXU2lPWGwxZDJsOVg4dlVCLWVmcGNMSW5mS25YMUpYekZPSHNYOWItc0VNbUdoTXBRQ1NzNnBEbWk0RVlqSGFvemdXajNqTXdETHp2TGxBSU03TDNoV1VlUllU0gGIAUFVX3lxTE1IeWNYMzVXTmVCajNyczNoQ25NdENRdkZubF8yOF8wZHBaeElyOVdTaU9YbDFkMmw5WDh2VUItZWZwY0xJbmZLblgxSlh6Rk9Ic1g5Yi1zRU1tR2hNcFFDU3M2cERtaTRFWWpIYW96Z1dqM2pNd0RMenZMbEFJTTdMM2hXVWVSWVQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAFBVV95cUxNSHljWDM1V05lQmozcnMzaENuTXRDUXZGbmxfMjhfMGRwWnhJcjlXU2lPWGwxZDJsOVg4dlVCLWVmcGNMSW5mS25YMUpYekZPSHNYOWItc0VNbUdoTXBRQ1NzNnBEbWk0RVlqSGFvemdXajNqTXdETHp2TGxBSU03TDNoV1VlUllU0gGIAUFVX3lxTE1IeWNYMzVXTmVCajNyczNoQ25NdENRdkZubF8yOF8wZHBaeElyOVdTaU9YbDFkMmw5WDh2VUItZWZwY0xJbmZLblgxSlh6Rk9Ic1g5Yi1zRU1tR2hNcFFDU3M2cERtaTRFWWpIYW96Z1dqM2pNd0RMenZMbEFJTTdMM2hXVWVSWVQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
