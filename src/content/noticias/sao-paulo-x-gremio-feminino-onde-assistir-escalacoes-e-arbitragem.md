@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Grêmio (feminino): onde assistir, escalações e arbitragem"
+description: "São Paulo x Grêmio (feminino): onde assistir, escalações e arbitragem  jogada10.com.br"
+pubDate: "2026-04-19T22:13:34.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxQMnJsMGhiZnNBUFhxd29WZmoyalpxemF5VDFQaVBsV0FkYkRjTWVIcFNDVGotMDRJNFdDU044dW9URHd6OENsZ01NUjJNd3Nxa09kQ3dsM2FWNkFTX0JPc09UR3pYMUdvNl9UV3R4M2JmeHdSWmVqUnZXenFmU0MxWmo4SFNSUHZvZGVTV2N0Z0RMaWU20gGaAUFVX3lxTE5ja2lKSmFlZlVlRHk0UzJ0cGdDUDBONE43c0VRUDVDRU9wZDRhcUQtbUQ0SEw1VWtkYmtyeGdGV1FHc3dOZHZJaUVLUDBOdC12RENMWlhRRmxiN1AyeDBrRGUzMHIxX0FsaXJZbDlaYkhEQXRQMWktbHRfNDFDRXd5OGt0WXBiNWRSalFfSlFyVllwWFU4ZU9PWHc?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxQMnJsMGhiZnNBUFhxd29WZmoyalpxemF5VDFQaVBsV0FkYkRjTWVIcFNDVGotMDRJNFdDU044dW9URHd6OENsZ01NUjJNd3Nxa09kQ3dsM2FWNkFTX0JPc09UR3pYMUdvNl9UV3R4M2JmeHdSWmVqUnZXenFmU0MxWmo4SFNSUHZvZGVTV2N0Z0RMaWU20gGaAUFVX3lxTE5ja2lKSmFlZlVlRHk0UzJ0cGdDUDBONE43c0VRUDVDRU9wZDRhcUQtbUQ0SEw1VWtkYmtyeGdGV1FHc3dOZHZJaUVLUDBOdC12RENMWlhRRmxiN1AyeDBrRGUzMHIxX0FsaXJZbDlaYkhEQXRQMWktbHRfNDFDRXd5OGt0WXBiNWRSalFfSlFyVllwWFU4ZU9PWHc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
