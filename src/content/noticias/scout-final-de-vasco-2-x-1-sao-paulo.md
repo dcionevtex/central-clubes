@@ -1,0 +1,13 @@
+---
+title: "Scout final de Vasco 2 x 1 São Paulo"
+description: "Scout final de Vasco 2 x 1 São Paulo  SuperVasco"
+pubDate: "2026-04-18T23:36:17.000Z"
+source: "SuperVasco"
+link: "https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVVmaUJOT2xLQXVhRzdxbVVkSVg3Wjkta294a2w4X1dPNEJyRnoxM2lXMXJ2UUowc1RTc3RiQjlrOHFhZlFXTGVBVFJVUVl6ajlqVHJ0Z1U1emhnbnd3YkNlVC1TWVlzZkhhc3F6TGQzTTV6SW85TEJiYkJsUEtxTnpIV0ZZZnhOdG9xQ9IBjwFBVV95cUxNSjI5bVMwZFdVWDdGSHFmUVl1U0lzbWN1ZExSQTkzNUVESEpva0N3eEpPWnZVVlF4QUhpTlBpS19nN0dBV0o2S3NJMFF4ZndvNk13M0NKMjhLSE1zZ3VEeFk3NHJjMWpqV2Q1MmlpZUxZRHdMMFBKX1gwSVBhYlVoSDY2N0JUZXdnU2dvUE5Ldw?oc=5"
+---
+
+### Fonte Original: SuperVasco
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAFBVV95cUxNYVVmaUJOT2xLQXVhRzdxbVVkSVg3Wjkta294a2w4X1dPNEJyRnoxM2lXMXJ2UUowc1RTc3RiQjlrOHFhZlFXTGVBVFJVUVl6ajlqVHJ0Z1U1emhnbnd3YkNlVC1TWVlzZkhhc3F6TGQzTTV6SW85TEJiYkJsUEtxTnpIV0ZZZnhOdG9xQ9IBjwFBVV95cUxNSjI5bVMwZFdVWDdGSHFmUVl1U0lzbWN1ZExSQTkzNUVESEpva0N3eEpPWnZVVlF4QUhpTlBpS19nN0dBV0o2S3NJMFF4ZndvNk13M0NKMjhLSE1zZ3VEeFk3NHJjMWpqV2Q1MmlpZUxZRHdMMFBKX1gwSVBhYlVoSDY2N0JUZXdnU2dvUE5Ldw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

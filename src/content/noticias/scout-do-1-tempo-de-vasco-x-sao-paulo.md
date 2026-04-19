@@ -1,0 +1,13 @@
+---
+title: "Scout do 1° tempo de Vasco x São Paulo"
+description: "Scout do 1° tempo de Vasco x São Paulo  SuperVasco"
+pubDate: "2026-04-18T22:24:28.000Z"
+source: "SuperVasco"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxQM3hpNmtrMG9QeUhCeVppMmRtdWVyU1hkZHA3UnpLUk9LMzBwNWszNGJyMDhOejl1Y0l1RXozSTZXYUNZeW1QZTNzbHcxcXRTM1hBa0kxNG5TTFNQWFdISFJYenhQYkJ3Q1FiSG42M1A3bTFGMEdEY0xJdDJYZTF3Yk9iWnBDcnZKRG5ZdnlwM0U3ekVp0gGXAUFVX3lxTFBOd2pJaFpYa1kxcC1mYW93cTZ5WHVWVlJVeml4TGJqZXJoOFJoUEpGTUlhY3lVZHNzaW1PbnluaUo4SlQyU1FHWWtlQnJWV3djQ2J2VlJPd25ObUl3OXY3MWJNUTNIc3ZFRWVKUnpWWENTbktueGNUcnE4ZFFCcG1FY3pwdXZFY0NFQ0JwRjRrc2NnY0dkQ2M?oc=5"
+---
+
+### Fonte Original: SuperVasco
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxQM3hpNmtrMG9QeUhCeVppMmRtdWVyU1hkZHA3UnpLUk9LMzBwNWszNGJyMDhOejl1Y0l1RXozSTZXYUNZeW1QZTNzbHcxcXRTM1hBa0kxNG5TTFNQWFdISFJYenhQYkJ3Q1FiSG42M1A3bTFGMEdEY0xJdDJYZTF3Yk9iWnBDcnZKRG5ZdnlwM0U3ekVp0gGXAUFVX3lxTFBOd2pJaFpYa1kxcC1mYW93cTZ5WHVWVlJVeml4TGJqZXJoOFJoUEpGTUlhY3lVZHNzaW1PbnluaUo4SlQyU1FHWWtlQnJWV3djQ2J2VlJPd25ObUl3OXY3MWJNUTNIc3ZFRWVKUnpWWENTbktueGNUcnE4ZFFCcG1FY3pwdXZFY0NFQ0JwRjRrc2NnY0dkQ2M?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
