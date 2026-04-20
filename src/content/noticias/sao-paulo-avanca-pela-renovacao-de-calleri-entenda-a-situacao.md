@@ -1,0 +1,13 @@
+---
+title: "São Paulo avança pela renovação de Calleri; entenda a situação"
+description: "São Paulo avança pela renovação de Calleri; entenda a situação  Arquibancada Tricolor"
+pubDate: "2026-04-20T16:00:00.000Z"
+source: "Arquibancada Tricolor"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxQWnZhNTkySWYzalVTdlFWZmx3WDIzdGQyUmpJYkc2ZEpXVHdadmtoa2wwV1UtYTd0WFZjcXpKSWRlXzZuZGMwNGZMbFpFeWxlbERhYWxRNGM5Q0lYVnJhbl9xY1ZsUDVRSjVwQXZKZ3hWQ3gxNENwNzhYb21oQlNXdTlNbnJRZw?oc=5"
+---
+
+### Fonte Original: Arquibancada Tricolor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxQWnZhNTkySWYzalVTdlFWZmx3WDIzdGQyUmpJYkc2ZEpXVHdadmtoa2wwV1UtYTd0WFZjcXpKSWRlXzZuZGMwNGZMbFpFeWxlbERhYWxRNGM5Q0lYVnJhbl9xY1ZsUDVRSjVwQXZKZ3hWQ3gxNENwNzhYb21oQlNXdTlNbnJRZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
