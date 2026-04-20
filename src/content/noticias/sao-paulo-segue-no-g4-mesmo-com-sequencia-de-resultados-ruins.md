@@ -1,0 +1,13 @@
+---
+title: "São Paulo segue no G4 mesmo com sequência de resultados ruins"
+description: "São Paulo segue no G4 mesmo com sequência de resultados ruins  Portal Hortolândia"
+pubDate: "2026-04-20T14:23:02.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPS3hteEpiZVY3Z0ttZkd0WDdEZGJhVExhN0FNVlRoT2djMjBWdnk3a1U5UFlpNi1GVXp1Tk5WS1FIZ0w4eW1XSEtJSFY3Y21BUjRCYWI3NVhEWFJXU2tiQ1V0UUxPSUM5QlF6bVJuN2FSd25ucjh2aGZZT3A0NjR3OFlR0gGCAUFVX3lxTE9LeG14SmJlVjdnS21mR3RYN0RkYmFUTGE3QU1WVGhPZ2MyMFZ2eTdrVTlQWWk2LUZVenVOTlZLUUhnTDh5bVdIS0lIVjdjbUFSNEJhYjc1WERYUldTa2JDVXRRTE9JQzlCUXptUm43YVJ3bm5yOHZoZllPcDQ2NHc4WVE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPS3hteEpiZVY3Z0ttZkd0WDdEZGJhVExhN0FNVlRoT2djMjBWdnk3a1U5UFlpNi1GVXp1Tk5WS1FIZ0w4eW1XSEtJSFY3Y21BUjRCYWI3NVhEWFJXU2tiQ1V0UUxPSUM5QlF6bVJuN2FSd25ucjh2aGZZT3A0NjR3OFlR0gGCAUFVX3lxTE9LeG14SmJlVjdnS21mR3RYN0RkYmFUTGE3QU1WVGhPZ2MyMFZ2eTdrVTlQWWk2LUZVenVOTlZLUUhnTDh5bVdIS0lIVjdjbUFSNEJhYjc1WERYUldTa2JDVXRRTE9JQzlCUXptUm43YVJ3bm5yOHZoZllPcDQ2NHc4WVE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
