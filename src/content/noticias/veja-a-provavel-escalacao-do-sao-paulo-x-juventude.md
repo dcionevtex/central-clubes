@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo x Juventude"
+description: "Veja a provável escalação do São Paulo x Juventude  Portal Hortolândia"
+pubDate: "2026-04-20T19:25:39.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE93M2p4RU5sTjdfcHJ5alJEbTlqbEFHZVdXS1pDOTlRTzdxZVZzZzhLdjJVNkFHUzFabUpnZ3RCa1BlUDhGcTVqQnlLTG9nWXZnQlM1cWdpaHp2WWptTmI1RGFxZXQ4U3dUa0JXenBwdzljbnpGdHRubVVRVFhJQdIBfkFVX3lxTE93M2p4RU5sTjdfcHJ5alJEbTlqbEFHZVdXS1pDOTlRTzdxZVZzZzhLdjJVNkFHUzFabUpnZ3RCa1BlUDhGcTVqQnlLTG9nWXZnQlM1cWdpaHp2WWptTmI1RGFxZXQ4U3dUa0JXenBwdzljbnpGdHRubVVRVFhJQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE93M2p4RU5sTjdfcHJ5alJEbTlqbEFHZVdXS1pDOTlRTzdxZVZzZzhLdjJVNkFHUzFabUpnZ3RCa1BlUDhGcTVqQnlLTG9nWXZnQlM1cWdpaHp2WWptTmI1RGFxZXQ4U3dUa0JXenBwdzljbnpGdHRubVVRVFhJQdIBfkFVX3lxTE93M2p4RU5sTjdfcHJ5alJEbTlqbEFHZVdXS1pDOTlRTzdxZVZzZzhLdjJVNkFHUzFabUpnZ3RCa1BlUDhGcTVqQnlLTG9nWXZnQlM1cWdpaHp2WWptTmI1RGFxZXQ4U3dUa0JXenBwdzljbnpGdHRubVVRVFhJQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
