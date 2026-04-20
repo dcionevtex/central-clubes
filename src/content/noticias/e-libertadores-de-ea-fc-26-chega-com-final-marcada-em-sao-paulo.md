@@ -1,0 +1,13 @@
+---
+title: "E-Libertadores de EA FC 26 chega com final marcada em São Paulo"
+description: "E-Libertadores de EA FC 26 chega com final marcada em São Paulo  BS9"
+pubDate: "2026-04-20T18:37:53.000Z"
+source: "BS9"
+link: "https://news.google.com/rss/articles/CBMipwFBVV95cUxPUzVKN1JfWEdMM3RVQV94WWtQSUsycnhCSzZlWmZreWdDWWVFalVLcnY0UVJ5OUNHejJtVXBGY20yNkFoZ3doVU9aV1JfMkxLLXhUbThid2NxaURpcF8waGE0c2NoVWotcE4zeVg3c3dOLUVNUHpueDA2ZU1NWjJ3ellWcUVBWEVYZzExM3VJTjhzYUFKR3BqSDFXeWZhOUhCNnBacWhVY9IBqAFBVV95cUxNbGNPeTVXZEVaaE1Rd1RPYS0yYUt0VmtxdzdXazRGX2NxU09xdVFZbDRpUVE0WjUxbWRIT1gxRmZyVmRGMXJJSzdXclJoS1hid3hseHNmVU5PbURPeGlHSVhkLV9JYUVWakZwTWVRZXUzUEw0V1VOenJXaXMyVWhYcF9pT0FISWthWl9MWmRGU3Frd0daZm03UlF0dEoxelZTVW1RS2NIbE0?oc=5"
+---
+
+### Fonte Original: BS9
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwFBVV95cUxPUzVKN1JfWEdMM3RVQV94WWtQSUsycnhCSzZlWmZreWdDWWVFalVLcnY0UVJ5OUNHejJtVXBGY20yNkFoZ3doVU9aV1JfMkxLLXhUbThid2NxaURpcF8waGE0c2NoVWotcE4zeVg3c3dOLUVNUHpueDA2ZU1NWjJ3ellWcUVBWEVYZzExM3VJTjhzYUFKR3BqSDFXeWZhOUhCNnBacWhVY9IBqAFBVV95cUxNbGNPeTVXZEVaaE1Rd1RPYS0yYUt0VmtxdzdXazRGX2NxU09xdVFZbDRpUVE0WjUxbWRIT1gxRmZyVmRGMXJJSzdXclJoS1hid3hseHNmVU5PbURPeGlHSVhkLV9JYUVWakZwTWVRZXUzUEw0V1VOenJXaXMyVWhYcF9pT0FISWthWl9MWmRGU3Frd0daZm03UlF0dEoxelZTVW1RS2NIbE0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
