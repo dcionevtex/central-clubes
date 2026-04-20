@@ -1,0 +1,13 @@
+---
+title: "Pressionado, São Paulo define futuro de Roger Machado"
+description: "Pressionado, São Paulo define futuro de Roger Machado  Esporte News Mundo"
+pubDate: "2026-04-20T11:36:47.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMijgFBVV95cUxQRUhna1B1NXNzOFV1NU5DM3B2aFA4N2ctUHRSR0FYN0xIOEJhbDNtVk9WYXdPdVhtX3Mwb3lZMG5LT1JWb0ltYTlGMUprSjdxM1N4Z0FIODE4TExVeFlBaERyZVNpc0hkb2N0SHA1UjN5UUx1bndMNXdsVUw5SzJZZ1ZDc0thTDRqdG5SaW5R0gGTAUFVX3lxTE9VcFlXRk9wSkVIWGZ1NFBzTThRRnNkN19iN2lUaUFnaC1TTHh5SE5FcHZfWXVfTXhBS3JNSUJWMVhpU2ZDSVF2d2F5Vk5TcVZCOWZ1d2FXS3ByQnh6QkQ5TnBXVmljUE1XNlBhSUhYUTRDMHhOTldEd0R5WHRxUVJRLUZONXNUZWVZRUNFc2JyWGFqSQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijgFBVV95cUxQRUhna1B1NXNzOFV1NU5DM3B2aFA4N2ctUHRSR0FYN0xIOEJhbDNtVk9WYXdPdVhtX3Mwb3lZMG5LT1JWb0ltYTlGMUprSjdxM1N4Z0FIODE4TExVeFlBaERyZVNpc0hkb2N0SHA1UjN5UUx1bndMNXdsVUw5SzJZZ1ZDc0thTDRqdG5SaW5R0gGTAUFVX3lxTE9VcFlXRk9wSkVIWGZ1NFBzTThRRnNkN19iN2lUaUFnaC1TTHh5SE5FcHZfWXVfTXhBS3JNSUJWMVhpU2ZDSVF2d2F5Vk5TcVZCOWZ1d2FXS3ByQnh6QkQ5TnBXVmljUE1XNlBhSUhYUTRDMHhOTldEd0R5WHRxUVJRLUZONXNUZWVZRUNFc2JyWGFqSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
