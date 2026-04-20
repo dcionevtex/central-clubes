@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Juventude pela Copa do Brasil: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "São Paulo x Juventude pela Copa do Brasil: onde assistir ao vivo, estatísticas, histórico e escalações  Gazeta Esportiva"
+pubDate: "2026-04-20T23:06:17.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMijgFBVV95cUxQVW84Vm5VcXpHVlNGYWwyUmFFMFJMdkNaWndydlI2TXV5SUVLYWtBb3BCaVZYQ1dfb2hoTnlnS3Y5eVlkaUV4dGlEMW1yMEJ6SU1XUnB3Qm1GQjFNcFNaT1ZfVERlcXBRbHpCc0FhMVNWUVhxZUZxTExuOW03ZThYeU9PQ0tYZ2Vmajl1UUF30gGOAUFVX3lxTFBVbzhWblVxekdWU0ZhbDJSYUUwUkx2Q1pad3J2UjZNdXlJRUtha0FvcEJpVlhDV19vaGhOeWdLdjl5WWRpRXh0aUQxbXIwQnpJTVdScHdCbUZCMU1wU1pPVl9URGVxcFFsekJzQWExU1ZRWHFlRnFMTG45bTdlOFh5T09DS1hnZWZqOXVRQXc?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijgFBVV95cUxQVW84Vm5VcXpHVlNGYWwyUmFFMFJMdkNaWndydlI2TXV5SUVLYWtBb3BCaVZYQ1dfb2hoTnlnS3Y5eVlkaUV4dGlEMW1yMEJ6SU1XUnB3Qm1GQjFNcFNaT1ZfVERlcXBRbHpCc0FhMVNWUVhxZUZxTExuOW03ZThYeU9PQ0tYZ2Vmajl1UUF30gGOAUFVX3lxTFBVbzhWblVxekdWU0ZhbDJSYUUwUkx2Q1pad3J2UjZNdXlJRUtha0FvcEJpVlhDV19vaGhOeWdLdjl5WWRpRXh0aUQxbXIwQnpJTVdScHdCbUZCMU1wU1pPVl9URGVxcFFsekJzQWExU1ZRWHFlRnFMTG45bTdlOFh5T09DS1hnZWZqOXVRQXc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
