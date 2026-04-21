@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Juventude: veja onde assistir ao jogo de hoje, 21/04"
+description: "São Paulo x Juventude: veja onde assistir ao jogo de hoje, 21/04  iG Esportes"
+pubDate: "2026-04-21T02:00:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQS0NhRUJ4czBrMUxjRl9RR3hRNG8wUmFDYmRHNEpjM1B5YWo0ODZBcmhkYW9pQWlnREF2M0lHR2FWNzQ4T1U1c0w4ZmZnei1tZkh3NHN4SC13RzVjS3F3UHZmdy1WNGJRUlB1c082Uy10SGQzZko3dDZ5aW1BWWhteEhIZ19sNVZmUDk1NFI0NjVyR2IzWTBhZVlnWVdKSzTSAaQBQVVfeXFMTjhLYWFZSzJGR1NvREVLaE5sN3BzNlhjODVuQllGUmdXN0pxNlFDbW5PMnB5cktnM0tMOGgtOEl1cVBReDhjakp6N0FrZjNyblpNa2h4VldBRFJaVDdVQ3g1XzJTNkl5djR3ZnZ5UTl0UzM5SUd4SzhncE14eWwzaGx4dHBIdE4xeFY5ekxtNGFSbDNTSGhmQWVQWVJxVXozbmQ3VmE?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQS0NhRUJ4czBrMUxjRl9RR3hRNG8wUmFDYmRHNEpjM1B5YWo0ODZBcmhkYW9pQWlnREF2M0lHR2FWNzQ4T1U1c0w4ZmZnei1tZkh3NHN4SC13RzVjS3F3UHZmdy1WNGJRUlB1c082Uy10SGQzZko3dDZ5aW1BWWhteEhIZ19sNVZmUDk1NFI0NjVyR2IzWTBhZVlnWVdKSzTSAaQBQVVfeXFMTjhLYWFZSzJGR1NvREVLaE5sN3BzNlhjODVuQllGUmdXN0pxNlFDbW5PMnB5cktnM0tMOGgtOEl1cVBReDhjakp6N0FrZjNyblpNa2h4VldBRFJaVDdVQ3g1XzJTNkl5djR3ZnZ5UTl0UzM5SUd4SzhncE14eWwzaGx4dHBIdE4xeFY5ekxtNGFSbDNTSGhmQWVQWVJxVXozbmQ3VmE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
