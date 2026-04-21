@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Juventude: Onde assistir à Copa do Brasil?"
+description: "São Paulo x Juventude: Onde assistir à Copa do Brasil?  InfoMoney"
+pubDate: "2026-04-21T20:00:00.000Z"
+source: "InfoMoney"
+link: "https://news.google.com/rss/articles/CBMijAFBVV95cUxPZWw0QktVWm9kMS12aGJ4aVNpcWd2VjZLeVgtMjVqTk9QZ09PdG4xOEJrZHhaS3A5eFR0bV8xLVRQdXVPemZwZGF0NlBTd1lkNjA1YWh1SzdMWUZuWlBjRzNrVVBJRVByX1JiWU9nUE04cmZMNS1QcVJjREdkeGc0NFNkOG8zUXZPN0FzQdIBkgFBVV95cUxNc0g1NnhFcXVqcGFaOGU0YUZGdU0zTjZCb1U1RTZwOTE4bEZzYUNFQWY1b2I4RE1LV2ZsenJLNUlKMmpNN2c4VEVPUWRSbHVtMmhEYXZnR254SDFaUF8yRUFvaGNkSk4xWVBZTElzZkprZ1VNX1VRNGhadDFaRUJIMUh1NEVlRmM1Ry1PdWdyakQ3Zw?oc=5"
+---
+
+### Fonte Original: InfoMoney
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAFBVV95cUxPZWw0QktVWm9kMS12aGJ4aVNpcWd2VjZLeVgtMjVqTk9QZ09PdG4xOEJrZHhaS3A5eFR0bV8xLVRQdXVPemZwZGF0NlBTd1lkNjA1YWh1SzdMWUZuWlBjRzNrVVBJRVByX1JiWU9nUE04cmZMNS1QcVJjREdkeGc0NFNkOG8zUXZPN0FzQdIBkgFBVV95cUxNc0g1NnhFcXVqcGFaOGU0YUZGdU0zTjZCb1U1RTZwOTE4bEZzYUNFQWY1b2I4RE1LV2ZsenJLNUlKMmpNN2c4VEVPUWRSbHVtMmhEYXZnR254SDFaUF8yRUFvaGNkSk4xWVBZTElzZkprZ1VNX1VRNGhadDFaRUJIMUh1NEVlRmM1Ry1PdWdyakQ3Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
