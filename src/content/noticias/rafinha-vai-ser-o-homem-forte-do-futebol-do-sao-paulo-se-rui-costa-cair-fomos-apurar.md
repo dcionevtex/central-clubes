@@ -1,0 +1,13 @@
+---
+title: "RAFINHA VAI SER O HOMEM FORTE DO FUTEBOL DO SÃO PAULO SE RUI COSTA CAIR? FOMOS APURAR"
+description: "RAFINHA VAI SER O HOMEM FORTE DO FUTEBOL DO SÃO PAULO SE RUI COSTA CAIR? FOMOS APURAR  OneFootball"
+pubDate: "2026-04-21T21:09:06.000Z"
+source: "OneFootball"
+link: "https://news.google.com/rss/articles/CBMizAFBVV95cUxOcy1BSVF0dnlYbUpodWlzbG5Oc2ctY0FuWVg4WUxBNE5fWjVla3RQemVoLTZvWFJFbmNBRHI4S2ozdDFjWHI2QUNiZlRIWE1LMUFIdFUyRU1WZE8tSW9iMU0xTTNCanVfLUdOMnRsVWxyTmJQUlRGYmc0S3dKTnU0bTZVWTA3eGJkaXBSU3BKdnpjdlZTc0xETjI2ZUk2VkdfRHJSbldVbVdDUDh2QVZhakp1TjZ5blA2M2g4UmhBcHlJeHRfTFJ0MnVLZk4?oc=5"
+---
+
+### Fonte Original: OneFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMizAFBVV95cUxOcy1BSVF0dnlYbUpodWlzbG5Oc2ctY0FuWVg4WUxBNE5fWjVla3RQemVoLTZvWFJFbmNBRHI4S2ozdDFjWHI2QUNiZlRIWE1LMUFIdFUyRU1WZE8tSW9iMU0xTTNCanVfLUdOMnRsVWxyTmJQUlRGYmc0S3dKTnU0bTZVWTA3eGJkaXBSU3BKdnpjdlZTc0xETjI2ZUk2VkdfRHJSbldVbVdDUDh2QVZhakp1TjZ5blA2M2g4UmhBcHlJeHRfTFJ0MnVLZk4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

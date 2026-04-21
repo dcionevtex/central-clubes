@@ -1,0 +1,13 @@
+---
+title: "Roger promove cinco mudanças no São Paulo para duelo contra o Juventude; veja escalações"
+description: "Roger promove cinco mudanças no São Paulo para duelo contra o Juventude; veja escalações  Gazeta Esportiva"
+pubDate: "2026-04-21T21:16:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxQZ09aWXJjQS12cnE0R0hSZWszbzUxYTRlUkpxZGhrRjRCaldYTnhGRkpNYWlvRkZia0ZIQjBNUldNUEFza2R2MUgxc29YQ0dPVVVUVzY5a3NjeW9jOGdGQTBpQ1dmSHYtZVo5cUhmcTY3MlNOU2JFX2ZIWjEyeGpxNG9sN0k1V3c5QlRIQ18zd3ZBLWQzYWhJ0gGcAUFVX3lxTE5vcmd2MWliemltZmtzd0Y5bjVtR3RRT2JwaGdUWm5GUC1KR1pyR0J3bFg0bHlQN3NOeEJRb1BZX1p4R2NNekJtVGpLblpDVHp1VUF6V1RmNXA1UHJmT1MzZWZKc0hTSjVQNjg0VldhR1pfN0lGX2UwMlRJOWZ2V3A4T0x0RmZMTzREU1M0MkhTSzBrUjVmMDBoQ2haWg?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxQZ09aWXJjQS12cnE0R0hSZWszbzUxYTRlUkpxZGhrRjRCaldYTnhGRkpNYWlvRkZia0ZIQjBNUldNUEFza2R2MUgxc29YQ0dPVVVUVzY5a3NjeW9jOGdGQTBpQ1dmSHYtZVo5cUhmcTY3MlNOU2JFX2ZIWjEyeGpxNG9sN0k1V3c5QlRIQ18zd3ZBLWQzYWhJ0gGcAUFVX3lxTE5vcmd2MWliemltZmtzd0Y5bjVtR3RRT2JwaGdUWm5GUC1KR1pyR0J3bFg0bHlQN3NOeEJRb1BZX1p4R2NNekJtVGpLblpDVHp1VUF6V1RmNXA1UHJmT1MzZWZKc0hTSjVQNjg0VldhR1pfN0lGX2UwMlRJOWZ2V3A4T0x0RmZMTzREU1M0MkhTSzBrUjVmMDBoQ2haWg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
