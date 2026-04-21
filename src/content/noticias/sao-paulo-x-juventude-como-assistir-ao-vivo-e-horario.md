@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Juventude: Como assistir ao vivo e horário"
+description: "São Paulo x Juventude: Como assistir ao vivo e horário  Portal Hortolândia"
+pubDate: "2026-04-21T19:06:10.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxPTTRncHBBaUNqLVlaTS1ZelBXdDZDbm5xLV9pNEF0cGxHRGYwVTQ0YTN2R0c4X3lzdEgyQWZpSmVXNVFSQkt4ejJsUWxTanFLQjFpNlBVQ1dvY3B4emxaRVpKbnE0N1pCNlVuUEg2ZUdTSHlWeVpZZjllMk5Cd2NXZGh1TdIBgwFBVV95cUxPTTRncHBBaUNqLVlaTS1ZelBXdDZDbm5xLV9pNEF0cGxHRGYwVTQ0YTN2R0c4X3lzdEgyQWZpSmVXNVFSQkt4ejJsUWxTanFLQjFpNlBVQ1dvY3B4emxaRVpKbnE0N1pCNlVuUEg2ZUdTSHlWeVpZZjllMk5Cd2NXZGh1TQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxPTTRncHBBaUNqLVlaTS1ZelBXdDZDbm5xLV9pNEF0cGxHRGYwVTQ0YTN2R0c4X3lzdEgyQWZpSmVXNVFSQkt4ejJsUWxTanFLQjFpNlBVQ1dvY3B4emxaRVpKbnE0N1pCNlVuUEg2ZUdTSHlWeVpZZjllMk5Cd2NXZGh1TdIBgwFBVV95cUxPTTRncHBBaUNqLVlaTS1ZelBXdDZDbm5xLV9pNEF0cGxHRGYwVTQ0YTN2R0c4X3lzdEgyQWZpSmVXNVFSQkt4ejJsUWxTanFLQjFpNlBVQ1dvY3B4emxaRVpKbnE0N1pCNlVuUEg2ZUdTSHlWeVpZZjllMk5Cd2NXZGh1TQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
