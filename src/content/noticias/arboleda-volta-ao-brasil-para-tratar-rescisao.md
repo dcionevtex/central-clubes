@@ -1,0 +1,13 @@
+---
+title: "Arboleda volta ao Brasil para tratar rescisão"
+description: "Arboleda volta ao Brasil para tratar rescisão  Portal Hortolândia"
+pubDate: "2026-04-22T18:42:16.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE8zOXZjNjlucTJLZFpLMlozVDM4QXZlS2wxVFo2cEZHcm9icWE2V2tmT3ZzaHRyQjRyVnJLcVNXSE9ENUViQ3VQampTNzMweVRiSUFNUGdZR2pXR2plV1c2NUptWk1QRjVWMkFvZ1B3TGdCbXlYT3ZGd0U0WW1DRTDSAX9BVV95cUxPMzl2YzY5bnEyS2RaSzJaM1QzOEF2ZUtsMVRaNnBGR3JvYnFhNldrZk92c2h0ckI0clZyS3FTV0hPRDVFYkN1UGpqUzczMHlUYklBTVBnWUdqV0dqZVdXNjVKbVpNUEY1VjJBb2dQd0xnQm15WE92RndFNFltQ0Uw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE8zOXZjNjlucTJLZFpLMlozVDM4QXZlS2wxVFo2cEZHcm9icWE2V2tmT3ZzaHRyQjRyVnJLcVNXSE9ENUViQ3VQampTNzMweVRiSUFNUGdZR2pXR2plV1c2NUptWk1QRjVWMkFvZ1B3TGdCbXlYT3ZGd0U0WW1DRTDSAX9BVV95cUxPMzl2YzY5bnEyS2RaSzJaM1QzOEF2ZUtsMVRaNnBGR3JvYnFhNldrZk92c2h0ckI0clZyS3FTV0hPRDVFYkN1UGpqUzczMHlUYklBTVBnWUdqV0dqZVdXNjVKbVpNUEY1VjJBb2dQd0xnQm15WE92RndFNFltQ0Uw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
