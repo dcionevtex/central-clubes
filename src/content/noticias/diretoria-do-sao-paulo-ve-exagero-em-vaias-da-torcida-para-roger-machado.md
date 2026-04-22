@@ -1,0 +1,13 @@
+---
+title: "Diretoria do São Paulo vê “exagero” em vaias da torcida para Roger Machado"
+description: "Diretoria do São Paulo vê “exagero” em vaias da torcida para Roger Machado  jogada10.com.br"
+pubDate: "2026-04-22T13:05:28.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxQM0s3UkVPc3VET25Sak5RaHZPZGREU2NKbXBGVVplVlBRV2V2dVFMSGRmOTVfOHBJRmlQd2NwUFlkZTF4TUwxem5LbWRHX0piNTRFWWZlNVI4S0REamkxbEpfU3dGV1k2X1pIR0s4Vlk2V1VndEc3NWZCVUxsbk9kLWZwVFAzU3o4b0hySmVyQmZiRzQ1QVg5UFBuc1NpQdIBowFBVV95cUxPbDVYVkRsNHNrM3BJZHhfYWp5SElGT29iN3VFbTVqaEVMZDhUQS1VYlNIYnpielpXNmZNU0FnMmRheHlpS0ZDekthdXZVUzI2WkxCQU01Z0VLMDNZR3piRkJwb0tfNGp3TGI3UFpxTmNYWjBCQmV0T0FVRmtOQm91WmZSSGRrd3M1cmhITG54a3pnVzluU1lGVHdGN1BISmVZU293?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxQM0s3UkVPc3VET25Sak5RaHZPZGREU2NKbXBGVVplVlBRV2V2dVFMSGRmOTVfOHBJRmlQd2NwUFlkZTF4TUwxem5LbWRHX0piNTRFWWZlNVI4S0REamkxbEpfU3dGV1k2X1pIR0s4Vlk2V1VndEc3NWZCVUxsbk9kLWZwVFAzU3o4b0hySmVyQmZiRzQ1QVg5UFBuc1NpQdIBowFBVV95cUxPbDVYVkRsNHNrM3BJZHhfYWp5SElGT29iN3VFbTVqaEVMZDhUQS1VYlNIYnpielpXNmZNU0FnMmRheHlpS0ZDekthdXZVUzI2WkxCQU01Z0VLMDNZR3piRkJwb0tfNGp3TGI3UFpxTmNYWjBCQmV0T0FVRmtOQm91WmZSSGRrd3M1cmhITG54a3pnVzluU1lGVHdGN1BISmVZU293?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
