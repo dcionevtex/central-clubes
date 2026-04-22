@@ -1,0 +1,13 @@
+---
+title: "Pressão aumenta, mas São Paulo mantém Roger e clima pesa no CT"
+description: "Pressão aumenta, mas São Paulo mantém Roger e clima pesa no CT  Bolavip Brasil"
+pubDate: "2026-04-22T15:59:33.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxPQUJGdzRJZUdnMmNLNlZNZ2ItTWlZRGNBRjVPY2VWdXc3Ry1lM2NwTzg0c1YzYlpKTjBGOW9UM1l6dG9YRFgyNlBsM1ZIWGZRSmZZWDl6anJxc0VhQml4QnJJOVcyeTY1MGJuNlVzYzJZTXh1SDV6Y3A4YU4xbUdKNV9OeVRqMmw1XzBpaTl2aUJqNE5HWnk1OTdB0gGfAUFVX3lxTE5tSzI2Z2IxVUtBSWM5bFM3ZjU3VVBXY1J2REh6c2JpVFRsbS1IWFBvVThNU2UzYzFaQkMyZHpyUTV1TWJ5SXN2NTg0MzNnNXR0cUpqcTM0V0U2NWpDeDVsWkNSVThuNHdkM2ExVWFkeFhwSGVvQ1pNYUY1Q0dKZ0tLZEpjVFItRnY3eWpWXzBrMDVFYzdIR2tpRWVabXRVRQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxPQUJGdzRJZUdnMmNLNlZNZ2ItTWlZRGNBRjVPY2VWdXc3Ry1lM2NwTzg0c1YzYlpKTjBGOW9UM1l6dG9YRFgyNlBsM1ZIWGZRSmZZWDl6anJxc0VhQml4QnJJOVcyeTY1MGJuNlVzYzJZTXh1SDV6Y3A4YU4xbUdKNV9OeVRqMmw1XzBpaTl2aUJqNE5HWnk1OTdB0gGfAUFVX3lxTE5tSzI2Z2IxVUtBSWM5bFM3ZjU3VVBXY1J2REh6c2JpVFRsbS1IWFBvVThNU2UzYzFaQkMyZHpyUTV1TWJ5SXN2NTg0MzNnNXR0cUpqcTM0V0U2NWpDeDVsWkNSVThuNHdkM2ExVWFkeFhwSGVvQ1pNYUY1Q0dKZ0tLZEpjVFItRnY3eWpWXzBrMDVFYzdIR2tpRWVabXRVRQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
