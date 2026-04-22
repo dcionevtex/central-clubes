@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Sequência ruim de Calleri atrapalha Roger Machado"
+description: "São Paulo: Sequência ruim de Calleri atrapalha Roger Machado  Portal Hortolândia"
+pubDate: "2026-04-22T12:33:15.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxPa3dZN0t5ZHFuNE9HZTdQYjBVQ0dtOUNEbGttaUhFQU11RlRHbDZtOGQxTmJrNGpiUEdiYUduMnBwWHRlT0JhMlQ0R2FVNmxEUjhERncwcjJwMWk5d0VKWU5zWThTSXMzNTFrcjVPTWxlUTFNbUdmaW8wRWtoS0JmUlRYZ9IBgwFBVV95cUxPa3dZN0t5ZHFuNE9HZTdQYjBVQ0dtOUNEbGttaUhFQU11RlRHbDZtOGQxTmJrNGpiUEdiYUduMnBwWHRlT0JhMlQ0R2FVNmxEUjhERncwcjJwMWk5d0VKWU5zWThTSXMzNTFrcjVPTWxlUTFNbUdmaW8wRWtoS0JmUlRYZw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxPa3dZN0t5ZHFuNE9HZTdQYjBVQ0dtOUNEbGttaUhFQU11RlRHbDZtOGQxTmJrNGpiUEdiYUduMnBwWHRlT0JhMlQ0R2FVNmxEUjhERncwcjJwMWk5d0VKWU5zWThTSXMzNTFrcjVPTWxlUTFNbUdmaW8wRWtoS0JmUlRYZ9IBgwFBVV95cUxPa3dZN0t5ZHFuNE9HZTdQYjBVQ0dtOUNEbGttaUhFQU11RlRHbDZtOGQxTmJrNGpiUEdiYUduMnBwWHRlT0JhMlQ0R2FVNmxEUjhERncwcjJwMWk5d0VKWU5zWThTSXMzNTFrcjVPTWxlUTFNbUdmaW8wRWtoS0JmUlRYZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
