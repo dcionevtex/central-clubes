@@ -1,0 +1,13 @@
+---
+title: "SÃO PAULO 1 x 0 JUVENTUDE | ANÁLISE E COMENTÁRIOS | PONTARIA RUIM PARA AZEDAR AINDA MAIS O CLIMA"
+description: "SÃO PAULO 1 x 0 JUVENTUDE | ANÁLISE E COMENTÁRIOS | PONTARIA RUIM PARA AZEDAR AINDA MAIS O CLIMA  OneFootball"
+pubDate: "2026-04-22T02:03:06.000Z"
+source: "OneFootball"
+link: "https://news.google.com/rss/articles/CBMi1wFBVV95cUxQbUN0eU5TZDFhVXB4aExGZ0xGOEpDZlZaNUlNakY4M2tacnJiclBpVUFEZ2FNOEQweG4xYjBLWmtsc0NSeWs4Y2lmcDVyaVBQVGpHNDRTbzFRVTB2OWJDTF9qQXhTQk1VWFREWDI3QzhGV3BISElrU0ZJWnFta1pLTmhsU2MwUko3d1l1Zmgtc3RmMHI2T0diZ05DazNhLVlaMDFaVk9IcDItdE16YjV4el9aSFBwNllJZkNrN0s2S0xiV0gxU2tUTkt2aTdfOE1jVmZRN2VEUQ?oc=5"
+---
+
+### Fonte Original: OneFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi1wFBVV95cUxQbUN0eU5TZDFhVXB4aExGZ0xGOEpDZlZaNUlNakY4M2tacnJiclBpVUFEZ2FNOEQweG4xYjBLWmtsc0NSeWs4Y2lmcDVyaVBQVGpHNDRTbzFRVTB2OWJDTF9qQXhTQk1VWFREWDI3QzhGV3BISElrU0ZJWnFta1pLTmhsU2MwUko3d1l1Zmgtc3RmMHI2T0diZ05DazNhLVlaMDFaVk9IcDItdE16YjV4el9aSFBwNllJZkNrN0s2S0xiV0gxU2tUTkt2aTdfOE1jVmZRN2VEUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

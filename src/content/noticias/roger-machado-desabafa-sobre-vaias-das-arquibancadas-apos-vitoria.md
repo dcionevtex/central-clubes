@@ -1,0 +1,13 @@
+---
+title: "Roger Machado desabafa sobre vaias das arquibancadas após vitória"
+description: "Roger Machado desabafa sobre vaias das arquibancadas após vitória  Terra"
+pubDate: "2026-04-22T02:24:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi6wFBVV95cUxQeGxZRzVUNDlVUWxiODc5d3VXYlNzaWlhOGlzNUd6UVQzZ0Vta0xEemV0S3llaE1lcVpsSnp0RGpVc1ZpUE9uWTJhNTBVSV9welRyMVh5N05sZGo5R29XQThzNUFVN2NmdzZxSl9zY0kzaVlVNFRzcFJBVWItWUFiN2RHbUJYQmJ0MWdWZ044YXllN2xNYkcwaDV5V2FxNHFJMndmSzF2QXY3Zi1BUmdWdkVvLUxyUmsyLXR2ZFh2cERkRUlHTjRXbUpvdjFPRVBKdm9memhTZ2ZhOW5ub2xyWGN5bkFqVEhJT3J3?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi6wFBVV95cUxQeGxZRzVUNDlVUWxiODc5d3VXYlNzaWlhOGlzNUd6UVQzZ0Vta0xEemV0S3llaE1lcVpsSnp0RGpVc1ZpUE9uWTJhNTBVSV9welRyMVh5N05sZGo5R29XQThzNUFVN2NmdzZxSl9zY0kzaVlVNFRzcFJBVWItWUFiN2RHbUJYQmJ0MWdWZ044YXllN2xNYkcwaDV5V2FxNHFJMndmSzF2QXY3Zi1BUmdWdkVvLUxyUmsyLXR2ZFh2cERkRUlHTjRXbUpvdjFPRVBKdm9memhTZ2ZhOW5ub2xyWGN5bkFqVEhJT3J3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
