@@ -1,0 +1,13 @@
+---
+title: "Luciano responde sobre culpado por mau momento do São Paulo mesmo após vitória"
+description: "Luciano responde sobre culpado por mau momento do São Paulo mesmo após vitória  Rádio Itatiaia"
+pubDate: "2026-04-22T00:53:39.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMigAJBVV95cUxONEltdUhVdDZ4WFpUQ2VaZ3RYeXlkWGl6dFRlN2V2ZlRkRTJWWUtDMlhuOUhnckRMbzFwcjV3U1h5MXN4OEhjam5zSmsxeW55c19pa2hlcG9nbmZ3NzNtWFpEbFRsQkVjTGtRLVNpOEJMRWpSRk4weFNzRWhMMU5wLVBkRkxCRjlkQmpTcHhOVS15X0dSMHRDemsxbEZSNXRnc3d1N1haLTE0a05BQm1BOEx2T2dNcDMtbENuV19oUUxHTG1kVXIzWUNWVUJDSEM1TG9BQUJfdkVsVTFpdGFiVERieW52emJQOTMtYjhTT1N5YWJ0Rnc1RGRnV0hwclBu?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAJBVV95cUxONEltdUhVdDZ4WFpUQ2VaZ3RYeXlkWGl6dFRlN2V2ZlRkRTJWWUtDMlhuOUhnckRMbzFwcjV3U1h5MXN4OEhjam5zSmsxeW55c19pa2hlcG9nbmZ3NzNtWFpEbFRsQkVjTGtRLVNpOEJMRWpSRk4weFNzRWhMMU5wLVBkRkxCRjlkQmpTcHhOVS15X0dSMHRDemsxbEZSNXRnc3d1N1haLTE0a05BQm1BOEx2T2dNcDMtbENuV19oUUxHTG1kVXIzWUNWVUJDSEM1TG9BQUJfdkVsVTFpdGFiVERieW52emJQOTMtYjhTT1N5YWJ0Rnc1RGRnV0hwclBu?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

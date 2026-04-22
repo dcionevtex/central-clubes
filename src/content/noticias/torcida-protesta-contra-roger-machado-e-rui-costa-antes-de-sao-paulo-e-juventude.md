@@ -1,0 +1,13 @@
+---
+title: "Torcida protesta contra Roger Machado e Rui Costa antes de São Paulo e Juventude"
+description: "Torcida protesta contra Roger Machado e Rui Costa antes de São Paulo e Juventude  jogada10.com.br"
+pubDate: "2026-04-21T23:36:17.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNUDJ5RlNDbTFuWVFTLXJ2cEU0MllVSzBsMHM4WG5BMHJWUmlZQjVyc183ZGd5U1VRQ2xJM2dOeVBUblczNVV5cWVBaXgyYldMWGZRbmJITlZHU08zYnJFV0gtSTJmZVZxZXZITFlObTJsVng0bVdoSzREUGVjY3FSa1BoZWJ4TWRSTEhwWWN5Sk1BUUduWVR5Vngxamx1SjY4RkR1c2Yzd3fSAa4BQVVfeXFMTlotd215bXQxWXhzUV9PX2FJbnFBZU0wYlpBU2RrVkp5aWI5UnZkWWpQb1kyaVU5YngtcF9xUzczNjV3TDBoM0FiWDdQYnpQdkNRZjc3X2lwY0JIUU9xaTZRSV8xendhZldFVGR1S0MwNVZJdERDMHlLM3ZiLVV1eE1ETjBjbWx6VEJMVndsblVMQkRDdzVMekEwclNCQjV3cFVFUG9USk9BUTExMm5B?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNUDJ5RlNDbTFuWVFTLXJ2cEU0MllVSzBsMHM4WG5BMHJWUmlZQjVyc183ZGd5U1VRQ2xJM2dOeVBUblczNVV5cWVBaXgyYldMWGZRbmJITlZHU08zYnJFV0gtSTJmZVZxZXZITFlObTJsVng0bVdoSzREUGVjY3FSa1BoZWJ4TWRSTEhwWWN5Sk1BUUduWVR5Vngxamx1SjY4RkR1c2Yzd3fSAa4BQVVfeXFMTlotd215bXQxWXhzUV9PX2FJbnFBZU0wYlpBU2RrVkp5aWI5UnZkWWpQb1kyaVU5YngtcF9xUzczNjV3TDBoM0FiWDdQYnpQdkNRZjc3X2lwY0JIUU9xaTZRSV8xendhZldFVGR1S0MwNVZJdERDMHlLM3ZiLVV1eE1ETjBjbWx6VEJMVndsblVMQkRDdzVMekEwclNCQjV3cFVFUG9USk9BUTExMm5B?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

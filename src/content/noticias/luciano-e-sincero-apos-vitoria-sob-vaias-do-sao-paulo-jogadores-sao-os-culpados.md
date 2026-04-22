@@ -1,0 +1,13 @@
+---
+title: "Luciano é sincero após vitória sob vaias do São Paulo: ”Jogadores são os culpados”"
+description: "Luciano é sincero após vitória sob vaias do São Paulo: ”Jogadores são os culpados”  jogada10.com.br"
+pubDate: "2026-04-22T01:12:26.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMipwFBVV95cUxQWjI1cWdzNmNMNXN6Mk1kZ0d3REdZY2FLYXpyeHRPcjQ0TEY0RTNfR2tNdGlzUjJhZFNHN0c5SzBkVXNlS2gtWjFTSTgwVUFyelIxcEVnV0xmQWxIOEFmT19VaHBGLTVVWjdHVnA2dUkzWDBDd3VJVW5qN0JYN0tEU1hrcGhYTWVUNEpwLUJjV1RiQktxWE9LMnBJNmFwM3czY2JTQV92VdIBrAFBVV95cUxNYXY0QmtQZmVhR29UOXN4V09qY1ZXdVdPazFybTFISVZlRkxMdEdJeVE1NlBZa18wR05ZZzFqMWZ5cWwyYnJJTTJWcHBjbWNwckd6bDY5MkNKUFc2Q3hrd0xfUGV5bjNHbngtcy1EeDdHNjhjcWxZTWVSM1hUUFBwbmhyUmxleDA5ZFhNWG00WFZRZ2R0ajlpcnM3QW9aWVVya2cteDVzM0ZvcUc1?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwFBVV95cUxQWjI1cWdzNmNMNXN6Mk1kZ0d3REdZY2FLYXpyeHRPcjQ0TEY0RTNfR2tNdGlzUjJhZFNHN0c5SzBkVXNlS2gtWjFTSTgwVUFyelIxcEVnV0xmQWxIOEFmT19VaHBGLTVVWjdHVnA2dUkzWDBDd3VJVW5qN0JYN0tEU1hrcGhYTWVUNEpwLUJjV1RiQktxWE9LMnBJNmFwM3czY2JTQV92VdIBrAFBVV95cUxNYXY0QmtQZmVhR29UOXN4V09qY1ZXdVdPazFybTFISVZlRkxMdEdJeVE1NlBZa18wR05ZZzFqMWZ5cWwyYnJJTTJWcHBjbWNwckd6bDY5MkNKUFc2Q3hrd0xfUGV5bjNHbngtcy1EeDdHNjhjcWxZTWVSM1hUUFBwbmhyUmxleDA5ZFhNWG00WFZRZ2R0ajlpcnM3QW9aWVVya2cteDVzM0ZvcUc1?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

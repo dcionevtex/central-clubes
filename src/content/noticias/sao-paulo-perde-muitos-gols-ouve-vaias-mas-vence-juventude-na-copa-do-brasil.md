@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde muitos gols, ouve vaias, mas vence Juventude na Copa do Brasil"
+description: "São Paulo perde muitos gols, ouve vaias, mas vence Juventude na Copa do Brasil  jogada10.com.br"
+pubDate: "2026-04-22T00:34:22.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxNTnIwczNzMl9tSUNtWEI2RGo0aVFkcVpaOVB3Qnk5V0x6eWlEZFZrM0cyWm1UbHJXSjU2Z2JxbHZfMzBCdlh6dGhMbWo1UnpBWlkzZVJvWTd5M3JLU1NHUHVHbzB5TUhGSTktUEtOV2lXNUlsY01iVDN3ejc2cEtVWEdKQml1bzVMcTNraXBaeWNKQ2Z1dVRLNWc0c1Btbm43X25z0gGoAUFVX3lxTE9JTGczZnkyNDA3QTQtYU1yaWllT3FETnZnS2lJVFBRc0g4dnlyc18wb2JSeU1nX0Z1YnZELWdvNnVFdTZfT1ppQURMRmZQcE52bzRQZ0piWnN1X2FfMUpJeW5TM3RlTi1jSk1YYXhfTmhqOE9wcnA3aGx4Vm9fUHhFb21yNDFWS1F1VlZJREN6eXdOVDdUakJjREttN2tLUmpkekJPRWkwNw?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxNTnIwczNzMl9tSUNtWEI2RGo0aVFkcVpaOVB3Qnk5V0x6eWlEZFZrM0cyWm1UbHJXSjU2Z2JxbHZfMzBCdlh6dGhMbWo1UnpBWlkzZVJvWTd5M3JLU1NHUHVHbzB5TUhGSTktUEtOV2lXNUlsY01iVDN3ejc2cEtVWEdKQml1bzVMcTNraXBaeWNKQ2Z1dVRLNWc0c1Btbm43X25z0gGoAUFVX3lxTE9JTGczZnkyNDA3QTQtYU1yaWllT3FETnZnS2lJVFBRc0g4dnlyc18wb2JSeU1nX0Z1YnZELWdvNnVFdTZfT1ppQURMRmZQcE52bzRQZ0piWnN1X2FfMUpJeW5TM3RlTi1jSk1YYXhfTmhqOE9wcnA3aGx4Vm9fUHhFb21yNDFWS1F1VlZJREN6eXdOVDdUakJjREttN2tLUmpkekJPRWkwNw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

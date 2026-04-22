@@ -1,0 +1,13 @@
+---
+title: "São Paulo empilha chances perdidas, tem vitória magra sobre Juventude na Copa do Brasil e sai vaiado"
+description: "São Paulo empilha chances perdidas, tem vitória magra sobre Juventude na Copa do Brasil e sai vaiado  Terra"
+pubDate: "2026-04-22T00:25:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMimAJBVV95cUxPa00xTXlKSUZxZkExR2NQbTVIU1ZURWo4OWRHT0VQVjRPbE5lbE1VQldHeTc3WEJ2RGotVTd6eDNPbEdGTXBIYlJITlpyX0ZHbTY0VGJSb3AwZThQU2FqeFB2ZDhiZmNMTEtPYmZCczQ2SnhxQzRxdkljODY5bm1qN09wQVB0NWtsdjgwcmRia2tXTE1qMTJER185eV9wMlI1SVl6enNSNnF6VzR1bm1ndzd6enczdXNxM3lXakdIT2ZQUzhXZUREOVh5YzFuNmE5NS0xWkY2cC1ISkNyb1I3REdKUWxuZzRUU2tJWUM3UHJVRHNwNU9sSWlCR1lkd2hKM1BES3FSUkNLbENOOGVWelV2c0YzNF9w?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAJBVV95cUxPa00xTXlKSUZxZkExR2NQbTVIU1ZURWo4OWRHT0VQVjRPbE5lbE1VQldHeTc3WEJ2RGotVTd6eDNPbEdGTXBIYlJITlpyX0ZHbTY0VGJSb3AwZThQU2FqeFB2ZDhiZmNMTEtPYmZCczQ2SnhxQzRxdkljODY5bm1qN09wQVB0NWtsdjgwcmRia2tXTE1qMTJER185eV9wMlI1SVl6enNSNnF6VzR1bm1ndzd6enczdXNxM3lXakdIT2ZQUzhXZUREOVh5YzFuNmE5NS0xWkY2cC1ISkNyb1I3REdKUWxuZzRUU2tJWUM3UHJVRHNwNU9sSWlCR1lkd2hKM1BES3FSUkNLbENOOGVWelV2c0YzNF9w?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo estreia com vitória magra na Copa do Brasil"
+description: "São Paulo estreia com vitória magra na Copa do Brasil  Folha de S.Paulo"
+pubDate: "2026-04-22T00:24:00.000Z"
+source: "Folha de S.Paulo"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNdGxWS21zVFNzcUVFQ05jVUpYQTRXUHdGMDhrWmdkWGFBMjRLWWJKVGJVV1pHalBRNnZteGlwaVlTTlI1c1BSREJJWlZ0eTRuU19xLUY4dzB4bEtFUlR6RmFDQjJVVnhoRzB0eGJlTU5CdkhFa3lxRXVsU09lWkhvbmgzTzVlRjZ6VWtMV1hYTl9vUG5hLTdmdnFONjhKYVU4NkhTMHRDMnLSAa4BQVVfeXFMTldHZjdXNGRmSWZ0V0lQRW1yRF9ONWhzTDRvMW9qQy1QZXF6UVc0TXN5UkpCRVdNck95MFpxMF9sWndTR0FhbUJNV2NuZlhnT0tJLUF2Rk9WYWtyemd3UDNOMmtheElQQ3M2bUx0amtPaGRhSF9KUGVPRldwUUd2cDl5TXhjRml2TlZlY2ZQd2ktWGQ1c0hZaERWeDA3ZjRkTkJ3c1VGcDRJTnRMRk9B?oc=5"
+---
+
+### Fonte Original: Folha de S.Paulo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNdGxWS21zVFNzcUVFQ05jVUpYQTRXUHdGMDhrWmdkWGFBMjRLWWJKVGJVV1pHalBRNnZteGlwaVlTTlI1c1BSREJJWlZ0eTRuU19xLUY4dzB4bEtFUlR6RmFDQjJVVnhoRzB0eGJlTU5CdkhFa3lxRXVsU09lWkhvbmgzTzVlRjZ6VWtMV1hYTl9vUG5hLTdmdnFONjhKYVU4NkhTMHRDMnLSAa4BQVVfeXFMTldHZjdXNGRmSWZ0V0lQRW1yRF9ONWhzTDRvMW9qQy1QZXF6UVc0TXN5UkpCRVdNck95MFpxMF9sWndTR0FhbUJNV2NuZlhnT0tJLUF2Rk9WYWtyemd3UDNOMmtheElQQ3M2bUx0amtPaGRhSF9KUGVPRldwUUd2cDl5TXhjRml2TlZlY2ZQd2ktWGQ1c0hZaERWeDA3ZjRkTkJ3c1VGcDRJTnRMRk9B?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
