@@ -1,0 +1,13 @@
+---
+title: "Massis banca Roger Machado no São Paulo mesmo sob pressão da torcida"
+description: "Massis banca Roger Machado no São Paulo mesmo sob pressão da torcida  Bolavip Brasil"
+pubDate: "2026-04-23T15:44:46.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxNMzlGNEJsdXp1NG91LXBoMktyeWVJdF9PdmJUcmFhM3pTdzlWVWE4TWFYYXNDdTA4bC1pVk1lRWRfOWprZXFjNkZ2NHROZ1Q0MU40ckJ3V2dCNmttdzRRYjk3V0dTNFNiRmQ0MFI4QVM5RXhfaU5GLXZuQTFTMDN3S3ZDUnpfRzJXWFFTSDJCQWVBZUZXQ1JrVGxmMEc1Nll5dS1F0gGoAUFVX3lxTFB0cUw2WmVoU3ZaYi03T0NybC1NN3BiQ2UzdF8zQlVLN0xyTHpZd2hoOU80UEtJMXc4dGhRTzBacFJXMDhZbEQyMlRaR3ZPR0pId0hJMGFmYTlJWXYtMmpoemJUX1N0eGtacUdFczBmc3htT0JVcWRUVU1QVS1JamY2dGQtZWd1d0JhLVRTWkZiOWthZTRHWU1UYndqcXJ4cnZaWDVwRzNNRQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxNMzlGNEJsdXp1NG91LXBoMktyeWVJdF9PdmJUcmFhM3pTdzlWVWE4TWFYYXNDdTA4bC1pVk1lRWRfOWprZXFjNkZ2NHROZ1Q0MU40ckJ3V2dCNmttdzRRYjk3V0dTNFNiRmQ0MFI4QVM5RXhfaU5GLXZuQTFTMDN3S3ZDUnpfRzJXWFFTSDJCQWVBZUZXQ1JrVGxmMEc1Nll5dS1F0gGoAUFVX3lxTFB0cUw2WmVoU3ZaYi03T0NybC1NN3BiQ2UzdF8zQlVLN0xyTHpZd2hoOU80UEtJMXc4dGhRTzBacFJXMDhZbEQyMlRaR3ZPR0pId0hJMGFmYTlJWXYtMmpoemJUX1N0eGtacUdFczBmc3htT0JVcWRUVU1QVS1JamY2dGQtZWd1d0JhLVRTWkZiOWthZTRHWU1UYndqcXJ4cnZaWDVwRzNNRQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

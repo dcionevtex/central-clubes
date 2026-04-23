@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Massis respalda Roger e Rui Costa"
+description: "São Paulo: Massis respalda Roger e Rui Costa  Portal Hortolândia"
+pubDate: "2026-04-23T16:27:40.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxNQU5ocXRPMDBpOG42cWMtRjFoUmtCYnd6S0xkbVhaaHY2MHlHUjV1Q2J6Sm9CeVJCZ3J4VWZzZXNWeGFoRHlVaVFGTzBWWWV3ZzBJcWVMOUl0bU9XSFJ3STlDMDlTUWFmOGRuY3Bza1BPVVNTdjdfbXVkeXJfRlFsZE1n0gGCAUFVX3lxTE1BTmhxdE8wMGk4bjZxYy1GMWhSa0Jid3pLTGRtWFpodjYweUdSNXVDYnpKb0J5UkJncnhVZnNlc1Z4YWhEeVVpUUZPMFZZZXdnMElxZUw5SXRtT1dIUndJOUMwOVNRYWY4ZG5jcHNrUE9VU1N2N19tdWR5cl9GUWxkTWc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxNQU5ocXRPMDBpOG42cWMtRjFoUmtCYnd6S0xkbVhaaHY2MHlHUjV1Q2J6Sm9CeVJCZ3J4VWZzZXNWeGFoRHlVaVFGTzBWWWV3ZzBJcWVMOUl0bU9XSFJ3STlDMDlTUWFmOGRuY3Bza1BPVVNTdjdfbXVkeXJfRlFsZE1n0gGCAUFVX3lxTE1BTmhxdE8wMGk4bjZxYy1GMWhSa0Jid3pLTGRtWFpodjYweUdSNXVDYnpKb0J5UkJncnhVZnNlc1Z4YWhEeVVpUUZPMFZZZXdnMElxZUw5SXRtT1dIUndJOUMwOVNRYWY4ZG5jcHNrUE9VU1N2N19tdWR5cl9GUWxkTWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
