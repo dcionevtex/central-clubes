@@ -1,0 +1,13 @@
+---
+title: "Lucas avança em recuperação e volta a treinar no São Paulo"
+description: "Lucas avança em recuperação e volta a treinar no São Paulo  jogada10.com.br"
+pubDate: "2026-04-23T20:15:14.000Z"
+source: "jogada10.com.br"
+link: "https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcV9vaWVMeEd4aENYQjB5azZrdEFKT2dPeDVGYXl3amdPWlFBTG96c2VWQk5yR0h0aUlfQjhsTWdsUGx0U0ZpdWd6SlZGX2gtNDB1OXh0X3ZFQU9NYjhBTW01U2xiTTZzdXNKckF6MlZFay1GMmI1NGhjZkliMm44QlJwT2JoeDFCVENF0gGQAUFVX3lxTE1YOW9BUEhMWHU1dHBIdFVBdktMMFF2MVExcTVCY3U1bFoyTVN5YUF0aUV6eUhHTDBpbExMbDdacktzS21RcHJ3VFRjelZkYml0Y1hiM0NQZUdRRkVHSkdUb0d2Unl5N2QzcHVJNmd3LU96TW0wbllXZmFMa1ZBTERmMlpiSVRlcDFlVUtRbjFQcQ?oc=5"
+---
+
+### Fonte Original: jogada10.com.br
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQcV9vaWVMeEd4aENYQjB5azZrdEFKT2dPeDVGYXl3amdPWlFBTG96c2VWQk5yR0h0aUlfQjhsTWdsUGx0U0ZpdWd6SlZGX2gtNDB1OXh0X3ZFQU9NYjhBTW01U2xiTTZzdXNKckF6MlZFay1GMmI1NGhjZkliMm44QlJwT2JoeDFCVENF0gGQAUFVX3lxTE1YOW9BUEhMWHU1dHBIdFVBdktMMFF2MVExcTVCY3U1bFoyTVN5YUF0aUV6eUhHTDBpbExMbDdacktzS21RcHJ3VFRjelZkYml0Y1hiM0NQZUdRRkVHSkdUb0d2Unl5N2QzcHVJNmd3LU96TW0wbllXZmFMa1ZBTERmMlpiSVRlcDFlVUtRbjFQcQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Líder de organizada dá voto de confiança a Roger Machado e critica dirigente do São Paulo"
+description: "Líder de organizada dá voto de confiança a Roger Machado e critica dirigente do São Paulo  Terra"
+pubDate: "2026-04-23T21:24:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiiwJBVV95cUxOcUJDQUNrRFN5S0lYY0I0RGZkWjA0WC1CbHNoQTRqZkcyNUVuNnpHcHNQYnU4TUdVYlVIMVlERnRuWW9ZUHUwWDB3a1Naa01LM0ZoUUxLdVdyZGJzZTd3eDJTSEg0d2RXN21VeGpUVUF6UnpSS0pXZkgtdTNUYnk2d0VCQ3dsWUtCR0hGR0lJMm5WR1JWS3lzdW5aUXpYR2RPUEhONXdxdWwwa1hsUHpUVXo0MW5LdHQ0RkppbWViTnF5bVdqZTU4NDR5ZXAzTTl1U3ktODRBZXpxMnNyNGE5Y3U0QzhZMHFqZ2l5aVJBYVNuRVZaVHo2blVmb1YzRWhWX2RpaDUyNGJ3LTQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwJBVV95cUxOcUJDQUNrRFN5S0lYY0I0RGZkWjA0WC1CbHNoQTRqZkcyNUVuNnpHcHNQYnU4TUdVYlVIMVlERnRuWW9ZUHUwWDB3a1Naa01LM0ZoUUxLdVdyZGJzZTd3eDJTSEg0d2RXN21VeGpUVUF6UnpSS0pXZkgtdTNUYnk2d0VCQ3dsWUtCR0hGR0lJMm5WR1JWS3lzdW5aUXpYR2RPUEhONXdxdWwwa1hsUHpUVXo0MW5LdHQ0RkppbWViTnF5bVdqZTU4NDR5ZXAzTTl1U3ktODRBZXpxMnNyNGE5Y3U0QzhZMHFqZ2l5aVJBYVNuRVZaVHo2blVmb1YzRWhWX2RpaDUyNGJ3LTQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
