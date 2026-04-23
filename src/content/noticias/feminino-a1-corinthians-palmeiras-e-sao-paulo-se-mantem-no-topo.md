@@ -1,0 +1,13 @@
+---
+title: "Feminino A1: Corinthians, Palmeiras e São Paulo se mantêm no topo"
+description: "Feminino A1: Corinthians, Palmeiras e São Paulo se mantêm no topo  CBF"
+pubDate: "2026-04-22T18:34:00.000Z"
+source: "CBF"
+link: "https://news.google.com/rss/articles/CBMiiwJBVV95cUxNYTRCRnBXQWhZeTJvLTZvU3BCLXNnTlEybEMwU0NBYWNOa3FmVG1JVHpHYTlYTDZhWGIxVXRaS0lyYXNHdmkyRDl1UThpWG9pUkgwR0kydGF6alRyMzYxUGpLRDlzVXRFdFJvbUpVel92YmFuWlBrLTA0SVNlWUxvRlF4YWgtd1ZhZm9ONDlhUk41TzN5OWp5b2k3VmlaSWYyNXhEMC05NVBxOEtPZTMwN05jZVFReWtKWEVpajBHbzdqOXFORjNab0VuUjRQT0JKX0tDT0pCdGdHaE5jcTd5cEg2dTdmcXd5Q2l1UVN2TUI1b1BCREFzVlhLX0xzeGR3U1hkZjBMZUExQjQ?oc=5"
+---
+
+### Fonte Original: CBF
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwJBVV95cUxNYTRCRnBXQWhZeTJvLTZvU3BCLXNnTlEybEMwU0NBYWNOa3FmVG1JVHpHYTlYTDZhWGIxVXRaS0lyYXNHdmkyRDl1UThpWG9pUkgwR0kydGF6alRyMzYxUGpLRDlzVXRFdFJvbUpVel92YmFuWlBrLTA0SVNlWUxvRlF4YWgtd1ZhZm9ONDlhUk41TzN5OWp5b2k3VmlaSWYyNXhEMC05NVBxOEtPZTMwN05jZVFReWtKWEVpajBHbzdqOXFORjNab0VuUjRQT0JKX0tDT0pCdGdHaE5jcTd5cEg2dTdmcXd5Q2l1UVN2TUI1b1BCREFzVlhLX0xzeGR3U1hkZjBMZUExQjQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

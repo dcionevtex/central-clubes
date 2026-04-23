@@ -1,0 +1,13 @@
+---
+title: "Com bom início no São Paulo, Artur lidera estatísticas de criação do elenco"
+description: "Com bom início no São Paulo, Artur lidera estatísticas de criação do elenco  Gazeta Esportiva"
+pubDate: "2026-04-23T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiVEFVX3lxTE1zdUxKdkowWFg3MUNyRGNoa0lYMjhzSWQ0RTNsbkxVMXFNZXFGZGJTdEREM2hxdld0N3NIREktOWQ0WDdjekkwXzMwOHFXTkh2aGhpU9IBxgFBVV95cUxNZ2YtUUFEMUNYU3JVQjVKb1hIbEF2c1FJTEd3b0NGVTNjbURWdjFzdjlmMGpqZF9iWGthQzhPQ2RrU000MktlY216X0NZbW42S2xGOFdJdjN5aUpuVkwzY25TSVdRU2dlb2JMQkkyQ1NOOWhuT2o1SU9fSzdMMmZxN0N6M1RKWVdyVUN2QlNQYy1IY2tBUVVXTkstVURhSHVyRXUxTkJFcV9aZHlzdmt1dEFKZGFYTWhyM3JzUG15dTZJSGFacEE?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiVEFVX3lxTE1zdUxKdkowWFg3MUNyRGNoa0lYMjhzSWQ0RTNsbkxVMXFNZXFGZGJTdEREM2hxdld0N3NIREktOWQ0WDdjekkwXzMwOHFXTkh2aGhpU9IBxgFBVV95cUxNZ2YtUUFEMUNYU3JVQjVKb1hIbEF2c1FJTEd3b0NGVTNjbURWdjFzdjlmMGpqZF9iWGthQzhPQ2RrU000MktlY216X0NZbW42S2xGOFdJdjN5aUpuVkwzY25TSVdRU2dlb2JMQkkyQ1NOOWhuT2o1SU9fSzdMMmZxN0N6M1RKWVdyVUN2QlNQYy1IY2tBUVVXTkstVURhSHVyRXUxTkJFcV9aZHlzdmt1dEFKZGFYTWhyM3JzUG15dTZJSGFacEE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
