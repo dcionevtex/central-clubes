@@ -1,0 +1,13 @@
+---
+title: "Gol de Luciano o aproxima de feito de Rogério Ceni"
+description: "Gol de Luciano o aproxima de feito de Rogério Ceni  Portal Hortolândia"
+pubDate: "2026-04-22T15:14:33.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE1zMVkzNnhYbzR2T2ljOHFKN19aVnRqbkhLaWxlbHphSFJVR1gwd2FWaExVeGFCVjk3aXVSbklGX0FaN1lpcG00NTFDSUE0REpYZ2FlcDc5VVJrclBsX0NFT3lNaVhoYV9pRDV2U0ZtcTRuZXFCcl8zRk1OVWdUQdIBfkFVX3lxTE1zMVkzNnhYbzR2T2ljOHFKN19aVnRqbkhLaWxlbHphSFJVR1gwd2FWaExVeGFCVjk3aXVSbklGX0FaN1lpcG00NTFDSUE0REpYZ2FlcDc5VVJrclBsX0NFT3lNaVhoYV9pRDV2U0ZtcTRuZXFCcl8zRk1OVWdUQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE1zMVkzNnhYbzR2T2ljOHFKN19aVnRqbkhLaWxlbHphSFJVR1gwd2FWaExVeGFCVjk3aXVSbklGX0FaN1lpcG00NTFDSUE0REpYZ2FlcDc5VVJrclBsX0NFT3lNaVhoYV9pRDV2U0ZtcTRuZXFCcl8zRk1OVWdUQdIBfkFVX3lxTE1zMVkzNnhYbzR2T2ljOHFKN19aVnRqbkhLaWxlbHphSFJVR1gwd2FWaExVeGFCVjk3aXVSbklGX0FaN1lpcG00NTFDSUE0REpYZ2FlcDc5VVJrclBsX0NFT3lNaVhoYV9pRDV2U0ZtcTRuZXFCcl8zRk1OVWdUQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
