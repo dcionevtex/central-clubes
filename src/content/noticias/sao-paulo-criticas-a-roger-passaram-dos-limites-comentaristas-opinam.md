@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Críticas a Roger passaram dos limites? Comentaristas opinam"
+description: "São Paulo: Críticas a Roger passaram dos limites? Comentaristas opinam  UOL"
+pubDate: "2026-04-24T00:25:17.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMirgJBVV95cUxOR2o5b194TjRoc2Q0bXhDajlFQURaWVJlRmpadzBMbmVFM2dzTVVMZGVJY2NRNFJoTjF5cHM4WHdjUUNMb28zR0k5U0gwOFJ3MzlhajMxQ2pnZE9JZmFPUjllRkJNLXRFa1phVWh2STFHTUZVY0ZGMU1qU0R3Q2dIWlA2QXlLcWV1S1BDSFM5TUlWYy1oS3ljUlFhZ05TcHlSQTVLRjNydnNKTk00amt0aTBBRW1mS281NzdmdE5wS0c3NXZhdjZMQmR3NG5vN0hnQjRHU3ByVTl6WWd0anVDWmZxcWlueWo0eG9uZ0hVNEtDbkg0Vmd6N1VrVnhIYURSWWN5NlFnV3MxWFdwWldjMUFHeXk1UVkybjFwYWJGR1ZjbFNFRGJYaU5teEJfdw?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgJBVV95cUxOR2o5b194TjRoc2Q0bXhDajlFQURaWVJlRmpadzBMbmVFM2dzTVVMZGVJY2NRNFJoTjF5cHM4WHdjUUNMb28zR0k5U0gwOFJ3MzlhajMxQ2pnZE9JZmFPUjllRkJNLXRFa1phVWh2STFHTUZVY0ZGMU1qU0R3Q2dIWlA2QXlLcWV1S1BDSFM5TUlWYy1oS3ljUlFhZ05TcHlSQTVLRjNydnNKTk00amt0aTBBRW1mS281NzdmdE5wS0c3NXZhdjZMQmR3NG5vN0hnQjRHU3ByVTl6WWd0anVDWmZxcWlueWo0eG9uZ0hVNEtDbkg0Vmd6N1VrVnhIYURSWWN5NlFnV3MxWFdwWldjMUFHeXk1UVkybjFwYWJGR1ZjbFNFRGJYaU5teEJfdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
