@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Corinthians (sub-20): onde assistir, escalações e arbitragem"
+description: "São Paulo x Corinthians (sub-20): onde assistir, escalações e arbitragem  Jogada 10"
+pubDate: "2026-04-24T15:07:05.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxPZEVYMnBWT0dCa2czTy15N3BKdjYyTjIxRXZIb1RoQjVSMDRIekdjTHh6U1g1b3FiSDU4LVRLSlhINHVCbmVjUUVxWVlfVnhaQzZMUWUzTGhLWHhWVlRkR2twYTJtbUlkMGwxYmFjWUMwb0tZX3RCM2J2ZXNHY01NQzN3R3QxTWJZSUxhOXJ4N0dxM1hOa1NFOUlWY9IBoAFBVV95cUxNQXVnVzJ4eFVwUjIweUJpYlFBLWVXNnlCZVpIdDZZbTFIZGNHbmI1Y3J6T0JCank1eTNJYWtTTlRXZXZVdkJHenpBRVhSdVQ0WV93SFRVQnN6RGRKeFJiZTJnR0ZhdUZZc2JyVzdiRGthVDlTa3dZLUxsQ3MxWDVrc2h5SXBESXJBeml4emxvcTZKbUp5b3F5YjM2bm4yNS1r?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxPZEVYMnBWT0dCa2czTy15N3BKdjYyTjIxRXZIb1RoQjVSMDRIekdjTHh6U1g1b3FiSDU4LVRLSlhINHVCbmVjUUVxWVlfVnhaQzZMUWUzTGhLWHhWVlRkR2twYTJtbUlkMGwxYmFjWUMwb0tZX3RCM2J2ZXNHY01NQzN3R3QxTWJZSUxhOXJ4N0dxM1hOa1NFOUlWY9IBoAFBVV95cUxNQXVnVzJ4eFVwUjIweUJpYlFBLWVXNnlCZVpIdDZZbTFIZGNHbmI1Y3J6T0JCank1eTNJYWtTTlRXZXZVdkJHenpBRVhSdVQ0WV93SFRVQnN6RGRKeFJiZTJnR0ZhdUZZc2JyVzdiRGthVDlTa3dZLUxsQ3MxWDVrc2h5SXBESXJBeml4emxvcTZKbUp5b3F5YjM2bm4yNS1r?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
