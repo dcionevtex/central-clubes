@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Veja a provável escalação para enfrentar o Mirassol"
+description: "São Paulo: Veja a provável escalação para enfrentar o Mirassol  Portal Hortolândia"
+pubDate: "2026-04-24T19:57:55.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0VnNU0wSkxwRDRxQV9oc0lBWkpxTTZTb1cxUXl3TUlZV28zbHZJV0wxencySGtqUjg5X3ZkU3RJbXZHaHNrT1d0T0NFM24zZkg3T1JiNEpuUTcxdzFvcHRCM09WU2FVNy1CTFJHY2RtVENzcHF1eHNoWV8zLXNrRjdUOE3SAYQBQVVfeXFMT2tFZzVNMEpMcEQ0cUFfaHNJQVpKcU02U29XMVF5d01JWVdvM2x2SVdMMXp3MkhralI4OV92ZFN0SW12R2hza09XdE9DRTNuM2ZIN09SYjRKblE3MXcxb3B0QjNPVlNhVTctQkxSR2NkbVRDc3BxdXhzaFlfMy1za0Y3VDhN?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxPa0VnNU0wSkxwRDRxQV9oc0lBWkpxTTZTb1cxUXl3TUlZV28zbHZJV0wxencySGtqUjg5X3ZkU3RJbXZHaHNrT1d0T0NFM24zZkg3T1JiNEpuUTcxdzFvcHRCM09WU2FVNy1CTFJHY2RtVENzcHF1eHNoWV8zLXNrRjdUOE3SAYQBQVVfeXFMT2tFZzVNMEpMcEQ0cUFfaHNJQVpKcU02U29XMVF5d01JWVdvM2x2SVdMMXp3MkhralI4OV92ZFN0SW12R2hza09XdE9DRTNuM2ZIN09SYjRKblE3MXcxb3B0QjNPVlNhVTctQkxSR2NkbVRDc3BxdXhzaFlfMy1za0Y3VDhN?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
