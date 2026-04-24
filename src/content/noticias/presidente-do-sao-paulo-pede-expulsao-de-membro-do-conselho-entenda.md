@@ -1,0 +1,13 @@
+---
+title: "Presidente do São Paulo pede expulsão de membro do Conselho; entenda"
+description: "Presidente do São Paulo pede expulsão de membro do Conselho; entenda  Esporte News Mundo"
+pubDate: "2026-04-24T04:41:15.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxOOHp2eFk0dm41a2xBQko4NlR1YWN6YTlUV0tPNWI1UnE4WVFhWFpmTllQTHJST1FyZUNLZGxTdGw2NklSeXBxTzJYUWhXd3I4Uk5DdW95cDFuUGlXMXhOaXMycTJPOF9aeTJoZU5lcVA5YmRpSlA2ak0zQzFaX2ZOYlJfLVZoUHZBbVJHRzEwVGtLQzVnRU9KWDBkNXBKaVp1WHfSAacBQVVfeXFMT2t4WDE1UWRRMExIanBVTTVKU2U1bGVFWmFrXzA5aTNuM3F2NGhFTmZSSExJMXVHT2xQOThoSUhBVE5WTGFTYTZibUU5V0NnOFpSaG9ra3ZNWWo1eF9sY1pOX2VEaVR2VHJqaVdPVGNaVXd4UzJlYXctUUtDTERnbTVxR3lrYVl5amRlczdmaXRDNjZ4a04wZ2dJRV9DZDlrajF6a2hoMU0?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxOOHp2eFk0dm41a2xBQko4NlR1YWN6YTlUV0tPNWI1UnE4WVFhWFpmTllQTHJST1FyZUNLZGxTdGw2NklSeXBxTzJYUWhXd3I4Uk5DdW95cDFuUGlXMXhOaXMycTJPOF9aeTJoZU5lcVA5YmRpSlA2ak0zQzFaX2ZOYlJfLVZoUHZBbVJHRzEwVGtLQzVnRU9KWDBkNXBKaVp1WHfSAacBQVVfeXFMT2t4WDE1UWRRMExIanBVTTVKU2U1bGVFWmFrXzA5aTNuM3F2NGhFTmZSSExJMXVHT2xQOThoSUhBVE5WTGFTYTZibUU5V0NnOFpSaG9ra3ZNWWo1eF9sY1pOX2VEaVR2VHJqaVdPVGNaVXd4UzJlYXctUUtDTERnbTVxR3lrYVl5amRlczdmaXRDNjZ4a04wZ2dJRV9DZDlrajF6a2hoMU0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
