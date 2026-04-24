@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger aposta em aproveitamento nas copas por retomada no Brasileiro"
+description: "São Paulo: Roger aposta em aproveitamento nas copas por retomada no Brasileiro  Rádio Itatiaia"
+pubDate: "2026-04-24T09:00:21.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_wFBVV95cUxNM2dseldVQnR6dEkwV3NkalJabEhIN1NNU2FISjluaGlocGY0RVJZOXhENW5xUHZ3bzlLNExySTNqTFA0c1pZQlBMTWZuci1mSG5TeU8zRmNjTmZlSlBLZEdOTWVqUG81dDNZNnZWQnJlRFM0Sm0yQktQMkZQRlFPLU9POHI5Ylo0YmV3QUFvaUVxdE51VW5aY1Joc1U5bWtsOFo1RVl1WnE1STNPN0IzbERMY2xNaktlN012N0xySUdySXVzSGJaM3RwT2RuN19iVFZxZUM1eW5QU2tFUk5Mbm1CV1VUSk92bUVWM3BibC11QVZ5Sy1tWFROWmNaTFE?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_wFBVV95cUxNM2dseldVQnR6dEkwV3NkalJabEhIN1NNU2FISjluaGlocGY0RVJZOXhENW5xUHZ3bzlLNExySTNqTFA0c1pZQlBMTWZuci1mSG5TeU8zRmNjTmZlSlBLZEdOTWVqUG81dDNZNnZWQnJlRFM0Sm0yQktQMkZQRlFPLU9POHI5Ylo0YmV3QUFvaUVxdE51VW5aY1Joc1U5bWtsOFo1RVl1WnE1STNPN0IzbERMY2xNaktlN012N0xySUdySXVzSGJaM3RwT2RuN19iVFZxZUM1eW5QU2tFUk5Mbm1CV1VUSk92bUVWM3BibC11QVZ5Sy1tWFROWmNaTFE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
