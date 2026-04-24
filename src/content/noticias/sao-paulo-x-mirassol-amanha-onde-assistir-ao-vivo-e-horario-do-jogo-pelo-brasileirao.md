@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Mirassol amanhã: onde assistir ao vivo e horário do jogo pelo Brasileirão"
+description: "São Paulo x Mirassol amanhã: onde assistir ao vivo e horário do jogo pelo Brasileirão  GZH"
+pubDate: "2026-04-24T11:01:35.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMikgJBVV95cUxOM2tWVkcxUUs5Tjl2Y01Zd1VITFp1WlJRUlBHRUpuaVlMMjIxbnlwbkd5VkFWLTFUaEhmMHF0ZEhubHV0aktYc05PN05scVgyNjRQSTJBWjdINk0yZTM0UXhmZlUwT1prbVZhTE9jM0F3dENIb1ZUTk9WZ2pYMnRhU3pKX0NpNW9lclBwWWRWOWZ2QUZ1WnlZY1U0TGxUUVhHWUNUNVBPZzNqRWhSdGg5RkhxVzZqV0J1LVhuT0VNUmNueTA3RmRRSi1JS3BGOW1pZnppNFIyTkZOa2FfeEk5bUNHRDVJYWQtcDdKaFE2OGhQYWRSNnIycW9rZDc2WHR0WF9qMXlRa1BQbS0tRnhWTHFB?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgJBVV95cUxOM2tWVkcxUUs5Tjl2Y01Zd1VITFp1WlJRUlBHRUpuaVlMMjIxbnlwbkd5VkFWLTFUaEhmMHF0ZEhubHV0aktYc05PN05scVgyNjRQSTJBWjdINk0yZTM0UXhmZlUwT1prbVZhTE9jM0F3dENIb1ZUTk9WZ2pYMnRhU3pKX0NpNW9lclBwWWRWOWZ2QUZ1WnlZY1U0TGxUUVhHWUNUNVBPZzNqRWhSdGg5RkhxVzZqV0J1LVhuT0VNUmNueTA3RmRRSi1JS3BGOW1pZnppNFIyTkZOa2FfeEk5bUNHRDVJYWQtcDdKaFE2OGhQYWRSNnIycW9rZDc2WHR0WF9qMXlRa1BQbS0tRnhWTHFB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
