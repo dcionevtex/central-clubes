@@ -1,0 +1,13 @@
+---
+title: "Presidente do São Paulo pede voto de confiança a Roger Machado"
+description: "Presidente do São Paulo pede voto de confiança a Roger Machado  Portal Hortolândia"
+pubDate: "2026-04-24T01:04:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTFBiYzV1VFJOdjlUOHBjSEVGTTdhR05XZzU2VWtDZEtWcTdPTExIcTVyeFZ1MWFRbXRQTkxLeVIydk1zUHlLdVhwVVlnQ2hMSWRfSzVZYnh0WFZIWW45RVNxV25ia0hQNEhIQzNIVWxZb0g5Znk0YU9hd1FCeEltX1HSAX9BVV95cUxQYmM1dVRSTnY5VDhwY0hFRk03YUdOV2c1NlVrQ2RLVnE3T0xMSHE1cnhWdTFhUW10UE5MS3lSMnZNc1B5S3VYcFVZZ0NoTElkX0s1WWJ4dFhWSFluOUVTcVduYmtIUDRISEMzSFVsWW9IOWZ5NGFPYXdRQnhJbV9R?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTFBiYzV1VFJOdjlUOHBjSEVGTTdhR05XZzU2VWtDZEtWcTdPTExIcTVyeFZ1MWFRbXRQTkxLeVIydk1zUHlLdVhwVVlnQ2hMSWRfSzVZYnh0WFZIWW45RVNxV25ia0hQNEhIQzNIVWxZb0g5Znk0YU9hd1FCeEltX1HSAX9BVV95cUxQYmM1dVRSTnY5VDhwY0hFRk03YUdOV2c1NlVrQ2RLVnE3T0xMSHE1cnhWdTFhUW10UE5MS3lSMnZNc1B5S3VYcFVZZ0NoTElkX0s1WWJ4dFhWSFluOUVTcVduYmtIUDRISEMzSFVsWW9IOWZ5NGFPYXdRQnhJbV9R?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
