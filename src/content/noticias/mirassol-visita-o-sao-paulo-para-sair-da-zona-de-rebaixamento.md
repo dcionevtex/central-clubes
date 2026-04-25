@@ -1,0 +1,13 @@
+---
+title: "Mirassol visita o São Paulo para sair da zona de rebaixamento"
+description: "Mirassol visita o São Paulo para sair da zona de rebaixamento  Esporte News Mundo"
+pubDate: "2026-04-25T19:20:48.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNWGhGbFJGS3ZobGVGZ2UyQXV4Uk9Fa1FRT04xaFRURmRfUVNpeUpsQ3d5eENCYlVjSHpjVVpKYzFlN25iWmpFMGY2RVFIcEQySDNhaHhpbXpqaXlkY3hHLWxVdjljTmJQdHg4Slg2bExqV2c5dzdIVmt3dEp2bUczWkdtUm5aNXp4ZUFhLUU4VVpKeFYzY1U5T3Bn0gGfAUFVX3lxTE4xYVZlQ2trQ1Zrbmt6YkpjZElabGdPOTVFTUMyTEhmMU95RTQ1OV9rRWFka0l5V1U2WWdvcFdtSGJXQk01UkJHUFlaUmM3YzZsaHhNVjFfTVY4RUpNVTVhSXEtNWZ5QjlIRHh2LThjNU1YdGRIdFBzN01pc3lCVW9Idmk5N29fTkcyMDU1MTdKc2hMMDhQZ1pITmVWRFd5VQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNWGhGbFJGS3ZobGVGZ2UyQXV4Uk9Fa1FRT04xaFRURmRfUVNpeUpsQ3d5eENCYlVjSHpjVVpKYzFlN25iWmpFMGY2RVFIcEQySDNhaHhpbXpqaXlkY3hHLWxVdjljTmJQdHg4Slg2bExqV2c5dzdIVmt3dEp2bUczWkdtUm5aNXp4ZUFhLUU4VVpKeFYzY1U5T3Bn0gGfAUFVX3lxTE4xYVZlQ2trQ1Zrbmt6YkpjZElabGdPOTVFTUMyTEhmMU95RTQ1OV9rRWFka0l5V1U2WWdvcFdtSGJXQk01UkJHUFlaUmM3YzZsaHhNVjFfTVY4RUpNVTVhSXEtNWZ5QjlIRHh2LThjNU1YdGRIdFBzN01pc3lCVW9Idmk5N29fTkcyMDU1MTdKc2hMMDhQZ1pITmVWRFd5VQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

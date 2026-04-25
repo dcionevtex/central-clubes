@@ -1,0 +1,13 @@
+---
+title: "Imagens da chegada do Vasco a São Paulo"
+description: "Imagens da chegada do Vasco a São Paulo  SuperVasco"
+pubDate: "2026-04-25T18:51:00.000Z"
+source: "SuperVasco"
+link: "https://news.google.com/rss/articles/CBMikAFBVV95cUxQZ3NFSXBiR0lLOVF4RXZsUnZIeUxsMU9JdERQakNIZWxrT2R0SkYtWEJSRjQ0QVRFNWhzb3NxdktQV1hxX0NxcHNfOFExY3VCd1pmNi13T0oyYzROYWZNZlVZMnJmZDlNRk5hd2xld01ad1ZQSVA0OUtHc2RlY3J0N1BlWVFJZFo5M3Z3MzdvM0_SAZMBQVVfeXFMTnJUM0djbjkxY3NhSDRKeF9ISjd4WF81RHZNSEFSXzR3OU55QWhSNWxaVU9EY09RTHotNDlta2NLOGpnVjZsZVVMVWtGWVF6M3RxWlkzU283LU5DdTdXd0ZZQnl4R3NaUVdHT25IaElCOWJiS3EycTlRSVNPRG1UejNCQXB1YkpOazllbUo5QWxpSGZJ?oc=5"
+---
+
+### Fonte Original: SuperVasco
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAFBVV95cUxQZ3NFSXBiR0lLOVF4RXZsUnZIeUxsMU9JdERQakNIZWxrT2R0SkYtWEJSRjQ0QVRFNWhzb3NxdktQV1hxX0NxcHNfOFExY3VCd1pmNi13T0oyYzROYWZNZlVZMnJmZDlNRk5hd2xld01ad1ZQSVA0OUtHc2RlY3J0N1BlWVFJZFo5M3Z3MzdvM0_SAZMBQVVfeXFMTnJUM0djbjkxY3NhSDRKeF9ISjd4WF81RHZNSEFSXzR3OU55QWhSNWxaVU9EY09RTHotNDlta2NLOGpnVjZsZVVMVWtGWVF6M3RxWlkzU283LU5DdTdXd0ZZQnl4R3NaUVdHT25IaElCOWJiS3EycTlRSVNPRG1UejNCQXB1YkpOazllbUo5QWxpSGZJ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
