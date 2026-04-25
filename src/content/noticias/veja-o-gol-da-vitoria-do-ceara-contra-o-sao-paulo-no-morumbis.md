@@ -1,0 +1,13 @@
+---
+title: "VEJA O GOL DA VITÓRIA DO CEARÁ CONTRA O SÃO PAULO NO MORUMBIS"
+description: "VEJA O GOL DA VITÓRIA DO CEARÁ CONTRA O SÃO PAULO NO MORUMBIS  LANCE!"
+pubDate: "2026-04-24T22:33:31.000Z"
+source: "LANCE!"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxOeDkya3J4TXJ3d3Y3NU1GY3dJNGJkVUZNZ202SDRSZXdSQ184bkplaGVvV3doTGE1ZGl0djNWakE3ZHdqaU9JVnY4MzRLUE11X00zRHZSZldhLXVVeTlvQzVjMHVYMW50UEdsV0ZXOWptT1hvMDJjRG1MYTI3NExlREpybTRKN29zWWwzLURqN1l6WElMUlBKbQ?oc=5"
+---
+
+### Fonte Original: LANCE!
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxOeDkya3J4TXJ3d3Y3NU1GY3dJNGJkVUZNZ202SDRSZXdSQ184bkplaGVvV3doTGE1ZGl0djNWakE3ZHdqaU9JVnY4MzRLUE11X00zRHZSZldhLXVVeTlvQzVjMHVYMW50UEdsV0ZXOWptT1hvMDJjRG1MYTI3NExlREpybTRKN29zWWwzLURqN1l6WElMUlBKbQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
