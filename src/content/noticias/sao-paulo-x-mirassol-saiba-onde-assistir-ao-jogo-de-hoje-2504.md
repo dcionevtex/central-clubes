@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Mirassol: saiba onde assistir ao jogo de hoje, 25/04"
+description: "São Paulo x Mirassol: saiba onde assistir ao jogo de hoje, 25/04  iG Esportes"
+pubDate: "2026-04-25T03:00:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxPSC1SX18wellnR2JNTUh5cF9GenlqN2JEemR2RGxhYkdmdXpxNHZMMm9pMmdmR2ktSnIzTXczcUJBVzhZa1VuQUNkaTB0M2xvOEkzUldnUS14QW44NzNacTRjMGZmbUJZNnhvcldCaFRvRGo5bkNXZEMza2JNS0VVbjVqc1RyQnhCajNyX29OM0VaQncyNllPLUpWQdIBoAFBVV95cUxPN0tRNnh6REp1UldRNUsyaHlEMHFJUGp2cVN3NDVrWDJ2Qi1ubFRINWV1b1REWUVlUVVmdDYydTZoYzJQc19RcW1lMURyQ0xnMExQVVI3Y1AtYmlEQTItNmhmTXVhZkRPeXFQSm1VVU9rYmlrOHNxVzJkdEUxQ29NU21Ic25xal9HLVBGSmY0ZG9Rci14Zm5BVVI5S05wcVhJ?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxPSC1SX18wellnR2JNTUh5cF9GenlqN2JEemR2RGxhYkdmdXpxNHZMMm9pMmdmR2ktSnIzTXczcUJBVzhZa1VuQUNkaTB0M2xvOEkzUldnUS14QW44NzNacTRjMGZmbUJZNnhvcldCaFRvRGo5bkNXZEMza2JNS0VVbjVqc1RyQnhCajNyX29OM0VaQncyNllPLUpWQdIBoAFBVV95cUxPN0tRNnh6REp1UldRNUsyaHlEMHFJUGp2cVN3NDVrWDJ2Qi1ubFRINWV1b1REWUVlUVVmdDYydTZoYzJQc19RcW1lMURyQ0xnMExQVVI3Y1AtYmlEQTItNmhmTXVhZkRPeXFQSm1VVU9rYmlrOHNxVzJkdEUxQ29NU21Ic25xal9HLVBGSmY0ZG9Rci14Zm5BVVI5S05wcVhJ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
