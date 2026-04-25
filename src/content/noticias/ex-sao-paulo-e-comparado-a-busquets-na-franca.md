@@ -1,0 +1,13 @@
+---
+title: "Ex-São Paulo é comparado a Busquets na França"
+description: "Ex-São Paulo é comparado a Busquets na França  Portal Hortolândia"
+pubDate: "2026-04-25T21:00:30.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE5pSHo2M0hFMWh5VzNfT0VNQ2Fma1U2cXFtSklKYlpZelpieW1PMndvOUpCWk4weEZjdnBVb2VWRmdLcTVlTkEyQVMwRmZmNWp5V2FodjI1UWo4aWpSQ3ZqbXVReE5lMWFjcWpDTzBDdG4xcHlSbXlsTWhn0gF6QVVfeXFMTmlIejYzSEUxaHlXM19PRU1DYWZrVTZxcW1KSUpiWll6WmJ5bU8yd285SkJaTjB4RmN2cFVvZVZGZ0txNWVOQTJBUzBGZmY1anlXYWh2MjVRajhpalJDdmptdVF4TmUxYWNxakNPMEN0bjFweVJteWxNaGc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE5pSHo2M0hFMWh5VzNfT0VNQ2Fma1U2cXFtSklKYlpZelpieW1PMndvOUpCWk4weEZjdnBVb2VWRmdLcTVlTkEyQVMwRmZmNWp5V2FodjI1UWo4aWpSQ3ZqbXVReE5lMWFjcWpDTzBDdG4xcHlSbXlsTWhn0gF6QVVfeXFMTmlIejYzSEUxaHlXM19PRU1DYWZrVTZxcW1KSUpiWll6WmJ5bU8yd285SkJaTjB4RmN2cFVvZVZGZ0txNWVOQTJBUzBGZmY1anlXYWh2MjVRajhpalJDdmptdVF4TmUxYWNxakNPMEN0bjFweVJteWxNaGc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
