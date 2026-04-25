@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Mirassol: Detalhes e como assistir ao vivo"
+description: "São Paulo x Mirassol: Detalhes e como assistir ao vivo  Portal Hortolândia"
+pubDate: "2026-04-25T22:37:53.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQOU11VjJNVlhwbDJ0dENwcFl1clhHdDRWMTNMQzhuaTdvWVB5MElLV28wc2pBRjA2MXFLWk5QUnBaQ1NFUFl5VWtoWkY0bldTSHdDdEVVMllESjBRSC1sTFl5ZnFOeTVoTlg0dkQ2NE5xZk5XSUFTVmJxbThZQ2JJadIBgAFBVV95cUxQOU11VjJNVlhwbDJ0dENwcFl1clhHdDRWMTNMQzhuaTdvWVB5MElLV28wc2pBRjA2MXFLWk5QUnBaQ1NFUFl5VWtoWkY0bldTSHdDdEVVMllESjBRSC1sTFl5ZnFOeTVoTlg0dkQ2NE5xZk5XSUFTVmJxbThZQ2JJaQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQOU11VjJNVlhwbDJ0dENwcFl1clhHdDRWMTNMQzhuaTdvWVB5MElLV28wc2pBRjA2MXFLWk5QUnBaQ1NFUFl5VWtoWkY0bldTSHdDdEVVMllESjBRSC1sTFl5ZnFOeTVoTlg0dkQ2NE5xZk5XSUFTVmJxbThZQ2JJadIBgAFBVV95cUxQOU11VjJNVlhwbDJ0dENwcFl1clhHdDRWMTNMQzhuaTdvWVB5MElLV28wc2pBRjA2MXFLWk5QUnBaQ1NFUFl5VWtoWkY0bldTSHdDdEVVMllESjBRSC1sTFl5ZnFOeTVoTlg0dkQ2NE5xZk5XSUFTVmJxbThZQ2JJaQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
