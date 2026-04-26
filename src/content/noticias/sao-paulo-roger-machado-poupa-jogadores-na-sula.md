@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger Machado poupa jogadores na Sula"
+description: "São Paulo: Roger Machado poupa jogadores na Sula  Portal Hortolândia"
+pubDate: "2026-04-26T19:37:35.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxNOWZKa2gtakg5dkR6bW9Day1FVnJUcHRZWC1MZUc5THEtVVpwT2pBYnhteGJVMkI2ekxyVTRlakdnNkZySjk1c0V2WjlKSVhWeVVleVl2TTZuRHRVV0IwOURBeHo2Vkw2YS0wMEJpaXA3MnBBb3RQdHZOdlBtT1VGSWp1TnA3V0HSAYcBQVVfeXFMTTlmSmtoLWpIOXZEem1vQ2stRVZyVHB0WVgtTGVHOUxxLVVacE9qQWJ4bXhiVTJCNnpMclU0ZWpHZzZGcko5NXNFdlo5SklYVnlVZXlZdk02bkR0VVdCMDlEQXh6NlZMNmEtMDBCaWlwNzJwQW90UHR2TnZQbU9VRklqdU5wN1dB?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxNOWZKa2gtakg5dkR6bW9Day1FVnJUcHRZWC1MZUc5THEtVVpwT2pBYnhteGJVMkI2ekxyVTRlakdnNkZySjk1c0V2WjlKSVhWeVVleVl2TTZuRHRVV0IwOURBeHo2Vkw2YS0wMEJpaXA3MnBBb3RQdHZOdlBtT1VGSWp1TnA3V0HSAYcBQVVfeXFMTTlmSmtoLWpIOXZEem1vQ2stRVZyVHB0WVgtTGVHOUxxLVVacE9qQWJ4bXhiVTJCNnpMclU0ZWpHZzZGcko5NXNFdlo5SklYVnlVZXlZdk02bkR0VVdCMDlEQXh6NlZMNmEtMDBCaWlwNzJwQW90UHR2TnZQbU9VRklqdU5wN1dB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
