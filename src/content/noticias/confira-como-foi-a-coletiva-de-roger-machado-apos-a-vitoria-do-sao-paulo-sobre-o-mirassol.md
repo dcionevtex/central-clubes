@@ -1,0 +1,13 @@
+---
+title: "CONFIRA COMO FOI A COLETIVA DE ROGER MACHADO APÓS A VITÓRIA DO SÃO PAULO SOBRE O MIRASSOL"
+description: "CONFIRA COMO FOI A COLETIVA DE ROGER MACHADO APÓS A VITÓRIA DO SÃO PAULO SOBRE O MIRASSOL  OneFootball"
+pubDate: "2026-04-26T09:48:55.000Z"
+source: "OneFootball"
+link: "https://news.google.com/rss/articles/CBMi0wFBVV95cUxOa3k1MExfTzhWN2tZcUxTMUtORy1kM2VrWWxRM1JEVkpVSHMtalRiZldGeTFnbllDRm1PSnJqV0VVZ0lTazlhTTQtc0xGMl80aVBoS3ZGb0dUU281SlZFMzVUUzZVMU10OHpMMEM0NGNDTGhJdFBTenNISEFtSk1uNVphcHl2WlVoUkZhaGdEYzh3ZEU1dTM0bnBRaWRCNlF0Y2VLMjBtWWJJX1lYYkozUW1xRHY4WU1qZnNpZWZDbGllNlkxejgtVmJ1ZV9BWkVpakpV?oc=5"
+---
+
+### Fonte Original: OneFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi0wFBVV95cUxOa3k1MExfTzhWN2tZcUxTMUtORy1kM2VrWWxRM1JEVkpVSHMtalRiZldGeTFnbllDRm1PSnJqV0VVZ0lTazlhTTQtc0xGMl80aVBoS3ZGb0dUU281SlZFMzVUUzZVMU10OHpMMEM0NGNDTGhJdFBTenNISEFtSk1uNVphcHl2WlVoUkZhaGdEYzh3ZEU1dTM0bnBRaWRCNlF0Y2VLMjBtWWJJX1lYYkozUW1xRHY4WU1qZnNpZWZDbGllNlkxejgtVmJ1ZV9BWkVpakpV?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
