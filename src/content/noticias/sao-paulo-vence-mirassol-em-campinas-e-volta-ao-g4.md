@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence Mirassol em Campinas e volta ao G4"
+description: "São Paulo vence Mirassol em Campinas e volta ao G4  Portal Hortolândia"
+pubDate: "2026-04-26T02:03:09.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxOdXN4WGswMEJjcndsWHMtRHZ5dFRoWjAzeGxXcVpDekxDVmNQWm1IbUYwTUEtcHJJalN0alNRWnhLR09UQ2QwU055a1VrV2d5NEF4ekkwQl81TVAtY1c3TEV4OVVVNWkwVVF5bjVHdGplZkJRN3lBR1kxcS1DbTNNZ9IBgAFBVV95cUxOdXN4WGswMEJjcndsWHMtRHZ5dFRoWjAzeGxXcVpDekxDVmNQWm1IbUYwTUEtcHJJalN0alNRWnhLR09UQ2QwU055a1VrV2d5NEF4ekkwQl81TVAtY1c3TEV4OVVVNWkwVVF5bjVHdGplZkJRN3lBR1kxcS1DbTNNZw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxOdXN4WGswMEJjcndsWHMtRHZ5dFRoWjAzeGxXcVpDekxDVmNQWm1IbUYwTUEtcHJJalN0alNRWnhLR09UQ2QwU055a1VrV2d5NEF4ekkwQl81TVAtY1c3TEV4OVVVNWkwVVF5bjVHdGplZkJRN3lBR1kxcS1DbTNNZ9IBgAFBVV95cUxOdXN4WGswMEJjcndsWHMtRHZ5dFRoWjAzeGxXcVpDekxDVmNQWm1IbUYwTUEtcHJJalN0alNRWnhLR09UQ2QwU055a1VrV2d5NEF4ekkwQl81TVAtY1c3TEV4OVVVNWkwVVF5bjVHdGplZkJRN3lBR1kxcS1DbTNNZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

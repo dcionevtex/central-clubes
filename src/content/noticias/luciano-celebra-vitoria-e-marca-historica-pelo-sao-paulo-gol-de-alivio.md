@@ -1,0 +1,13 @@
+---
+title: "Luciano celebra vitória e marca histórica pelo São Paulo: ”Gol de alívio”"
+description: "Luciano celebra vitória e marca histórica pelo São Paulo: ”Gol de alívio”  Jogada 10"
+pubDate: "2026-04-26T02:28:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxQQ0lkYzlkS1ZNX2hSc0IzUXRfR1hndTQyaWhnQlJzSERnZDYyMjE4YUdSQl9ZNWV3c0ZXTVVpdXFTWWlZcUZZcWd6aC00dDVneFZyS3J3T0RVOTNwRE83eERBUFB4LTBKeDQ0RkpMOHd1NVNWRkpMYl9VWGVnaDVtMzhCb2RpalVoQ1dBbllmSXRtbG9kMDBjd2dhVWVoXzRt0gGgAUFVX3lxTFBDSWRjOWRLVk1faFJzQjNRdF9HWGd1NDJpaGdCUnNIRGdkNjIyMThhR1JCX1k1ZXdzRldNVWl1cVNZaVlxRllxZ3poLTR0NWd4VnJLcndPRFU5M3BETzd4REFQUHgtMEp4NDRGSkw4d3U1U1ZGSkxiX1VYZWdoNW0zOEJvZGlqVWhDV0FuWWZJdG1sb2QwMGN3Z2FVZWhfNG0?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxQQ0lkYzlkS1ZNX2hSc0IzUXRfR1hndTQyaWhnQlJzSERnZDYyMjE4YUdSQl9ZNWV3c0ZXTVVpdXFTWWlZcUZZcWd6aC00dDVneFZyS3J3T0RVOTNwRE83eERBUFB4LTBKeDQ0RkpMOHd1NVNWRkpMYl9VWGVnaDVtMzhCb2RpalVoQ1dBbllmSXRtbG9kMDBjd2dhVWVoXzRt0gGgAUFVX3lxTFBDSWRjOWRLVk1faFJzQjNRdF9HWGd1NDJpaGdCUnNIRGdkNjIyMThhR1JCX1k1ZXdzRldNVWl1cVNZaVlxRllxZ3poLTR0NWd4VnJLcndPRFU5M3BETzd4REFQUHgtMEp4NDRGSkw4d3U1U1ZGSkxiX1VYZWdoNW0zOEJvZGlqVWhDV0FuWWZJdG1sb2QwMGN3Z2FVZWhfNG0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

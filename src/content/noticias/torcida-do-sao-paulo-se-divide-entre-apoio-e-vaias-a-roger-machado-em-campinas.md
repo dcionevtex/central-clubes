@@ -1,0 +1,13 @@
+---
+title: "Torcida do São Paulo se divide entre apoio e vaias a Roger Machado em Campinas"
+description: "Torcida do São Paulo se divide entre apoio e vaias a Roger Machado em Campinas  Jogada 10"
+pubDate: "2026-04-26T01:48:43.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxNdGRZOHNUWnp5M3M3Q29CT25adWM4ZXpDOVliWFNVakk3WlRiZURrR2RXM3NDQzEydTl2VktoUVVTVFdDaE9KbWRFVmRxV3FOaXJtNDFmbHFLQnk4VFF6Q3owMTBkQVppaGtWSFhkVUpVcFIwczkza2k4UndZZWxiR1NOSXdWQnQ3TEJBa3lYWFNiVDctR1VqNk9TWGNWU0NYdTFTbnRB0gGrAUFVX3lxTE5PM1dPODlFVnVFTmM3cUpwelBGQkVwMnNqTkRtU2ZiQmJXN0pURUJwZ3ZjZ0hwTXRsZWViOUNSWXZWMWdpbUxQUGlORjRWZVhybEszYURaN0hWc2FUNVl3NXZLMjhxVjNmS21ZSkpsZ282UDA2bkNHWGNXMkZXSUsxM3Q2ZE00dnJCd0piX1Jsa3plbnBZNFpPc0R6S25sdHdKRW9IWVhDWTc2Yw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxNdGRZOHNUWnp5M3M3Q29CT25adWM4ZXpDOVliWFNVakk3WlRiZURrR2RXM3NDQzEydTl2VktoUVVTVFdDaE9KbWRFVmRxV3FOaXJtNDFmbHFLQnk4VFF6Q3owMTBkQVppaGtWSFhkVUpVcFIwczkza2k4UndZZWxiR1NOSXdWQnQ3TEJBa3lYWFNiVDctR1VqNk9TWGNWU0NYdTFTbnRB0gGrAUFVX3lxTE5PM1dPODlFVnVFTmM3cUpwelBGQkVwMnNqTkRtU2ZiQmJXN0pURUJwZ3ZjZ0hwTXRsZWViOUNSWXZWMWdpbUxQUGlORjRWZVhybEszYURaN0hWc2FUNVl3NXZLMjhxVjNmS21ZSkpsZ282UDA2bkNHWGNXMkZXSUsxM3Q2ZE00dnJCd0piX1Jsa3plbnBZNFpPc0R6S25sdHdKRW9IWVhDWTc2Yw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
