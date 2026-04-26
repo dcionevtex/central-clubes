@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence e Roger Machado ganha fôlego após pressão"
+description: "São Paulo vence e Roger Machado ganha fôlego após pressão  Bolavip Brasil"
+pubDate: "2026-04-26T15:51:53.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxOeHF5dEZxQkRBMUlQUzZiazZEQmtkWVR4SXZzYVE3a1llanNUTlNLOUtCOHB6cXo4RzlGX1doc3IxbnExZlJrMk8tWGFISkVDLU5yQkJlQXp5OTBCRmlqT293TWp2RHAxQnUtS2pUaHRBUVlia2IyTmpFSWhpQlhIXzRWZXFMYk5VemVuXzZXQWZfYXJq0gGaAUFVX3lxTE9jemY1ZUY0Yk1KZklSS1h4NUQzYVh2ZFI4VW55N3V1c2I2UlBwbUN1R3FiY3g2TWxpNi14cWhKNUJvWE5kNDcyN0NkaEM4U282ejBhMlNvdE9MMEMtbFR1RWtFcmtoUmp4TWF3elBqQVBWWkE1bzd5M29pd3ZkNkZ4SG1ZWm5rNWYtTnViVzBMQ3hpMndnd3BtZ3c?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxOeHF5dEZxQkRBMUlQUzZiazZEQmtkWVR4SXZzYVE3a1llanNUTlNLOUtCOHB6cXo4RzlGX1doc3IxbnExZlJrMk8tWGFISkVDLU5yQkJlQXp5OTBCRmlqT293TWp2RHAxQnUtS2pUaHRBUVlia2IyTmpFSWhpQlhIXzRWZXFMYk5VemVuXzZXQWZfYXJq0gGaAUFVX3lxTE9jemY1ZUY0Yk1KZklSS1h4NUQzYVh2ZFI4VW55N3V1c2I2UlBwbUN1R3FiY3g2TWxpNi14cWhKNUJvWE5kNDcyN0NkaEM4U282ejBhMlNvdE9MMEMtbFR1RWtFcmtoUmp4TWF3elBqQVBWWkE1bzd5M29pd3ZkNkZ4SG1ZWm5rNWYtTnViVzBMQ3hpMndnd3BtZ3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
