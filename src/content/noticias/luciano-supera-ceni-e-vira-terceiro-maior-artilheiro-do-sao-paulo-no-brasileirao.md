@@ -1,0 +1,13 @@
+---
+title: "Luciano supera Ceni e vira terceiro maior artilheiro do São Paulo no Brasileirão"
+description: "Luciano supera Ceni e vira terceiro maior artilheiro do São Paulo no Brasileirão  Terra"
+pubDate: "2026-04-26T10:06:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi_wFBVV95cUxPbWdZN2hkVFVLdDYtUXlNdHg3cUhkT2c5WDFQZTFxLWsybm9ZNEJvel9CdndwRUxuaF9yVldMZk9TUkV2TldsUGhpWXJMbjIwbncxRk95ZnFsQlBDZTlENTEzSG1Eb2ZVNGFTN0ctekxpeGFqWHN3UkJSYjRTdnpudjhXNGlfQTdjbHJsbVN4eWU4ZDY4ZnBETnZEUnhEakRLUEZhUmxPbDBBVTFSZ2lnX21OTlg1S2hoLXF0SHJqV21LbXpNblhNcTJHY0dVMmFuM3IzQ0ZpTWtXS1p3XzRjdmgwQ2ZxYk95ZHoxSzN3MGxTblhiMnhORERPMGI3VEU?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_wFBVV95cUxPbWdZN2hkVFVLdDYtUXlNdHg3cUhkT2c5WDFQZTFxLWsybm9ZNEJvel9CdndwRUxuaF9yVldMZk9TUkV2TldsUGhpWXJMbjIwbncxRk95ZnFsQlBDZTlENTEzSG1Eb2ZVNGFTN0ctekxpeGFqWHN3UkJSYjRTdnpudjhXNGlfQTdjbHJsbVN4eWU4ZDY4ZnBETnZEUnhEakRLUEZhUmxPbDBBVTFSZ2lnX21OTlg1S2hoLXF0SHJqV21LbXpNblhNcTJHY0dVMmFuM3IzQ0ZpTWtXS1p3XzRjdmgwQ2ZxYk95ZHoxSzN3MGxTblhiMnhORERPMGI3VEU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
