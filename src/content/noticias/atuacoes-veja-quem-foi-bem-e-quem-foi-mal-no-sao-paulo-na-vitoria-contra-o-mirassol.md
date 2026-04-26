@@ -1,0 +1,13 @@
+---
+title: "Atuações: veja quem foi bem e quem foi mal no São Paulo na vitória contra o Mirassol"
+description: "Atuações: veja quem foi bem e quem foi mal no São Paulo na vitória contra o Mirassol  Gazeta Esportiva"
+pubDate: "2026-04-26T09:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxPc3Q4MTdDUTdsYzBVY3VSOFd5UVlzZGtFZGFkcmlsV0ZreG1yd0hzMm41aG5nV3RnLUtDalczMzFYRWt2RUY2ckxBazFvN0FTbTVfblZ2dmNrbFo1MzJJX1FXSkZLalYwdXlnR3gxbDJsTlgyYjVWRjVCVXJPT082UEJhYkdzZnJ0MXJqWEcxWjMyQW41V2hCZjVHMHlpcHVBNWE40gGoAUFVX3lxTE1LMmYydUx2MlpBVmkxN0p5NmJkSGZIeVpIcUJObXFIcnVreWNuZVV0aWtMazFpWUNFY3VKN0hNWDhiaHZNZWVJZVFMVV85OHZ1dVpBc01zeXFRQ3FsUUM3czVnQUtpdXRIeDRBLXpCSVhEWk5hVmRxOURKLWJvYkZwbEQwZ1FHRlFhYUdGdWFOd3BKSUV6X1hDaWdYQWVyRXduVmpxNDN5cA?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxPc3Q4MTdDUTdsYzBVY3VSOFd5UVlzZGtFZGFkcmlsV0ZreG1yd0hzMm41aG5nV3RnLUtDalczMzFYRWt2RUY2ckxBazFvN0FTbTVfblZ2dmNrbFo1MzJJX1FXSkZLalYwdXlnR3gxbDJsTlgyYjVWRjVCVXJPT082UEJhYkdzZnJ0MXJqWEcxWjMyQW41V2hCZjVHMHlpcHVBNWE40gGoAUFVX3lxTE1LMmYydUx2MlpBVmkxN0p5NmJkSGZIeVpIcUJObXFIcnVreWNuZVV0aWtMazFpWUNFY3VKN0hNWDhiaHZNZWVJZVFMVV85OHZ1dVpBc01zeXFRQ3FsUUM3czVnQUtpdXRIeDRBLXpCSVhEWk5hVmRxOURKLWJvYkZwbEQwZ1FHRlFhYUdGdWFOd3BKSUV6X1hDaWdYQWVyRXduVmpxNDN5cA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
