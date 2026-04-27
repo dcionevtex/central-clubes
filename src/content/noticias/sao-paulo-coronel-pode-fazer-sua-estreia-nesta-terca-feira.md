@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Coronel pode fazer sua estreia nesta terça-feira"
+description: "São Paulo: Coronel pode fazer sua estreia nesta terça-feira  Portal Hortolândia"
+pubDate: "2026-04-27T22:14:42.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQSVlPN0RDRjhiYVJVVmF2Q2pDeHRlRUF2MFM0YTFFamRXeVFoTnVGeU9TTlVuMFBvdnZhT0RCTGR6WEMwY1BmNHhqLUtIaHZtWjNFejdoaGlUdXNiM2pBVmxzNXA0d3lQcGptOU5LLWQzaVdPWmJ0MDFpSVN6YVJVeNIBgAFBVV95cUxQSVlPN0RDRjhiYVJVVmF2Q2pDeHRlRUF2MFM0YTFFamRXeVFoTnVGeU9TTlVuMFBvdnZhT0RCTGR6WEMwY1BmNHhqLUtIaHZtWjNFejdoaGlUdXNiM2pBVmxzNXA0d3lQcGptOU5LLWQzaVdPWmJ0MDFpSVN6YVJVeA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQSVlPN0RDRjhiYVJVVmF2Q2pDeHRlRUF2MFM0YTFFamRXeVFoTnVGeU9TTlVuMFBvdnZhT0RCTGR6WEMwY1BmNHhqLUtIaHZtWjNFejdoaGlUdXNiM2pBVmxzNXA0d3lQcGptOU5LLWQzaVdPWmJ0MDFpSVN6YVJVeNIBgAFBVV95cUxQSVlPN0RDRjhiYVJVVmF2Q2pDeHRlRUF2MFM0YTFFamRXeVFoTnVGeU9TTlVuMFBvdnZhT0RCTGR6WEMwY1BmNHhqLUtIaHZtWjNFejdoaGlUdXNiM2pBVmxzNXA0d3lQcGptOU5LLWQzaVdPWmJ0MDFpSVN6YVJVeA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
