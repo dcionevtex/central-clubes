@@ -1,0 +1,13 @@
+---
+title: "Lucas Moura prioriza São Paulo e descarta saída imediata"
+description: "Lucas Moura prioriza São Paulo e descarta saída imediata  Bolavip Brasil"
+pubDate: "2026-04-27T11:36:04.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxPQzFObGxLdHBpWjZuUnIzOFNlVUV0WVNxcTVfSHZsU1E0eGFIU1kyNDEtdm9EZ1A0SlpSbEEyZVRLQ1ZnX3FFYk9fQm5pM0dSMlJhNzhFcmdLNm84R2NCTGJEeWlDbDc0WDFWVUN6ZUphMFRPWFFfRldyNTNJNVRZemp2ajlUbWpENXZvR0Zjbmw2M3PSAZgBQVVfeXFMT3lObjBfYldZVVJHa21wa0tFZXRMT0JRYTU1MWtEVmJ1aVNQQm5jaDBZY2FWcWJXZ0tleDBsVVc3SE9PMDUtUUJvUWRoUUVHd0ZKQTJBRlE5a1p2Y181WmRKWDdtdnlDZFFncnpWWVJXRFRnUG9UU3FiaFNtS2NvanV0SmE2ZEFPOFJjRS1waEQzTVhBek0zWG4?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxPQzFObGxLdHBpWjZuUnIzOFNlVUV0WVNxcTVfSHZsU1E0eGFIU1kyNDEtdm9EZ1A0SlpSbEEyZVRLQ1ZnX3FFYk9fQm5pM0dSMlJhNzhFcmdLNm84R2NCTGJEeWlDbDc0WDFWVUN6ZUphMFRPWFFfRldyNTNJNVRZemp2ajlUbWpENXZvR0Zjbmw2M3PSAZgBQVVfeXFMT3lObjBfYldZVVJHa21wa0tFZXRMT0JRYTU1MWtEVmJ1aVNQQm5jaDBZY2FWcWJXZ0tleDBsVVc3SE9PMDUtUUJvUWRoUUVHd0ZKQTJBRlE5a1p2Y181WmRKWDdtdnlDZFFncnpWWVJXRFRnUG9UU3FiaFNtS2NvanV0SmE2ZEFPOFJjRS1waEQzTVhBek0zWG4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
