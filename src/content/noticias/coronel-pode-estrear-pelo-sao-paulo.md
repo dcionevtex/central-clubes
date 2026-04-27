@@ -1,0 +1,13 @@
+---
+title: "Coronel pode estrear pelo São Paulo"
+description: "Coronel pode estrear pelo São Paulo  ABCD Jornal"
+pubDate: "2026-04-27T22:25:29.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxOTjdybzdhR0xPdU1BdWpzVVBxbnVvMEtKakZ1TzlyekQwZlVrRjFDSjNBc3M1VGFBVGlXRkVNWlRSSlQyZWVHek5uOFJlak9iVllia01nRmZfRUV4Y2FsVmxIbnIzOUNfTl82dmtqM1JZb0JWZ0duZkppdEt4ZDBzTkd2anVxclhmdFl1NnRVTFdKcVRhVlViOTZZa9IBmwFBVV95cUxOTjdybzdhR0xPdU1BdWpzVVBxbnVvMEtKakZ1TzlyekQwZlVrRjFDSjNBc3M1VGFBVGlXRkVNWlRSSlQyZWVHek5uOFJlak9iVllia01nRmZfRUV4Y2FsVmxIbnIzOUNfTl82dmtqM1JZb0JWZ0duZkppdEt4ZDBzTkd2anVxclhmdFl1NnRVTFdKcVRhVlViOTZZaw?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxOTjdybzdhR0xPdU1BdWpzVVBxbnVvMEtKakZ1TzlyekQwZlVrRjFDSjNBc3M1VGFBVGlXRkVNWlRSSlQyZWVHek5uOFJlak9iVllia01nRmZfRUV4Y2FsVmxIbnIzOUNfTl82dmtqM1JZb0JWZ0duZkppdEt4ZDBzTkd2anVxclhmdFl1NnRVTFdKcVRhVlViOTZZa9IBmwFBVV95cUxOTjdybzdhR0xPdU1BdWpzVVBxbnVvMEtKakZ1TzlyekQwZlVrRjFDSjNBc3M1VGFBVGlXRkVNWlRSSlQyZWVHek5uOFJlak9iVllia01nRmZfRUV4Y2FsVmxIbnIzOUNfTl82dmtqM1JZb0JWZ0duZkppdEt4ZDBzTkd2anVxclhmdFl1NnRVTFdKcVRhVlViOTZZaw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Millonarios x São Paulo pela Sul-Americana: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "Millonarios x São Paulo pela Sul-Americana: onde assistir ao vivo, estatísticas, histórico e escalações  Gazeta Esportiva"
+pubDate: "2026-04-27T23:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiigFBVV95cUxOeEtkaHF3cW0tU25ZWDNnc3JsTEFJY3ZsaS1Xa3R3UlVOVmNXS3NqU01PUndBYkJ0YndwdWE5RjhzbG1xNmRZSHJWajRyWmdDajlyT1ZoZk9UZ19TbmFJMGhvN05VdTdNY3Q0M1hQNWltOTVoRlBfb3dFQnNWalRsX1g0YzM1MzZxMnfSAY8BQVVfeXFMT0oyQlB0ZkFmbTdORjBZSUh6dXMtaUJVZTdDbFM5UEZwVE1vVmE4bzQzRUFMU015dzl5RmlLdWF3RU0td2YwTlNwQ1JpXzd6R3VCNnJYVHktVlJiTWszRVRUdWFZMFhsU0o5aEthNFFMa0NNV3BLNU54V09ndHFFNDJMY0dBZG5yTHNDU2ZLYjg?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigFBVV95cUxOeEtkaHF3cW0tU25ZWDNnc3JsTEFJY3ZsaS1Xa3R3UlVOVmNXS3NqU01PUndBYkJ0YndwdWE5RjhzbG1xNmRZSHJWajRyWmdDajlyT1ZoZk9UZ19TbmFJMGhvN05VdTdNY3Q0M1hQNWltOTVoRlBfb3dFQnNWalRsX1g0YzM1MzZxMnfSAY8BQVVfeXFMT0oyQlB0ZkFmbTdORjBZSUh6dXMtaUJVZTdDbFM5UEZwVE1vVmE4bzQzRUFMU015dzl5RmlLdWF3RU0td2YwTlNwQ1JpXzd6R3VCNnJYVHktVlJiTWszRVRUdWFZMFhsU0o5aEthNFFMa0NNV3BLNU54V09ndHFFNDJMY0dBZG5yTHNDU2ZLYjg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
