@@ -1,0 +1,13 @@
+---
+title: "São Paulo venceu apenas um dos últimos dez jogos oficiais na Colômbia antes de duelo em Bogotá"
+description: "São Paulo venceu apenas um dos últimos dez jogos oficiais na Colômbia antes de duelo em Bogotá  Bolavip Brasil"
+pubDate: "2026-04-27T20:45:39.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxOd0h3TUVzWnZheGNZc3pndkF0MmM0MTJrdU1Od09UTGlfUHBWbDViMXowdzhNUE01MWQ1LXpQTVZjQnhxb1lYWUtzVkUtQmJ1cTdfMEpyRGYtOHRibFR6d0dTOFFvV2V2Q1FieXhYRXZjSjIzd1hIX0NvQ0U2SFVCbGxTb01ndTBiWXVJWHpFNnRsb0w4cjZRYnVqTU9ZRDDSAaQBQVVfeXFMTjd2VTdMWGx1SDkwQkEtNzI1dnpRV2VzR2JSRWlqcFg0QWQxaGVkblh2M2d3UFQ4YnVvZmVvVjBDMnhYdGV4dUU3ek9HS2FlSmZhQTRVZms4a1dtLXUzcDNxWjZ5dTZUUk9BbWZ0Zk8yNkxVWUZEMEZsWUlrMkJFMm9uNmsxTEpXMkxwUnBlOUNpcnd3MmpYUlgxSEZsNlRobzhnZzk?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxOd0h3TUVzWnZheGNZc3pndkF0MmM0MTJrdU1Od09UTGlfUHBWbDViMXowdzhNUE01MWQ1LXpQTVZjQnhxb1lYWUtzVkUtQmJ1cTdfMEpyRGYtOHRibFR6d0dTOFFvV2V2Q1FieXhYRXZjSjIzd1hIX0NvQ0U2SFVCbGxTb01ndTBiWXVJWHpFNnRsb0w4cjZRYnVqTU9ZRDDSAaQBQVVfeXFMTjd2VTdMWGx1SDkwQkEtNzI1dnpRV2VzR2JSRWlqcFg0QWQxaGVkblh2M2d3UFQ4YnVvZmVvVjBDMnhYdGV4dUU3ek9HS2FlSmZhQTRVZms4a1dtLXUzcDNxWjZ5dTZUUk9BbWZ0Zk8yNkxVWUZEMEZsWUlrMkJFMm9uNmsxTEpXMkxwUnBlOUNpcnd3MmpYUlgxSEZsNlRobzhnZzk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

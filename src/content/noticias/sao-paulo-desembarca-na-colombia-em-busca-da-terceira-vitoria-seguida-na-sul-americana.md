@@ -1,0 +1,13 @@
+---
+title: "São Paulo desembarca na Colômbia em busca da terceira vitória seguida na Sul-Americana"
+description: "São Paulo desembarca na Colômbia em busca da terceira vitória seguida na Sul-Americana  Terra"
+pubDate: "2026-04-27T20:45:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMihwJBVV95cUxQVkh1aHRBdVN6LTRpR0VHeElndWp3Q1Z0V2dWNGstLUZGRzNjZTVsRzVRRHZ2cWdVdktmd2VBb1FyaWg1TnhZUHN2bDVrTWxmb2hyb2RHTE9fRV9PZGRJR09nZEFRYm9nSnp3SUZBUmZZYU1NUEpoNVpXdDdEM0VjN29udmFUa3NVMVEtT2ZBclJRU1dHMjk5aEFZRmR4ZnktTXR3Yl9fbUpfR1VSdDU5ckl3WkY0cHNIT25JUFB6YnhNNjhVQUJ1RTF3cWFYSlNQZXd1bWdtaFVoNHRzQkFoQTlVOTVuQ0tQUWhIbmMxTF84LWNUWnRmTlZEWUpSX2dERmdPZGxsSQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwJBVV95cUxQVkh1aHRBdVN6LTRpR0VHeElndWp3Q1Z0V2dWNGstLUZGRzNjZTVsRzVRRHZ2cWdVdktmd2VBb1FyaWg1TnhZUHN2bDVrTWxmb2hyb2RHTE9fRV9PZGRJR09nZEFRYm9nSnp3SUZBUmZZYU1NUEpoNVpXdDdEM0VjN29udmFUa3NVMVEtT2ZBclJRU1dHMjk5aEFZRmR4ZnktTXR3Yl9fbUpfR1VSdDU5ckl3WkY0cHNIT25JUFB6YnhNNjhVQUJ1RTF3cWFYSlNQZXd1bWdtaFVoNHRzQkFoQTlVOTVuQ0tQUWhIbmMxTF84LWNUWnRmTlZEWUpSX2dERmdPZGxsSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

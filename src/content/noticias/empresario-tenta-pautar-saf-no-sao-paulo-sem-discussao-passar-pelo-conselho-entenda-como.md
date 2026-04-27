@@ -1,0 +1,13 @@
+---
+title: "Empresário tenta pautar SAF no São Paulo sem discussão passar pelo Conselho; entenda como"
+description: "Empresário tenta pautar SAF no São Paulo sem discussão passar pelo Conselho; entenda como  Terra"
+pubDate: "2026-04-27T20:39:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiigJBVV95cUxPbWREUUswNUZHMHhyelNWX3BxZXd5dG5HNEpFbjhmVjNmVGhXV0dCeFlSekg5LWJoNW1qQzJ6OFBWeGRHeG9xM2xkdXFIQzdPbktORWVyeUp1YkFXSTlCUEZSUWtVVVBGUGVFWTFRMUdSUzhsQkZBcGxCWEdVZkVSdHR1eEUyN2Z0S1JiSkdycy1jb3VtM1JiRGlvdXhtWFBudjVrdENjSVdNY1ozNTJhY3plZlc0Yk9WWUQ5bnBKMFFBZjZyVzRHRGVHbWNEaHpXRXNSQ090WkRXOUFSNGc0dGlDQ3Jjby1md0dnYTlLRzJMYVRYbVJCbmhrZDVZVVMzU1ZrUmhzNkZ4QQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigJBVV95cUxPbWREUUswNUZHMHhyelNWX3BxZXd5dG5HNEpFbjhmVjNmVGhXV0dCeFlSekg5LWJoNW1qQzJ6OFBWeGRHeG9xM2xkdXFIQzdPbktORWVyeUp1YkFXSTlCUEZSUWtVVVBGUGVFWTFRMUdSUzhsQkZBcGxCWEdVZkVSdHR1eEUyN2Z0S1JiSkdycy1jb3VtM1JiRGlvdXhtWFBudjVrdENjSVdNY1ozNTJhY3plZlc0Yk9WWUQ5bnBKMFFBZjZyVzRHRGVHbWNEaHpXRXNSQ090WkRXOUFSNGc0dGlDQ3Jjby1md0dnYTlLRzJMYVRYbVJCbmhrZDVZVVMzU1ZrUmhzNkZ4QQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
