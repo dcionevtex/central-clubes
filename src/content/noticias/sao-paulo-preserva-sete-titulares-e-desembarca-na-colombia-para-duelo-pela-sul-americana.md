@@ -1,0 +1,13 @@
+---
+title: "São Paulo preserva sete titulares e desembarca na Colômbia para duelo pela Sul-Americana"
+description: "São Paulo preserva sete titulares e desembarca na Colômbia para duelo pela Sul-Americana  Gazeta Esportiva"
+pubDate: "2026-04-27T12:26:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxQTkdFcVBZVVljLUNYV21JQjk2aW1NUi1lNUJjNVJwdXNPNzFsc2hfajdIeXRvMTFobXJDd1VYTmp2Y3U1NVk0SkpzT194czdCSmI1ZFVuVVowVk5vZVRIb2JGOU13RUVqTnN1VzFnRElwWkhPbXpRelMxaVZYUGVuUXpZVS12dmd6cldpcE83WkhtY082UEHSAZsBQVVfeXFMT0Z3aS1oSm9nUm9rT2xtbFZEV1RvN25pdlNxU1Zob2czOHFmQ3NzU3ZjUHZZRUtNM01QaGpGc05uX1puVU1rRDhBUXdHMUV5dnRKNkM4anhVVUM5dEZYeVEzMF9LdnRHX0NMb0VnZ1RBUGpjQkF4dmJndUh6eGFQS05kclY2Ymdja05SYUVzUkdtOFNKYzY4S3M0UU0?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxQTkdFcVBZVVljLUNYV21JQjk2aW1NUi1lNUJjNVJwdXNPNzFsc2hfajdIeXRvMTFobXJDd1VYTmp2Y3U1NVk0SkpzT194czdCSmI1ZFVuVVowVk5vZVRIb2JGOU13RUVqTnN1VzFnRElwWkhPbXpRelMxaVZYUGVuUXpZVS12dmd6cldpcE83WkhtY082UEHSAZsBQVVfeXFMT0Z3aS1oSm9nUm9rT2xtbFZEV1RvN25pdlNxU1Zob2czOHFmQ3NzU3ZjUHZZRUtNM01QaGpGc05uX1puVU1rRDhBUXdHMUV5dnRKNkM4anhVVUM5dEZYeVEzMF9LdnRHX0NMb0VnZ1RBUGpjQkF4dmJndUh6eGFQS05kclY2Ymdja05SYUVzUkdtOFNKYzY4S3M0UU0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
