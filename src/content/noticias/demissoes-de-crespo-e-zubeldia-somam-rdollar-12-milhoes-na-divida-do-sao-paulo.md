@@ -1,0 +1,13 @@
+---
+title: "Demissões de Crespo e Zubeldía somam R$ 12 milhões na dívida do São Paulo"
+description: "Demissões de Crespo e Zubeldía somam R$ 12 milhões na dívida do São Paulo  Bolavip Brasil"
+pubDate: "2026-04-28T10:48:22.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNZ05vMWtSSXUtbTliNEFJeTNRaFNLMjVuUmIxbm1Jb19WMXphTWIwWjVSTmVOU3hZU0dBNGg2YUVQZnJZSWg4RVdKTXBPbUhvQ3VMb0lfNzdIdEE0OEVHZFlRT0dUVUJoR1FXZG1IcFRNT2lEZTFHMWUxalp6R2JzYThuektuYWdqU3dCc19VZWdGb3BUaGJvY2xydGh2LUc2eHpYRV94VnnSAa4BQVVfeXFMTkQ2dUVDUE9vZVM5R3RQb0dnbFo3dDZaMmpGUkdNM1VCcEdxNXpPR3M4NFlMTW9QdHRScTU1U29QOVA1UnUyWDJoaWQtZlJ2cnppOEJKeFR2RVlGWjF4UmVMMlBKUlRmampfV1NnblZUbmRPbDFXckZBaW5reVNNbG43emp6dVV2R3Z5RlNRcm5GUVU5RmtkaVh6ZTlTYkRUZnAtSWtlUGFCZ0JMMWNB?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNZ05vMWtSSXUtbTliNEFJeTNRaFNLMjVuUmIxbm1Jb19WMXphTWIwWjVSTmVOU3hZU0dBNGg2YUVQZnJZSWg4RVdKTXBPbUhvQ3VMb0lfNzdIdEE0OEVHZFlRT0dUVUJoR1FXZG1IcFRNT2lEZTFHMWUxalp6R2JzYThuektuYWdqU3dCc19VZWdGb3BUaGJvY2xydGh2LUc2eHpYRV94VnnSAa4BQVVfeXFMTkQ2dUVDUE9vZVM5R3RQb0dnbFo3dDZaMmpGUkdNM1VCcEdxNXpPR3M4NFlMTW9QdHRScTU1U29QOVA1UnUyWDJoaWQtZlJ2cnppOEJKeFR2RVlGWjF4UmVMMlBKUlRmampfV1NnblZUbmRPbDFXckZBaW5reVNNbG43emp6dVV2R3Z5RlNRcm5GUVU5RmtkaVh6ZTlTYkRUZnAtSWtlUGFCZ0JMMWNB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
