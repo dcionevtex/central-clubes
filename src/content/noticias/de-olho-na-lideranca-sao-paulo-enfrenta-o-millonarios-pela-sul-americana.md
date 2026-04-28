@@ -1,0 +1,13 @@
+---
+title: "DE OLHO NA LIDERANÇA: SÃO PAULO ENFRENTA O MILLONÁRIOS PELA SUL-AMERICANA"
+description: "DE OLHO NA LIDERANÇA: SÃO PAULO ENFRENTA O MILLONÁRIOS PELA SUL-AMERICANA  LANCE!"
+pubDate: "2026-04-28T03:05:11.000Z"
+source: "LANCE!"
+link: "https://news.google.com/rss/articles/CBMipwFBVV95cUxOQjRQMXItVEN6cTZfcHJEY3pPMUxkZmhHRDhCeXJ6Q05kZlFPSXh0c0xRZGdJWFI1b0pndTU2ZFZ5bkhXb19mMjhoRkZXUkJscjR3NWhmalZjNEdidHRhOXNDYjF0dEV4c1J4RFNBM2d4a0s0RExRMlVDSmNXQkFXM1dxZUl1NUZNOWFCWUlaQXV5Mzg5MkJ1Vk1XaTZIZ0JuOS1qanJNNA?oc=5"
+---
+
+### Fonte Original: LANCE!
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwFBVV95cUxOQjRQMXItVEN6cTZfcHJEY3pPMUxkZmhHRDhCeXJ6Q05kZlFPSXh0c0xRZGdJWFI1b0pndTU2ZFZ5bkhXb19mMjhoRkZXUkJscjR3NWhmalZjNEdidHRhOXNDYjF0dEV4c1J4RFNBM2d4a0s0RExRMlVDSmNXQkFXM1dxZUl1NUZNOWFCWUlaQXV5Mzg5MkJ1Vk1XaTZIZ0JuOS1qanJNNA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

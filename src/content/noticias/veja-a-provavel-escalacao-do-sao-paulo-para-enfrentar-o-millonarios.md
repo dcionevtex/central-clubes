@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo para enfrentar o Millonarios"
+description: "Veja a provável escalação do São Paulo para enfrentar o Millonarios  Portal Hortolândia"
+pubDate: "2026-04-28T00:23:50.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE5aMGFOeUtFZ0wxcDJ6WU5RYWZMWVZKdzdTX2ZyZHBVMTcxT2lwQW9sYjQzUVZQOHFsUDM0OWozSXRfTHlRLXlrbDB5bDFkQnRIelVpM0VBSGZiZjA1V291REhLWnp1V1BVWHl4Tzl4R1FHalBYSkdCQS1BRFJZUdIBfkFVX3lxTE5aMGFOeUtFZ0wxcDJ6WU5RYWZMWVZKdzdTX2ZyZHBVMTcxT2lwQW9sYjQzUVZQOHFsUDM0OWozSXRfTHlRLXlrbDB5bDFkQnRIelVpM0VBSGZiZjA1V291REhLWnp1V1BVWHl4Tzl4R1FHalBYSkdCQS1BRFJZUQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE5aMGFOeUtFZ0wxcDJ6WU5RYWZMWVZKdzdTX2ZyZHBVMTcxT2lwQW9sYjQzUVZQOHFsUDM0OWozSXRfTHlRLXlrbDB5bDFkQnRIelVpM0VBSGZiZjA1V291REhLWnp1V1BVWHl4Tzl4R1FHalBYSkdCQS1BRFJZUdIBfkFVX3lxTE5aMGFOeUtFZ0wxcDJ6WU5RYWZMWVZKdzdTX2ZyZHBVMTcxT2lwQW9sYjQzUVZQOHFsUDM0OWozSXRfTHlRLXlrbDB5bDFkQnRIelVpM0VBSGZiZjA1V291REhLWnp1V1BVWHl4Tzl4R1FHalBYSkdCQS1BRFJZUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
