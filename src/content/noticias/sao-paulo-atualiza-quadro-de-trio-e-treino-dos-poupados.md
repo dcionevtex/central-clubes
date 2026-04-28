@@ -1,0 +1,13 @@
+---
+title: "São Paulo atualiza quadro de trio e treino dos poupados"
+description: "São Paulo atualiza quadro de trio e treino dos poupados  Portal Hortolândia"
+pubDate: "2026-04-28T19:30:36.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxQT1dKajFOalhHZG4xY0lfckdQSUlza3Nlb1dHVkpaOVRIWmxidV9ZYWdBaDlOU2F2QlJMMUFwV3FqQmJhX1VzLVRHa3phS2tyaHhmWnhFWnd5aTBna0JZTHEzSGk3ampYaDQ0YnBYRGJPbGpvRFEzWW9QZExESWlCZXd30gGCAUFVX3lxTFBPV0pqMU5qWEdkbjFjSV9yR1BJSXNrc2VvV0dWSlo5VEhabGJ1X1lhZ0FoOU5TYXZCUkwxQXBXcWpCYmFfVXMtVEdremFLa3JoeGZaeEVad3lpMGdrQllMcTNIaTdqalhoNDRicFhEYk9sam9EUTNZb1BkTERJaUJld3c?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxQT1dKajFOalhHZG4xY0lfckdQSUlza3Nlb1dHVkpaOVRIWmxidV9ZYWdBaDlOU2F2QlJMMUFwV3FqQmJhX1VzLVRHa3phS2tyaHhmWnhFWnd5aTBna0JZTHEzSGk3ampYaDQ0YnBYRGJPbGpvRFEzWW9QZExESWlCZXd30gGCAUFVX3lxTFBPV0pqMU5qWEdkbjFjSV9yR1BJSXNrc2VvV0dWSlo5VEhabGJ1X1lhZ0FoOU5TYXZCUkwxQXBXcWpCYmFfVXMtVEdremFLa3JoeGZaeEVad3lpMGdrQllMcTNIaTdqalhoNDRicFhEYk9sam9EUTNZb1BkTERJaUJld3c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

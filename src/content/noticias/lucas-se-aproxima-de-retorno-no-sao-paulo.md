@@ -1,0 +1,13 @@
+---
+title: "Lucas se aproxima de retorno no São Paulo"
+description: "Lucas se aproxima de retorno no São Paulo  ABCD Jornal"
+pubDate: "2026-04-28T19:38:32.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxPYWZkSEdsRlZZbTVmbHl3b29lTks1UTBlT1VpUlBTMmFoUzNZa2JZSllTeG02RUI1MWJFLW03b3NsTXhISnJJOEZxMHdTNkowWEcyOE1ndDRnTGdBTmZjb1hRQ0tfd2JLMVdzNTJBUUtRaUdWN19Edi15SXN0MVdWOVA5cmJQSTZsbDVaV0xrd2RJcHZ3akNITjVYeHJIcHFu0gGgAUFVX3lxTE9hZmRIR2xGVlltNWZseXdvb2VOSzVRMGVPVWlSUFMyYWhTM1lrYllKWVN4bTZFQjUxYkUtbTdvc2xNeEhKckk4RnEwd1M2SjBYRzI4TWd0NGdMZ0FOZmNvWFFDS193YksxV3M1MkFRS1FpR1Y3X0R2LXlJc3QxV1Y5UDlyYlBJNmxsNVpXTGt3ZElwdndqQ0hONVh4ckhwcW4?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxPYWZkSEdsRlZZbTVmbHl3b29lTks1UTBlT1VpUlBTMmFoUzNZa2JZSllTeG02RUI1MWJFLW03b3NsTXhISnJJOEZxMHdTNkowWEcyOE1ndDRnTGdBTmZjb1hRQ0tfd2JLMVdzNTJBUUtRaUdWN19Edi15SXN0MVdWOVA5cmJQSTZsbDVaV0xrd2RJcHZ3akNITjVYeHJIcHFu0gGgAUFVX3lxTE9hZmRIR2xGVlltNWZseXdvb2VOSzVRMGVPVWlSUFMyYWhTM1lrYllKWVN4bTZFQjUxYkUtbTdvc2xNeEhKckk4RnEwd1M2SjBYRzI4TWd0NGdMZ0FOZmNvWFFDS193YksxV3M1MkFRS1FpR1Y3X0R2LXlJc3QxV1Y5UDlyYlBJNmxsNVpXTGt3ZElwdndqQ0hONVh4ckhwcW4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
