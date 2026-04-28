@@ -1,0 +1,13 @@
+---
+title: "Onde vai passar Millonarios x São Paulo pela Copa Sul-Americana? Como assistir"
+description: "Onde vai passar Millonarios x São Paulo pela Copa Sul-Americana? Como assistir  UOL"
+pubDate: "2026-04-28T21:30:00.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMiigJBVV95cUxQOWVUM3ZqclFpMjZpeWFvMWpCOFdMcWZtbTlzV3dtQmpfcXhxYnZzOTRNNDhYSTJuZ2ZQLUozWjM2Smk1RWp4VW5EUXNCME9pVUNFZ2pGS2E2U0VzNHdFX01faTlKT0oyNWZkTEEyazI2RWJPV21LVjMyR2RtX01FeTNCVkJJTmdUZHZYSUVPcS1uY3ZOZmtLOUg1YW9yQmMwaVZoaHNxdmxCZ2VvYnlVcFB5Q1dIVThkandaTE1qR2VyRkJDeUY4bVFoamV6T3RVcUw2cnZrU2dBbTNfdy15YmVrUXp2ZE5YRGpKRU9nMV9TclJ3SWgtNlRwQ1VlUlh2TjNVNUFJdjFZZw?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigJBVV95cUxQOWVUM3ZqclFpMjZpeWFvMWpCOFdMcWZtbTlzV3dtQmpfcXhxYnZzOTRNNDhYSTJuZ2ZQLUozWjM2Smk1RWp4VW5EUXNCME9pVUNFZ2pGS2E2U0VzNHdFX01faTlKT0oyNWZkTEEyazI2RWJPV21LVjMyR2RtX01FeTNCVkJJTmdUZHZYSUVPcS1uY3ZOZmtLOUg1YW9yQmMwaVZoaHNxdmxCZ2VvYnlVcFB5Q1dIVThkandaTE1qR2VyRkJDeUY4bVFoamV6T3RVcUw2cnZrU2dBbTNfdy15YmVrUXp2ZE5YRGpKRU9nMV9TclJ3SWgtNlRwQ1VlUlh2TjNVNUFJdjFZZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
