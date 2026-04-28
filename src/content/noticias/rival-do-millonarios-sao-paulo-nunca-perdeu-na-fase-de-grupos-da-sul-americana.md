@@ -1,0 +1,13 @@
+---
+title: "Rival do Millonarios, São Paulo nunca perdeu na fase de grupos da Sul-Americana"
+description: "Rival do Millonarios, São Paulo nunca perdeu na fase de grupos da Sul-Americana  Gazeta Esportiva"
+pubDate: "2026-04-28T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiVEFVX3lxTE5zclY0TmhKd2JJR1NBbmtaMXBGVEdVMEh2MHlkQXBzakVMblg1amxyaWRYODE5c2hwa0tVcE9EZmRBeGZ5VnpvS1k4NGdFN2Z1S0s1edIBywFBVV95cUxOdGhFZmFZVUlxY3ZXVDUxeWdQN3JNNEw0cWs3NkpocUNLaGw4aVlFUEgtNWw3MDBuRFV4OGNZWUpsei1jaklWbXY2dkRTMk5tR1Z0eWZha3RrNkdxOFBwa2swTG1zRjVaSDc2cDl1ZGNUZURyODFIUkVIZTkzWG5MQWdaVUk5dF93UFMtTXdxU2hORGdaVlJxN1NVRno1Nlh1cU94VGs0MW5hcE1ZV0dfRTc0ZVY2bHZwVlIyaGpfWkZaMUxQSzF2alhrUQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiVEFVX3lxTE5zclY0TmhKd2JJR1NBbmtaMXBGVEdVMEh2MHlkQXBzakVMblg1amxyaWRYODE5c2hwa0tVcE9EZmRBeGZ5VnpvS1k4NGdFN2Z1S0s1edIBywFBVV95cUxOdGhFZmFZVUlxY3ZXVDUxeWdQN3JNNEw0cWs3NkpocUNLaGw4aVlFUEgtNWw3MDBuRFV4OGNZWUpsei1jaklWbXY2dkRTMk5tR1Z0eWZha3RrNkdxOFBwa2swTG1zRjVaSDc2cDl1ZGNUZURyODFIUkVIZTkzWG5MQWdaVUk5dF93UFMtTXdxU2hORGdaVlJxN1NVRno1Nlh1cU94VGs0MW5hcE1ZV0dfRTc0ZVY2bHZwVlIyaGpfWkZaMUxQSzF2alhrUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
