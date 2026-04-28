@@ -1,0 +1,13 @@
+---
+title: "São Paulo avalia Victor Sá, mas salário trava avanço"
+description: "São Paulo avalia Victor Sá, mas salário trava avanço  Bolavip Brasil"
+pubDate: "2026-04-28T16:25:55.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMijAFBVV95cUxPNW5LcElWTFFVM0FyN0x5cXA5c3hDdUZmUWVrMy1maTNBOV82Q05GS2JFTVpQMi1pUk41bWpldWV0VEZzbXVlYlJZNFp3VE5XYmlkekYtRzJSdHRVQ1ktdE1aeU9EX1d5a09mcWhudjAzVU5IbTJwazRfX2ItVFVBRkZxOU9SMm40bkVWeNIBkgFBVV95cUxNakVoSW9KTm5tOEZuZ3IzNVJpZE9nM1hrMzgtWXJkaG8wNVhtUnVIUWd1YUt5ejlRQlJTcmJCbDR6VmlISUpJZUhLdWpvSkVuMEwwXzNLQjc0R2NVYm5wdkVmUVcwbnNZN2pTTnNFQUNZTDhnN1hQbVZISTlRMm1vZUxoTGppSGthTHVVcEppS0tZUQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAFBVV95cUxPNW5LcElWTFFVM0FyN0x5cXA5c3hDdUZmUWVrMy1maTNBOV82Q05GS2JFTVpQMi1pUk41bWpldWV0VEZzbXVlYlJZNFp3VE5XYmlkekYtRzJSdHRVQ1ktdE1aeU9EX1d5a09mcWhudjAzVU5IbTJwazRfX2ItVFVBRkZxOU9SMm40bkVWeNIBkgFBVV95cUxNakVoSW9KTm5tOEZuZ3IzNVJpZE9nM1hrMzgtWXJkaG8wNVhtUnVIUWd1YUt5ejlRQlJTcmJCbDR6VmlISUpJZUhLdWpvSkVuMEwwXzNLQjc0R2NVYm5wdkVmUVcwbnNZN2pTTnNFQUNZTDhnN1hQbVZISTlRMm1vZUxoTGppSGthTHVVcEppS0tZUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
