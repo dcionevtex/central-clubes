@@ -1,0 +1,13 @@
+---
+title: "São Paulo enfrenta Millonarios com 3 zagueiros; veja a escalação"
+description: "São Paulo enfrenta Millonarios com 3 zagueiros; veja a escalação  Portal Hortolândia"
+pubDate: "2026-04-28T23:41:19.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxQN1YzOUlIcm1JdWdodHdpcU41eURNNDhiNHNFcklSZ2tXUXdtd1RHWHZvXzRiVmxWcmxZRkg2N3VKTGE4MVh6RzhuN0NEMnh1eU9LUFdid2FUYVZvR0FzVV9ndHV1dEdjN3VyazFvTEFyR0ZfQ0pQMlV3TWtGUW5vOG8yNWvSAYQBQVVfeXFMUDdWMzlJSHJtSXVnaHR3aXFONXlETTQ4YjRzRXJJUmdrV1F3bXdUR1h2b180YlZsVnJsWUZINjd1SkxhODFYekc4bjdDRDJ4dXlPS1BXYndhVGFWb0dBc1VfZ3R1dXRHYzd1cmsxb0xBckdGX0NKUDJVd01rRlFubzhvMjVr?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxQN1YzOUlIcm1JdWdodHdpcU41eURNNDhiNHNFcklSZ2tXUXdtd1RHWHZvXzRiVmxWcmxZRkg2N3VKTGE4MVh6RzhuN0NEMnh1eU9LUFdid2FUYVZvR0FzVV9ndHV1dEdjN3VyazFvTEFyR0ZfQ0pQMlV3TWtGUW5vOG8yNWvSAYQBQVVfeXFMUDdWMzlJSHJtSXVnaHR3aXFONXlETTQ4YjRzRXJJUmdrV1F3bXdUR1h2b180YlZsVnJsWUZINjd1SkxhODFYekc4bjdDRDJ4dXlPS1BXYndhVGFWb0dBc1VfZ3R1dXRHYzd1cmsxb0xBckdGX0NKUDJVd01rRlFubzhvMjVr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

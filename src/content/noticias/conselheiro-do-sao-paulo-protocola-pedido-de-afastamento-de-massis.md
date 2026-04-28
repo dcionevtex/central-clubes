@@ -1,0 +1,13 @@
+---
+title: "Conselheiro do São Paulo protocola pedido de afastamento de Massis"
+description: "Conselheiro do São Paulo protocola pedido de afastamento de Massis  Gazeta Esportiva"
+pubDate: "2026-04-28T22:48:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxPbEtUZGY3QjN5UEZhMnl6ZjByUVU2UjlzV3NORXNhbW1oVW5TdDh1cEpSMThBaTFHdGQ1NXJwY1dZMTFRenQ4ZF9WeVJCOWZSR1VXanRzcVRiUVF3S2tPblJ6Vjhtd0JnOTdsLWZsOERLWGZ3bl9jbm1JRUZMRFhTQ2kyZDdQUzZtLVhMMldnVV9ucVXSAZgBQVVfeXFMUDRlWFNwOWpwM2ZvY0dUS2NtVlVpX1dMcXBEREpXUXMzc0pmQzR3UEcxWmlUNkkyWElYc2RoTlRLaHlNQ05ORVdJcWlSWmo4MUlpZ3VFVHU2dS1jTzVTbGduNzhseFZhdjBKTndmbVNXSm9kczVBc2Z2ZFl3ejdqYm9wTjVCSzZIOVcxSTc4YjM5VGJ4cmZxY0E?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxPbEtUZGY3QjN5UEZhMnl6ZjByUVU2UjlzV3NORXNhbW1oVW5TdDh1cEpSMThBaTFHdGQ1NXJwY1dZMTFRenQ4ZF9WeVJCOWZSR1VXanRzcVRiUVF3S2tPblJ6Vjhtd0JnOTdsLWZsOERLWGZ3bl9jbm1JRUZMRFhTQ2kyZDdQUzZtLVhMMldnVV9ucVXSAZgBQVVfeXFMUDRlWFNwOWpwM2ZvY0dUS2NtVlVpX1dMcXBEREpXUXMzc0pmQzR3UEcxWmlUNkkyWElYc2RoTlRLaHlNQ05ORVdJcWlSWmo4MUlpZ3VFVHU2dS1jTzVTbGduNzhseFZhdjBKTndmbVNXSm9kczVBc2Z2ZFl3ejdqYm9wTjVCSzZIOVcxSTc4YjM5VGJ4cmZxY0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
