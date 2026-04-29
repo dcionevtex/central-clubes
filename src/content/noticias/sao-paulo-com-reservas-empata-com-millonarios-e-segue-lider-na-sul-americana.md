@@ -1,0 +1,13 @@
+---
+title: "São Paulo, com reservas, empata com Millonarios e segue líder na Sul-Americana"
+description: "São Paulo, com reservas, empata com Millonarios e segue líder na Sul-Americana  Jogada 10"
+pubDate: "2026-04-29T02:37:43.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQjE1M0x6T2s3T2h5MG9OSm9ZaUc0YXRzT0hQSzE5cHhSWS13eldHRUkzN2dPMzhoWU5LTVV1ZHpfc1BkTG9KM0dWX0V6cVpPSTBJUTY3bEh2VDlubk5MdWRoakNnRFRfR2tlYkVsdHFOVFlPZ3ZLTGRYT2NvLXBmTWJXMTFDbFJnX2VCMFotdDVXaUxIRmd3YkpSQlpXZl8yOV83SGxIdHTSAagBQVVfeXFMUEIxNTNMek9rN09oeTBvTkpvWWlHNGF0c09IUEsxOXB4Ulktd3pXR0VJMzdnTzM4aFlOS01VdWR6X3NQZExvSjNHVl9FenFaT0kwSVE2N2xIdlQ5bm5OTHVkaGpDZ0RUX0drZWJFbHRxTlRZT2d2S0xkWE9jby1wZk1iVzExQ2xSZ19lQjBaLXQ1V2lMSEZnd2JKUkJaV2ZfMjlfN0hsSHR0?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxQQjE1M0x6T2s3T2h5MG9OSm9ZaUc0YXRzT0hQSzE5cHhSWS13eldHRUkzN2dPMzhoWU5LTVV1ZHpfc1BkTG9KM0dWX0V6cVpPSTBJUTY3bEh2VDlubk5MdWRoakNnRFRfR2tlYkVsdHFOVFlPZ3ZLTGRYT2NvLXBmTWJXMTFDbFJnX2VCMFotdDVXaUxIRmd3YkpSQlpXZl8yOV83SGxIdHTSAagBQVVfeXFMUEIxNTNMek9rN09oeTBvTkpvWWlHNGF0c09IUEsxOXB4Ulktd3pXR0VJMzdnTzM4aFlOS01VdWR6X3NQZExvSjNHVl9FenFaT0kwSVE2N2xIdlQ5bm5OTHVkaGpDZ0RUX0drZWJFbHRxTlRZT2d2S0xkWE9jby1wZk1iVzExQ2xSZ19lQjBaLXQ1V2lMSEZnd2JKUkJaV2ZfMjlfN0hsSHR0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

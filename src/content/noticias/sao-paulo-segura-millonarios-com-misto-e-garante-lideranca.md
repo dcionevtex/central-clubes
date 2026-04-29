@@ -1,0 +1,13 @@
+---
+title: "São Paulo segura Millonarios com misto e garante liderança"
+description: "São Paulo segura Millonarios com misto e garante liderança  Portal Hortolândia"
+pubDate: "2026-04-29T02:42:32.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTFA2R1FzS1Rwd1gwSllpYUZYcmRqZWUwU2RQWjNiRzBDeGtyTnJwMjBESFBYcTRpRmZtNlJQV1lPcXpWUHNLLVUzRTk4c3l0YmpLNHhldTNJSUtWdzRQeW1lWG1uXzg2eVdDdTJrRWY3dTkwOV9VLTU2TWRNd2JaM2vSAX9BVV95cUxQNkdRc0tUcHdYMEpZaWFGWHJkamVlMFNkUFozYkcwQ3hrck5ycDIwREhQWHE0aUZmbTZSUFdZT3F6VlBzSy1VM0U5OHN5dGJqSzR4ZXUzSUlLVnc0UHltZVhtbl84NnlXQ3Uya0VmN3U5MDlfVS01Nk1kTXdiWjNr?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTFA2R1FzS1Rwd1gwSllpYUZYcmRqZWUwU2RQWjNiRzBDeGtyTnJwMjBESFBYcTRpRmZtNlJQV1lPcXpWUHNLLVUzRTk4c3l0YmpLNHhldTNJSUtWdzRQeW1lWG1uXzg2eVdDdTJrRWY3dTkwOV9VLTU2TWRNd2JaM2vSAX9BVV95cUxQNkdRc0tUcHdYMEpZaWFGWHJkamVlMFNkUFozYkcwQ3hrck5ycDIwREhQWHE0aUZmbTZSUFdZT3F6VlBzSy1VM0U5OHN5dGJqSzR4ZXUzSUlLVnc0UHltZVhtbl84NnlXQ3Uya0VmN3U5MDlfVS01Nk1kTXdiWjNr?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

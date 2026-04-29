@@ -1,0 +1,13 @@
+---
+title: "Mistão do São Paulo toma pressão, mas segura empate contra o Millonarios"
+description: "Mistão do São Paulo toma pressão, mas segura empate contra o Millonarios  UOL"
+pubDate: "2026-04-29T02:26:45.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMisgJBVV95cUxOdWpoUTRudFF2Y1V4X0NvX0U1X080UnFGMGV1MmR0RG82VXpzNTd4aTg1T056UUF0M2NRQmFzQ2VBTlUzd3ZFWjNRdzE1N0QtNWhMNDV0dkk4dlBXUHZ4dlU5RlF3WVJJNnAtV3RsQ2R5Vzl0WHFTQ0lqR1NfVl9pZTEtLUNVRUItRDVRcElCN1JZWlNBOTRWYUpJM1BhQUxiMTh5RVREc2JESU1SV3ItYWQ2MHlkSEVGN3ZmWk1TckVrRnRNQXJCUWVDRXRrWVdRR05HZnhjaTRQQ1BKd05TODdNVVlselJpNlc2Tm1TRTFGeGs2d2l4VEJPV1Vkd1pDSjFKbWNzWnNNNnd0TTdYLTZTZF9mMHZKQi1weGR4cnkwcWl6cE9tdGlYOXI1Y1k5TFE?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMisgJBVV95cUxOdWpoUTRudFF2Y1V4X0NvX0U1X080UnFGMGV1MmR0RG82VXpzNTd4aTg1T056UUF0M2NRQmFzQ2VBTlUzd3ZFWjNRdzE1N0QtNWhMNDV0dkk4dlBXUHZ4dlU5RlF3WVJJNnAtV3RsQ2R5Vzl0WHFTQ0lqR1NfVl9pZTEtLUNVRUItRDVRcElCN1JZWlNBOTRWYUpJM1BhQUxiMTh5RVREc2JESU1SV3ItYWQ2MHlkSEVGN3ZmWk1TckVrRnRNQXJCUWVDRXRrWVdRR05HZnhjaTRQQ1BKd05TODdNVVlselJpNlc2Tm1TRTFGeGs2d2l4VEJPV1Vkd1pDSjFKbWNzWnNNNnd0TTdYLTZTZF9mMHZKQi1weGR4cnkwcWl6cE9tdGlYOXI1Y1k5TFE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
