@@ -1,0 +1,13 @@
+---
+title: "Roger Machado aponta falha do São Paulo em empate na Colômbia"
+description: "Roger Machado aponta falha do São Paulo em empate na Colômbia  Bolavip Brasil"
+pubDate: "2026-04-29T08:39:17.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxPNWRYTmdNUGV6YnpyTUVnVGc3RXNYRXBGeTFTVzR3VnlMRGhFQUFmTWZhYlpFNC15U1NzcHdMV25TSXhMV2RLZGZNcW1YM3RjaTNDX2F2eWMtSjVvOHE4Zm1za2NCVWRONmVRV0dfdGw2bl9CcGNqem1WaHYxUWxfQUdWeTV4SDNVeDAzMi1aUlhpUnp0YVphMGpCM000b0nSAZ8BQVVfeXFMTzVkWE5nTVBlemJ6ck1FZ1RnN0VzWEVwRnkxU1c0d1Z5TERoRUFBZk1mYWJaRTQteVNTc3B3TFduU0l4TFdkS2RmTXFtWDN0Y2kzQ19hdnljLUo1bzhxOGZtc2tjQlVkTjZlUVdHX3RsNm5fQnBjanptVmh2MVFsX0FHVnk1eEgzVXgwMzItWlJYaVJ6dGFaYTBqQjNNNG9J?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxPNWRYTmdNUGV6YnpyTUVnVGc3RXNYRXBGeTFTVzR3VnlMRGhFQUFmTWZhYlpFNC15U1NzcHdMV25TSXhMV2RLZGZNcW1YM3RjaTNDX2F2eWMtSjVvOHE4Zm1za2NCVWRONmVRV0dfdGw2bl9CcGNqem1WaHYxUWxfQUdWeTV4SDNVeDAzMi1aUlhpUnp0YVphMGpCM000b0nSAZ8BQVVfeXFMTzVkWE5nTVBlemJ6ck1FZ1RnN0VzWEVwRnkxU1c0d1Z5TERoRUFBZk1mYWJaRTQteVNTc3B3TFduU0l4TFdkS2RmTXFtWDN0Y2kzQ19hdnljLUo1bzhxOGZtc2tjQlVkTjZlUVdHX3RsNm5fQnBjanptVmh2MVFsX0FHVnk1eEgzVXgwMzItWlJYaVJ6dGFaYTBqQjNNNG9J?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

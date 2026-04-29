@@ -1,0 +1,13 @@
+---
+title: "Atuações: Coronel tem estreia positiva, e defesa se destaca em empate do São Paulo"
+description: "Atuações: Coronel tem estreia positiva, e defesa se destaca em empate do São Paulo  Gazeta Esportiva"
+pubDate: "2026-04-29T09:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiVEFVX3lxTFBUTWJoRjB3S0xFREpBR1pKS2R3M2E1ZkdlTmxLR2Z4d3N3UEJ1NW9May1nVGMzSHNIbjlJcjVNdDdYVTZuS3ZSekIzVUgxa3kxdXFiN9IBzgFBVV95cUxQd1RWTFVfRk1qb2FvNXVRM09DdDItTzRoNEpidlBja0FPaFVQVHFIV2VnTVJ5Z2hpa1RnUF9KYmlGMEFsM0ROWWw2Zy0yeEZqVUJzQnd2ZFllTjZZbkMxbktXaFdSX1k5VTBHcEZCN3l6V3VJMWprOGdRbFdYUlE1bjk3M2FZc2tBRXhmQUVwb1AtZzduM2tabWFEU0NMT3pHckVfNHJ5SFU0OHpjekNPazZlV25zX3VHVVBiYTNCSWNESURkNGwtY2wxSjhfUQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiVEFVX3lxTFBUTWJoRjB3S0xFREpBR1pKS2R3M2E1ZkdlTmxLR2Z4d3N3UEJ1NW9May1nVGMzSHNIbjlJcjVNdDdYVTZuS3ZSekIzVUgxa3kxdXFiN9IBzgFBVV95cUxQd1RWTFVfRk1qb2FvNXVRM09DdDItTzRoNEpidlBja0FPaFVQVHFIV2VnTVJ5Z2hpa1RnUF9KYmlGMEFsM0ROWWw2Zy0yeEZqVUJzQnd2ZFllTjZZbkMxbktXaFdSX1k5VTBHcEZCN3l6V3VJMWprOGdRbFdYUlE1bjk3M2FZc2tBRXhmQUVwb1AtZzduM2tabWFEU0NMT3pHckVfNHJ5SFU0OHpjekNPazZlV25zX3VHVVBiYTNCSWNESURkNGwtY2wxSjhfUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
