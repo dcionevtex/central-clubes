@@ -1,0 +1,13 @@
+---
+title: "ASSSISTA A COLETIVA DE ROGER MACHADO APÓS O EMPATE DO SÃO PAULO COM O MILLIONARIOS PELA SUL-AMERICANA"
+description: "ASSSISTA A COLETIVA DE ROGER MACHADO APÓS O EMPATE DO SÃO PAULO COM O MILLIONARIOS PELA SUL-AMERICANA  OneFootball"
+pubDate: "2026-04-29T13:43:03.000Z"
+source: "OneFootball"
+link: "https://news.google.com/rss/articles/CBMi2gFBVV95cUxPRzJFbTNHQkJRSGtlaTFCNkZDZXlzTk0tUHp3WlhLQWJGY1hqNHg1R1RuZGV5UFJqSXl3LUxabmcwTDZLY3pVOVFQN1JrQlJnckszOHQ0a2dDTkxqdU9RbHY3bGUwUjVLd3JRQ083ZVBqZ0hRc29zY1Rhdnk5QjZPZmducmE1VTVqajd0dFpnVW9Ya3dKYThmS2ZyRk82TjdoSXp4X09zNEFDektOcnVBRURiSmlkS0I3Y2hOM1hDc1M5d3hweG5kLXJfaFlzWTNhNmdMWll1cGNCZw?oc=5"
+---
+
+### Fonte Original: OneFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi2gFBVV95cUxPRzJFbTNHQkJRSGtlaTFCNkZDZXlzTk0tUHp3WlhLQWJGY1hqNHg1R1RuZGV5UFJqSXl3LUxabmcwTDZLY3pVOVFQN1JrQlJnckszOHQ0a2dDTkxqdU9RbHY3bGUwUjVLd3JRQ083ZVBqZ0hRc29zY1Rhdnk5QjZPZmducmE1VTVqajd0dFpnVW9Ya3dKYThmS2ZyRk82TjdoSXp4X09zNEFDektOcnVBRURiSmlkS0I3Y2hOM1hDc1M5d3hweG5kLXJfaFlzWTNhNmdMWll1cGNCZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
