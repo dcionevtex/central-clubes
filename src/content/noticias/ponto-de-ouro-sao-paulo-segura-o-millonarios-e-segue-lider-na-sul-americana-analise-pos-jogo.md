@@ -1,0 +1,13 @@
+---
+title: "PONTO DE OURO? SÃO PAULO SEGURA O MILLONARIOS E SEGUE LÍDER NA SUL-AMERICANA! – ANÁLISE PÓS JOGO"
+description: "PONTO DE OURO? SÃO PAULO SEGURA O MILLONARIOS E SEGUE LÍDER NA SUL-AMERICANA! – ANÁLISE PÓS JOGO  LANCE!"
+pubDate: "2026-04-29T04:01:07.000Z"
+source: "LANCE!"
+link: "https://news.google.com/rss/articles/CBMiwgFBVV95cUxON2lUUHEwb0k4WXloSlRaZnNMMWUxVkRjSVZ1Ri1jNDNjQ3BSSjhjLTlQaFY2dEV2MzlpNTBXT2NPbEVmWWxQQnRFdjVWMmgxWDYwQWd6Rkh3aE5VUFBoRC1zUFRCMm5Sd053MDdvX0YxUGlyWTVIcUxTUFVZSnE1cGFSZlI4NDVLc3d3a2xielUyS3VyVGtreDhkeldmclY4MEhldUJ6MDlmQk41TXZyLThuWEcyLW9uc1ZmblVackRIZw?oc=5"
+---
+
+### Fonte Original: LANCE!
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiwgFBVV95cUxON2lUUHEwb0k4WXloSlRaZnNMMWUxVkRjSVZ1Ri1jNDNjQ3BSSjhjLTlQaFY2dEV2MzlpNTBXT2NPbEVmWWxQQnRFdjVWMmgxWDYwQWd6Rkh3aE5VUFBoRC1zUFRCMm5Sd053MDdvX0YxUGlyWTVIcUxTUFVZSnE1cGFSZlI4NDVLc3d3a2xielUyS3VyVGtreDhkeldmclY4MEhldUJ6MDlmQk41TXZyLThuWEcyLW9uc1ZmblVackRIZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
