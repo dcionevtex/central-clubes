@@ -1,0 +1,13 @@
+---
+title: "'Pit Bull' da base pode ser solução no meio-campo do São Paulo"
+description: "'Pit Bull' da base pode ser solução no meio-campo do São Paulo  iG Esportes"
+pubDate: "2026-04-29T20:48:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMisgFBVV95cUxQb25DU1pjWXUzRGlZblJsWTlxYVFpZE1ESS0wdEFXaHhCeXhkckNtV2hjblRfNDFKMVJJWk05QWYwMHpVU3JYSENtMWNmaS1vbzBxbjlxWm5lU0dBQ1gwbllReGxMZXJ5b0YwSkJxZk5YOFZpRk1LTGpDZEpnVFBPc0NpaFRjUnRSZXNUdnQ1bTEtSTdXTnpTckJIaUlYdG5qQmx3WmdLRHRGdDlCQ2QzeGZB0gG3AUFVX3lxTE4zaGVqTEc5NTlmeWJ1MU9VdWxiVGJKMVZSYU4tOUlMYlVIZUFOd3U3ZGoyZzdvM3FKYmpzMWlka25OYnJ2andZRWZSQ3pjQ3poOFJROXc0SENZVkdydmhrQldaZGd0cnUyUlEyaVR1MGJicktpanIwYlJtRjFmdUFZY2t4Q0xQWVZ4SUd0U3FmaVQyQmNrdTJ5TmpnbU85aGd2SnUwdjQ4ZXl2bElfamdGVFkwMTFtcw?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMisgFBVV95cUxQb25DU1pjWXUzRGlZblJsWTlxYVFpZE1ESS0wdEFXaHhCeXhkckNtV2hjblRfNDFKMVJJWk05QWYwMHpVU3JYSENtMWNmaS1vbzBxbjlxWm5lU0dBQ1gwbllReGxMZXJ5b0YwSkJxZk5YOFZpRk1LTGpDZEpnVFBPc0NpaFRjUnRSZXNUdnQ1bTEtSTdXTnpTckJIaUlYdG5qQmx3WmdLRHRGdDlCQ2QzeGZB0gG3AUFVX3lxTE4zaGVqTEc5NTlmeWJ1MU9VdWxiVGJKMVZSYU4tOUlMYlVIZUFOd3U3ZGoyZzdvM3FKYmpzMWlka25OYnJ2andZRWZSQ3pjQ3poOFJROXc0SENZVkdydmhrQldaZGd0cnUyUlEyaVR1MGJicktpanIwYlJtRjFmdUFZY2t4Q0xQWVZ4SUd0U3FmaVQyQmNrdTJ5TmpnbU85aGd2SnUwdjQ4ZXl2bElfamdGVFkwMTFtcw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
