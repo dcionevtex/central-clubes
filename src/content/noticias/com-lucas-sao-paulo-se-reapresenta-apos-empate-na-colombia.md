@@ -1,0 +1,13 @@
+---
+title: "Com Lucas, São Paulo se reapresenta após empate na Colômbia"
+description: "Com Lucas, São Paulo se reapresenta após empate na Colômbia  Gazeta Esportiva"
+pubDate: "2026-04-29T19:12:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxPSlg3ZjdJOEFKSGJ5QzJOaEhoRzRVaFBDS0RYZnhZYVc3ME95Tnp6X2tiZE5KcmhnRzBydWFpUEN3OVVEQkcwc0pUQ0FiT0RLRWRZc3FpY25UOFlURkpVZlB6SmRVQVdSLS1PZTRvelh3aGNIM1hEeTN1cV9KVUFEX3VYemtjNGZJOFBnV0MzenZVNHVfYldhQUx30gGfAUFVX3lxTE16Rkg0X3JXYUlGS3VXM0tZak1NS2luMzFzM3lPMktQZmVpeVRDZmhYYUpiaVMyUmhELU1kdmhCcmVTLVgtWHFVQUIxZklhZ0V3RVZQNHBkYzZmakp0QXpaQjV2VUZneThsQXRVakt2UER5UjZZZnlEQTBsSTZEa1dUbHVYU2t5Z2N3dGZyZWxMaFVYRmhJdHFmNWlSQkdJdw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxPSlg3ZjdJOEFKSGJ5QzJOaEhoRzRVaFBDS0RYZnhZYVc3ME95Tnp6X2tiZE5KcmhnRzBydWFpUEN3OVVEQkcwc0pUQ0FiT0RLRWRZc3FpY25UOFlURkpVZlB6SmRVQVdSLS1PZTRvelh3aGNIM1hEeTN1cV9KVUFEX3VYemtjNGZJOFBnV0MzenZVNHVfYldhQUx30gGfAUFVX3lxTE16Rkg0X3JXYUlGS3VXM0tZak1NS2luMzFzM3lPMktQZmVpeVRDZmhYYUpiaVMyUmhELU1kdmhCcmVTLVgtWHFVQUIxZklhZ0V3RVZQNHBkYzZmakp0QXpaQjV2VUZneThsQXRVakt2UER5UjZZZnlEQTBsSTZEa1dUbHVYU2t5Z2N3dGZyZWxMaFVYRmhJdHFmNWlSQkdJdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
