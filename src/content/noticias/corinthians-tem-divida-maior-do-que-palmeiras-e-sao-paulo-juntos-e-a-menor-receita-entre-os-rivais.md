@@ -1,0 +1,13 @@
+---
+title: "Corinthians tem dívida maior do que Palmeiras e São Paulo juntos e a menor receita entre os rivais"
+description: "Corinthians tem dívida maior do que Palmeiras e São Paulo juntos e a menor receita entre os rivais  Terra"
+pubDate: "2026-04-29T13:05:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMilAJBVV95cUxQWjE5TmdjMVhaT3VNcGFSTVRRaUF3eGZGek9PX2FZZGt6MFA4VTI2N21HUFBhU1pWYWc5Y3dXRC1CUlk2VlRKdTFjSHo0YnhsX3pwUWVwRWU3VHBCcE1XMnZOTC12X0liYXZCVFJCZy1OTXZoazJrMU1XMERDdFpDLU9WVHcxOTNucm9nMW8zWE5HY1BpR2N5NHJYeXFoMzdkNURRcFFoNjJ0OXVBTUpHRDBzak9EUnNsMzZTekJMVDZBVVh3NW10dXJSSVRvZUhRTk80ZUhMak9iWC13ZnpJeHpVa19xeDQ3N1JTQUV2QVZvNDFPd05rX2JPSFBNVVVQWmFCbjRoMVJFRWZTWEpNelJrWDI?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAJBVV95cUxQWjE5TmdjMVhaT3VNcGFSTVRRaUF3eGZGek9PX2FZZGt6MFA4VTI2N21HUFBhU1pWYWc5Y3dXRC1CUlk2VlRKdTFjSHo0YnhsX3pwUWVwRWU3VHBCcE1XMnZOTC12X0liYXZCVFJCZy1OTXZoazJrMU1XMERDdFpDLU9WVHcxOTNucm9nMW8zWE5HY1BpR2N5NHJYeXFoMzdkNURRcFFoNjJ0OXVBTUpHRDBzak9EUnNsMzZTekJMVDZBVVh3NW10dXJSSVRvZUhRTk80ZUhMak9iWC13ZnpJeHpVa19xeDQ3N1JTQUV2QVZvNDFPd05rX2JPSFBNVVVQWmFCbjRoMVJFRWZTWEpNelJrWDI?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

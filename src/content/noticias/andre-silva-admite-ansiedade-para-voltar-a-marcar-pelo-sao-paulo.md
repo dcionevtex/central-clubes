@@ -1,0 +1,13 @@
+---
+title: "André Silva admite ansiedade para voltar a marcar pelo São Paulo"
+description: "André Silva admite ansiedade para voltar a marcar pelo São Paulo  Jogada 10"
+pubDate: "2026-04-29T13:17:27.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxQZE9naGE5amRkT2FJSWxSTENIVERqZnNhOGh4MjlITFd3ODlCSW91aUVKelJkMTZDVjlhOXlleXQwVTM2dVN1SGVuek10aUdrUUxhRV9NSGEzMjJNVWxUbmFuUFpmMHRkMVdYYkI4SnlzUmw3dG9XbjhMTGFBZjNoZWNPaHJUek1FSU5WRmZSRWZRV0nSAZgBQVVfeXFMTXV4eWtJRC1zV3RGbWMwOXlNZ1d1Smxrbm5LT3lSb3lHa1prZWFWclY3d3ctQVhIbTFqTVpCOUVYMzh5Um00bS1Kcm9FM3lzQzRBRmx2dm91dGtfS2ZzWGVYX1k2bFFtSzFQcG52SEZESnRDU0U4bTdpcFJMaGhsRTVld1k1aTJqVFFIdmdvRjdJc2lrakxSY3U?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxQZE9naGE5amRkT2FJSWxSTENIVERqZnNhOGh4MjlITFd3ODlCSW91aUVKelJkMTZDVjlhOXlleXQwVTM2dVN1SGVuek10aUdrUUxhRV9NSGEzMjJNVWxUbmFuUFpmMHRkMVdYYkI4SnlzUmw3dG9XbjhMTGFBZjNoZWNPaHJUek1FSU5WRmZSRWZRV0nSAZgBQVVfeXFMTXV4eWtJRC1zV3RGbWMwOXlNZ1d1Smxrbm5LT3lSb3lHa1prZWFWclY3d3ctQVhIbTFqTVpCOUVYMzh5Um00bS1Kcm9FM3lzQzRBRmx2dm91dGtfS2ZzWGVYX1k2bFFtSzFQcG52SEZESnRDU0U4bTdpcFJMaGhsRTVld1k1aTJqVFFIdmdvRjdJc2lrakxSY3U?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

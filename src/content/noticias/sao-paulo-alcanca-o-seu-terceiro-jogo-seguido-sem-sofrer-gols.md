@@ -1,0 +1,13 @@
+---
+title: "São Paulo alcança o seu terceiro jogo seguido sem sofrer gols"
+description: "São Paulo alcança o seu terceiro jogo seguido sem sofrer gols  Jogada 10"
+pubDate: "2026-04-29T14:13:49.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxPN0tzZVpRUVRQcFF5YnVDbUQwekRkcEZvMXU4VmlHeVpGWGxSOGk2bWFZSUl5N2ZOclo4cFdMNl9rUEpvLTUydU1USXIxdHduSm1TS0l6Rzdpbk5aUXE3M1RTNTRTM3JmTkk2NmxuaFlyaGgydS1DNDRZaDI2UHh0RTRLQjF5NVl1M1AxamVYUdIBlAFBVV95cUxObUJoVTZveVhaek80c2owUmdqQjF1TUFPQnZhbnpGQmtMYlV4N202MXpxLUpTRWNSX3JoLXhVWjNjYWN0Tl9rdVRlVVE1RjFVZy1nOWFWTzhodnpUdWE0TG9SZEJlQXprMHlvY09hYllFYmh3NlhmQ29hcjQwcEw2VFdSS1ZzRmYydUN6Rm1ybUdDV3Vx?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxPN0tzZVpRUVRQcFF5YnVDbUQwekRkcEZvMXU4VmlHeVpGWGxSOGk2bWFZSUl5N2ZOclo4cFdMNl9rUEpvLTUydU1USXIxdHduSm1TS0l6Rzdpbk5aUXE3M1RTNTRTM3JmTkk2NmxuaFlyaGgydS1DNDRZaDI2UHh0RTRLQjF5NVl1M1AxamVYUdIBlAFBVV95cUxObUJoVTZveVhaek80c2owUmdqQjF1TUFPQnZhbnpGQmtMYlV4N202MXpxLUpTRWNSX3JoLXhVWjNjYWN0Tl9rdVRlVVE1RjFVZy1nOWFWTzhodnpUdWE0TG9SZEJlQXprMHlvY09hYllFYmh3NlhmQ29hcjQwcEw2VFdSS1ZzRmYydUN6Rm1ybUdDV3Vx?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
