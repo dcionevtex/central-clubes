@@ -1,0 +1,13 @@
+---
+title: "São Paulo cria expectativa pelo retorno de Lucas"
+description: "São Paulo cria expectativa pelo retorno de Lucas  Portal Hortolândia"
+pubDate: "2026-04-29T18:48:03.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNWEs4aGxUYmhLdWZ6d0w3NHVKREdpTFhmdkxNU2k1NkJZMHoxa3hjMFAzZG5RNDQ5cjBFbmtfN0FKWmk5dXZTckpNRUlPOFJ1WTJyVmNJLWNISm9VckhDWjZOSlhFWndMRzZnRk1aQnJLVTNQZk5ZTjI0eXUtT3RjQ9IBgAFBVV95cUxNWEs4aGxUYmhLdWZ6d0w3NHVKREdpTFhmdkxNU2k1NkJZMHoxa3hjMFAzZG5RNDQ5cjBFbmtfN0FKWmk5dXZTckpNRUlPOFJ1WTJyVmNJLWNISm9VckhDWjZOSlhFWndMRzZnRk1aQnJLVTNQZk5ZTjI0eXUtT3RjQw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNWEs4aGxUYmhLdWZ6d0w3NHVKREdpTFhmdkxNU2k1NkJZMHoxa3hjMFAzZG5RNDQ5cjBFbmtfN0FKWmk5dXZTckpNRUlPOFJ1WTJyVmNJLWNISm9VckhDWjZOSlhFWndMRzZnRk1aQnJLVTNQZk5ZTjI0eXUtT3RjQ9IBgAFBVV95cUxNWEs4aGxUYmhLdWZ6d0w3NHVKREdpTFhmdkxNU2k1NkJZMHoxa3hjMFAzZG5RNDQ5cjBFbmtfN0FKWmk5dXZTckpNRUlPOFJ1WTJyVmNJLWNISm9VckhDWjZOSlhFWndMRzZnRk1aQnJLVTNQZk5ZTjI0eXUtT3RjQw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
