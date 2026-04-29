@@ -1,0 +1,13 @@
+---
+title: "São Paulo busca empate contra o Cuiabá pelo Brasileiro Sub-20"
+description: "São Paulo busca empate contra o Cuiabá pelo Brasileiro Sub-20  Jogada 10"
+pubDate: "2026-04-29T23:01:11.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxNSlJ0ZGlXVk9SZEFCRmhic09CdzJuZ05fOV9TYVRocmFDS3ljRGd3dFJaYS1qMXItV0l6c1MyOVBZTjZ3WHJ2R3o2QXRvZ3lCUXVieTJiRmtnaHc4V2dkOXRxTzZkVndXM0pDcGRRODUyVE9QOGlwcnRuZzlZOU9EVGdoc25LYjkzbVh6dWI5NNIBlAFBVV95cUxNalR3V2x1MU9ta1lEWFJNVWdoRVlkcVY4SWhLX05iMEpQZl9jZGJ4eVpTbC1ES01kazBuY0ZhUnJDOG5BU2Y0RkNsejQzOFc0a0FCd0lMa0NLbktWRVVkeXc3YWNWamZiWmJmSEQ1MjJKUnVSdXk1c1hVVGxDMU9wdWsxVHFPSHlNY0JNNXRUT3I3cG9L?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSlJ0ZGlXVk9SZEFCRmhic09CdzJuZ05fOV9TYVRocmFDS3ljRGd3dFJaYS1qMXItV0l6c1MyOVBZTjZ3WHJ2R3o2QXRvZ3lCUXVieTJiRmtnaHc4V2dkOXRxTzZkVndXM0pDcGRRODUyVE9QOGlwcnRuZzlZOU9EVGdoc25LYjkzbVh6dWI5NNIBlAFBVV95cUxNalR3V2x1MU9ta1lEWFJNVWdoRVlkcVY4SWhLX05iMEpQZl9jZGJ4eVpTbC1ES01kazBuY0ZhUnJDOG5BU2Y0RkNsejQzOFc0a0FCd0lMa0NLbktWRVVkeXc3YWNWamZiWmJmSEQ1MjJKUnVSdXk1c1hVVGxDMU9wdWsxVHFPSHlNY0JNNXRUT3I3cG9L?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
