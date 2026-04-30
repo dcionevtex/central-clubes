@@ -1,0 +1,13 @@
+---
+title: "São Paulo poderá contar com Cauly contra o Bahia"
+description: "São Paulo poderá contar com Cauly contra o Bahia  Portal Hortolândia"
+pubDate: "2026-04-30T20:13:38.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQZ20wVW1KeEthb3ZNTHMtMk9wOFI5aDdqdG9wNWlkMUhUQnI4WFZES0VYX3RRd3plZEUxVm5PVGlFc01ydWdUZ0VlZzY2aC1OdENub3p3bkt6aENPQWxGRldfX1FCV1pmX3RCdEw2UDQwdHYzMlpBLUM0MHlId3c5RdIBgAFBVV95cUxQZ20wVW1KeEthb3ZNTHMtMk9wOFI5aDdqdG9wNWlkMUhUQnI4WFZES0VYX3RRd3plZEUxVm5PVGlFc01ydWdUZ0VlZzY2aC1OdENub3p3bkt6aENPQWxGRldfX1FCV1pmX3RCdEw2UDQwdHYzMlpBLUM0MHlId3c5RQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQZ20wVW1KeEthb3ZNTHMtMk9wOFI5aDdqdG9wNWlkMUhUQnI4WFZES0VYX3RRd3plZEUxVm5PVGlFc01ydWdUZ0VlZzY2aC1OdENub3p3bkt6aENPQWxGRldfX1FCV1pmX3RCdEw2UDQwdHYzMlpBLUM0MHlId3c5RdIBgAFBVV95cUxQZ20wVW1KeEthb3ZNTHMtMk9wOFI5aDdqdG9wNWlkMUhUQnI4WFZES0VYX3RRd3plZEUxVm5PVGlFc01ydWdUZ0VlZzY2aC1OdENub3p3bkt6aENPQWxGRldfX1FCV1pmX3RCdEw2UDQwdHYzMlpBLUM0MHlId3c5RQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
