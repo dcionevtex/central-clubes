@@ -1,0 +1,13 @@
+---
+title: "São Paulo corta Moreira por escolha tática de Roger Machado"
+description: "São Paulo corta Moreira por escolha tática de Roger Machado  Bolavip Brasil"
+pubDate: "2026-04-30T12:56:48.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxNRG12YWhrMDJTWEdteGJ1aUhmcjJjcHZYNzNkcE43NV9BWExNTEV2RC0wNGdhcWdzVWZNbFRKSHFLN3FVWkhNVkFUTGxfcjhETTY1bEd3N2FudVdpUTNuNUlyaGVESDNhNlZ2NWttVEJib0ExbXAzUUF6aFA1N041WHlSaHlqSWpTbHVUZjlSc0ZQX3ZnbC1aVU1PaHXSAZwBQVVfeXFMTURtdmFoazAyU1hHbXhidWlIZnIyY3B2WDczZHBONzVfQVhMTUxFdkQtMDRnYXFnc1VmTWxUSkhxSzdxVVpITVZBVExsX3I4RE02NWxHdzdhbnVXaVEzbjVJcmhlREgzYTZWdjVrbVRCYm9BMW1wM1FBemhQNTdONVh5Umh5aklqU2x1VGY5UnNGUF92Z2wtWlVNT2h1?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxNRG12YWhrMDJTWEdteGJ1aUhmcjJjcHZYNzNkcE43NV9BWExNTEV2RC0wNGdhcWdzVWZNbFRKSHFLN3FVWkhNVkFUTGxfcjhETTY1bEd3N2FudVdpUTNuNUlyaGVESDNhNlZ2NWttVEJib0ExbXAzUUF6aFA1N041WHlSaHlqSWpTbHVUZjlSc0ZQX3ZnbC1aVU1PaHXSAZwBQVVfeXFMTURtdmFoazAyU1hHbXhidWlIZnIyY3B2WDczZHBONzVfQVhMTUxFdkQtMDRnYXFnc1VmTWxUSkhxSzdxVVpITVZBVExsX3I4RE02NWxHdzdhbnVXaVEzbjVJcmhlREgzYTZWdjVrbVRCYm9BMW1wM1FBemhQNTdONVh5Umh5aklqU2x1VGY5UnNGUF92Z2wtWlVNT2h1?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
