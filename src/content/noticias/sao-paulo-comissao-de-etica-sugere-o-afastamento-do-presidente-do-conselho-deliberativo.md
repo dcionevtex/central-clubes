@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Comissão de Ética sugere o afastamento do presidente do Conselho Deliberativo"
+description: "São Paulo: Comissão de Ética sugere o afastamento do presidente do Conselho Deliberativo  Terra"
+pubDate: "2026-04-30T19:51:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiiAJBVV95cUxNcEttSDJFQ2NWQ3ExXzUycHBwSWZZd294SlRQNWhkaHN2dlJob3JzTEVRQ2tQYnI3VlljdWNhTzM3bEFBQXhYa3NtWnFtbFREQVZWZkxSWUFMVkxGSE5MSW1sVGJkRXNGN2RqajFzSzBCLUxfdjgzblNINWp3WkYxM2FlMTQ5eVVXaVBzV1hOYUZDNDBSNC1fUFc2U3U2RGFRNUtRams5OXgtdF9tSDRyTkIxeVI3Yy03aDJnRDlsaVN1U2lRYklhQ096eEFTa0UySnl6WXFHbUJacnI5WGVRZEdNSVgyMHNUUWw0cDAyUkYwVER6TkxYVlU1YTlfTVJ1NklMbmt3M2c?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAJBVV95cUxNcEttSDJFQ2NWQ3ExXzUycHBwSWZZd294SlRQNWhkaHN2dlJob3JzTEVRQ2tQYnI3VlljdWNhTzM3bEFBQXhYa3NtWnFtbFREQVZWZkxSWUFMVkxGSE5MSW1sVGJkRXNGN2RqajFzSzBCLUxfdjgzblNINWp3WkYxM2FlMTQ5eVVXaVBzV1hOYUZDNDBSNC1fUFc2U3U2RGFRNUtRams5OXgtdF9tSDRyTkIxeVI3Yy03aDJnRDlsaVN1U2lRYklhQ096eEFTa0UySnl6WXFHbUJacnI5WGVRZEdNSVgyMHNUUWw0cDAyUkYwVER6TkxYVlU1YTlfTVJ1NklMbmt3M2c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
