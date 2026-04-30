@@ -1,0 +1,13 @@
+---
+title: "São Paulo valoriza postura de Dória, e zagueiro ganha espaço"
+description: "São Paulo valoriza postura de Dória, e zagueiro ganha espaço  Bolavip Brasil"
+pubDate: "2026-04-30T11:17:01.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxPYzJlbXo0TGVJM2NUSUhUQmNIVjBZd3dDMXFOQm9ONEFwMG5hTHJJY0ZNZHg2S2M3SUpfbFQ2MHYxVFJEVDU1dHJxQTJoWHBMSUZWdUlOdGJ2ZTRDZFE3NTBKMktPT1dVSUVmT0ttaFU4MTBfbnl4Zkk3Z0hTd0s2MmtaYjdpczhRV2V1REQ5SFl0LXpnTTZj0gGcAUFVX3lxTE1ZeC05Tk1fVjdsX2NqaFE0ZVM1dU1mTXI0aUhYa1pFWkkxMWYyVF9FM2thTHNEMERNS3pySVJoMHd3bTdOaTl2M2dyZE82alpRSDFJWUlkZWttdDZxQzE0Q2ctT2llX2lPaG5JSDNodE1oZm5IRkxKZnRYNnlKYVhUektCUExVaWdDb0F3TTloYVZrblNLcGVrOGNzVw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxPYzJlbXo0TGVJM2NUSUhUQmNIVjBZd3dDMXFOQm9ONEFwMG5hTHJJY0ZNZHg2S2M3SUpfbFQ2MHYxVFJEVDU1dHJxQTJoWHBMSUZWdUlOdGJ2ZTRDZFE3NTBKMktPT1dVSUVmT0ttaFU4MTBfbnl4Zkk3Z0hTd0s2MmtaYjdpczhRV2V1REQ5SFl0LXpnTTZj0gGcAUFVX3lxTE1ZeC05Tk1fVjdsX2NqaFE0ZVM1dU1mTXI0aUhYa1pFWkkxMWYyVF9FM2thTHNEMERNS3pySVJoMHd3bTdOaTl2M2dyZE82alpRSDFJWUlkZWttdDZxQzE0Q2ctT2llX2lPaG5JSDNodE1oZm5IRkxKZnRYNnlKYVhUektCUExVaWdDb0F3TTloYVZrblNLcGVrOGNzVw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

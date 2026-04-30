@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê Toloi crescer, e cláusula pode renovar contrato"
+description: "São Paulo vê Toloi crescer, e cláusula pode renovar contrato  Bolavip Brasil"
+pubDate: "2026-04-30T11:42:16.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxOcGs4dExLWW81Q0R5Rlh1SjNTU1JwSHZhOXpGQU55ZFhxYUhuTExxMjBvYmo5TW9yQXRaSnNQa054NHA1Yy1jQllZVUhjakxXZ2paWWVFX0VYOEV2M1JicE9EeS0tQTJqZzBWMU5SMWNNeVVxcVUyTnpJb28zdWZSMXdCdERpMExmajFJUGxiSzFYaVM3eGtZ0gGcAUFVX3lxTE9yX1ZLVnlFem9BdmtkME5ILVpUZWlDQ1JzOTlmVE9rU2ZhUEpFVGlPNGlhSk5COWtIUzdENXhidmdhcjVRbU5zUUFZWFd1UFJYcmtnaHhNX1lCLVIxZy1xNG93MzhsS0lNQURuVlBuMDRhd2hGZkpYbDZQM2dSYlpRQUZHZ1hrQ1pRUU1iT2hoRFZUZUw3aXAxbjZEcA?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxOcGs4dExLWW81Q0R5Rlh1SjNTU1JwSHZhOXpGQU55ZFhxYUhuTExxMjBvYmo5TW9yQXRaSnNQa054NHA1Yy1jQllZVUhjakxXZ2paWWVFX0VYOEV2M1JicE9EeS0tQTJqZzBWMU5SMWNNeVVxcVUyTnpJb28zdWZSMXdCdERpMExmajFJUGxiSzFYaVM3eGtZ0gGcAUFVX3lxTE9yX1ZLVnlFem9BdmtkME5ILVpUZWlDQ1JzOTlmVE9rU2ZhUEpFVGlPNGlhSk5COWtIUzdENXhidmdhcjVRbU5zUUFZWFd1UFJYcmtnaHhNX1lCLVIxZy1xNG93MzhsS0lNQURuVlBuMDRhd2hGZkpYbDZQM2dSYlpRQUZHZ1hrQ1pRUU1iT2hoRFZUZUw3aXAxbjZEcA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
