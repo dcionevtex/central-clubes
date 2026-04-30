@@ -1,0 +1,13 @@
+---
+title: "Rogério Ceni é freguês do São Paulo como treinador; veja restrospecto"
+description: "Rogério Ceni é freguês do São Paulo como treinador; veja restrospecto  Gazeta Esportiva"
+pubDate: "2026-04-30T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxONkNQek5OT1ZzSlJlN3ZqLU0xeWVETXIyZHJlbzRLVFZ5cmFxU0VDQnFnSmtOVWtDNUxabDVJOHVzeURpYjZXeFh1R2lqLUNWWVBDUkFLYkNLNURRLTU5VlhXNzI5WEFaby1WRUZ3UFI1dVQydDdUbW4zX01QQ3NDRzE3akhtTlpXd093blZoRmNYbXNZenk40gGcAUFVX3lxTE9hUV9qN0NDWHlUX25GZ3hjOTBzazZBY3REQ1JXRHhjSGtCS28yWFkwSWhYRmR1N0dtN0tKRlJmLTM4Q2Rhbm1aNXpPZ1l4czNHc0tueTZQRk9GY2FjMnFhaERJMUxLZEd4THNQRDREYW94RVA3dGg5YkRDMDE2NUl2ZDl4YUVpX3lHS2JCSUdZbzNEajNReHpwMGRNdA?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxONkNQek5OT1ZzSlJlN3ZqLU0xeWVETXIyZHJlbzRLVFZ5cmFxU0VDQnFnSmtOVWtDNUxabDVJOHVzeURpYjZXeFh1R2lqLUNWWVBDUkFLYkNLNURRLTU5VlhXNzI5WEFaby1WRUZ3UFI1dVQydDdUbW4zX01QQ3NDRzE3akhtTlpXd093blZoRmNYbXNZenk40gGcAUFVX3lxTE9hUV9qN0NDWHlUX25GZ3hjOTBzazZBY3REQ1JXRHhjSGtCS28yWFkwSWhYRmR1N0dtN0tKRlJmLTM4Q2Rhbm1aNXpPZ1l4czNHc0tueTZQRk9GY2FjMnFhaERJMUxLZEd4THNQRDREYW94RVA3dGg5YkRDMDE2NUl2ZDl4YUVpX3lHS2JCSUdZbzNEajNReHpwMGRNdA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
