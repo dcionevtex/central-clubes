@@ -1,0 +1,13 @@
+---
+title: "São Paulo vive expectativa por retorno de Lucas"
+description: "São Paulo vive expectativa por retorno de Lucas  Portal Hortolândia"
+pubDate: "2026-04-30T20:31:55.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE5PSlRxMnZJZExVNks5VHpWTUI2U2ZDb0MzTHhMSUlZZkpNUnpxTHcxLUsxVElNaVpoTU5qX0xSbjd5cGc1Sl8wR29WUHVSYk1IRGlPWGZ6ZXU4b3ZkSGJQbktDOWhyeXhQRjJoZG1hNk94ZGJ2OWlzYkY1Z9IBe0FVX3lxTE5PSlRxMnZJZExVNks5VHpWTUI2U2ZDb0MzTHhMSUlZZkpNUnpxTHcxLUsxVElNaVpoTU5qX0xSbjd5cGc1Sl8wR29WUHVSYk1IRGlPWGZ6ZXU4b3ZkSGJQbktDOWhyeXhQRjJoZG1hNk94ZGJ2OWlzYkY1Zw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE5PSlRxMnZJZExVNks5VHpWTUI2U2ZDb0MzTHhMSUlZZkpNUnpxTHcxLUsxVElNaVpoTU5qX0xSbjd5cGc1Sl8wR29WUHVSYk1IRGlPWGZ6ZXU4b3ZkSGJQbktDOWhyeXhQRjJoZG1hNk94ZGJ2OWlzYkY1Z9IBe0FVX3lxTE5PSlRxMnZJZExVNks5VHpWTUI2U2ZDb0MzTHhMSUlZZkpNUnpxTHcxLUsxVElNaVpoTU5qX0xSbjd5cGc1Sl8wR29WUHVSYk1IRGlPWGZ6ZXU4b3ZkSGJQbktDOWhyeXhQRjJoZG1hNk94ZGJ2OWlzYkY1Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
