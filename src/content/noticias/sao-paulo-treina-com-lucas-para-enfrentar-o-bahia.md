@@ -1,0 +1,13 @@
+---
+title: "São Paulo treina com Lucas para enfrentar o Bahia"
+description: "São Paulo treina com Lucas para enfrentar o Bahia  Portal Hortolândia"
+pubDate: "2026-05-01T21:24:01.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihwFBVV95cUxOcTBpdkU1QWYxempRNlVpaUhlYldvUkhNTGtFY1BxRHZUOF9HOC00TFBtN1pyWmJUZHZJZmxENzRKZk9EZGdYdjY1SzRCYXhHVk90Y1FrZGVuWUd3ZTk1QlhNQWxRNzRNZ29SUmQ5dXBhRThTTnlVd2VaRm5Ca3l3RGdHeHpnNTjSAYcBQVVfeXFMTnEwaXZFNUFmMXpqUTZVaWlIZWJXb1JITUxrRWNQcUR2VDhfRzgtNExQbTdaclpiVGR2SWZsRDc0SmZPRGRnWHY2NUs0QmF4R1ZPdGNRa2RlbllHd2U5NUJYTUFsUTc0TWdvUlJkOXVwYUU4U055VXdlWkZuQmt5d0RnR3h6ZzU4?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwFBVV95cUxOcTBpdkU1QWYxempRNlVpaUhlYldvUkhNTGtFY1BxRHZUOF9HOC00TFBtN1pyWmJUZHZJZmxENzRKZk9EZGdYdjY1SzRCYXhHVk90Y1FrZGVuWUd3ZTk1QlhNQWxRNzRNZ29SUmQ5dXBhRThTTnlVd2VaRm5Ca3l3RGdHeHpnNTjSAYcBQVVfeXFMTnEwaXZFNUFmMXpqUTZVaWlIZWJXb1JITUxrRWNQcUR2VDhfRzgtNExQbTdaclpiVGR2SWZsRDc0SmZPRGRnWHY2NUs0QmF4R1ZPdGNRa2RlbllHd2U5NUJYTUFsUTc0TWdvUlJkOXVwYUU4U055VXdlWkZuQmt5d0RnR3h6ZzU4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
