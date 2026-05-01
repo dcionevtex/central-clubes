@@ -1,0 +1,13 @@
+---
+title: "Arboleda não retorna e São Paulo aguarda data para rescisão por justa causa"
+description: "Arboleda não retorna e São Paulo aguarda data para rescisão por justa causa  Jogada 10"
+pubDate: "2026-05-01T16:05:48.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxNR1k2czViOEFIMzNNcEc0cDNQZlVlbC14U3Zxb0F1TzIyb3lsM1ZLZ25QWl9pQm1IdUFEY1dHNUFBV3VXZnNCTzZkZlFQWG1MWVdvaTY0SVJBdFZRUjhDUGxtNWZJR0lEVE0zbDVMN1lFYmIzcktJQm54SE9FdkxhUXZNZ2pvUFJlZGYxZXJFR0Q3emwyakxsTVFzMUtoYXNJYWfSAacBQVVfeXFMT01TcEExT3p6R2ZGVmRNQ3Z3LV9UQjA2QnRVZkZQOTR0SjZBdkx6MklDejR1LXVjc2p3RXhNQkZCR19weFhyci1fMTNCWjFDWjhQMTlCbkVZdDNQNkhTLUY3YjBtcUg3cjJfVkVRa1pZMjdTTE9XMHFGVlU3TEY4MDNJMlFOTkhRM2gtWDgxbmFrdGF1SlZnampHbHVSbzB5NnJqczdJeHM?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxNR1k2czViOEFIMzNNcEc0cDNQZlVlbC14U3Zxb0F1TzIyb3lsM1ZLZ25QWl9pQm1IdUFEY1dHNUFBV3VXZnNCTzZkZlFQWG1MWVdvaTY0SVJBdFZRUjhDUGxtNWZJR0lEVE0zbDVMN1lFYmIzcktJQm54SE9FdkxhUXZNZ2pvUFJlZGYxZXJFR0Q3emwyakxsTVFzMUtoYXNJYWfSAacBQVVfeXFMT01TcEExT3p6R2ZGVmRNQ3Z3LV9UQjA2QnRVZkZQOTR0SjZBdkx6MklDejR1LXVjc2p3RXhNQkZCR19weFhyci1fMTNCWjFDWjhQMTlCbkVZdDNQNkhTLUY3YjBtcUg3cjJfVkVRa1pZMjdTTE9XMHFGVlU3TEY4MDNJMlFOTkhRM2gtWDgxbmFrdGF1SlZnampHbHVSbzB5NnJqczdJeHM?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
