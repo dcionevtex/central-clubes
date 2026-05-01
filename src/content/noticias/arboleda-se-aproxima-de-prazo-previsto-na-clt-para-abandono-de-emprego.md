@@ -1,0 +1,13 @@
+---
+title: "Arboleda se aproxima de prazo previsto na CLT para abandono de emprego"
+description: "Arboleda se aproxima de prazo previsto na CLT para abandono de emprego  Portal Hortolândia"
+pubDate: "2026-05-01T14:58:41.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxNa3NwTi1OZkVRV0QyUWk2SW5vTVI1elNOa3V0R3JWSHc2dFAwNFoxdGhrNUtwRTZ3Q0IxdlpwMl9EQUxLMl9tMnFrSDRrMEZQTS0yVG82UlhFU29jNDJKUmRCNlRCZFBPTmRidE53ZmdBVE5sR2NYdWMyY1FuSHBsS1J0LWPSAYQBQVVfeXFMTWtzcE4tTmZFUVdEMlFpNklub01SNXpTTmt1dEdyVkh3NnRQMDRaMXRoazVLcEU2d0NCMXZacDJfREFMSzJfbTJxa0g0azBGUE0tMlRvNlJYRVNvYzQySlJkQjZUQmRQT05kYnROd2ZnQVRObEdjWHVjMmNRbkhwbEtSdC1j?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxNa3NwTi1OZkVRV0QyUWk2SW5vTVI1elNOa3V0R3JWSHc2dFAwNFoxdGhrNUtwRTZ3Q0IxdlpwMl9EQUxLMl9tMnFrSDRrMEZQTS0yVG82UlhFU29jNDJKUmRCNlRCZFBPTmRidE53ZmdBVE5sR2NYdWMyY1FuSHBsS1J0LWPSAYQBQVVfeXFMTWtzcE4tTmZFUVdEMlFpNklub01SNXpTTmt1dEdyVkh3NnRQMDRaMXRoazVLcEU2d0NCMXZacDJfREFMSzJfbTJxa0g0azBGUE0tMlRvNlJYRVNvYzQySlJkQjZUQmRQT05kYnROd2ZnQVRObEdjWHVjMmNRbkhwbEtSdC1j?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
