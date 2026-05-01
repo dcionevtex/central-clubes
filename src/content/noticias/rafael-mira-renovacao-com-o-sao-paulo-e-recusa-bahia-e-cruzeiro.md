@@ -1,0 +1,13 @@
+---
+title: "Rafael mira renovação com o São Paulo e recusa Bahia e Cruzeiro"
+description: "Rafael mira renovação com o São Paulo e recusa Bahia e Cruzeiro  Bolavip Brasil"
+pubDate: "2026-05-01T12:53:24.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxOMHRPQkM5ZDE3cW5CQXdzYnVsSmx4UTk5QkZsb3hFZHRndlpXcjdUOFp4OHdndEdOenByeUtraHVIMV9JMnNTaGhvajY4TFprdWJVdkFnN0lseGRHcnRPRllpVWtxaVhHNlpkRkh1N1VFSVlLYktuZV9oSm84SVh2THNLQkx5bHM0RmJXLXpTZl9aY3dEYzJQUERXLWjSAaIBQVVfeXFMTVFqMEV6djQ0amxtYlgycUd3eWJpUVdrN0xfVFJ4X2pMZjFJQ0NoaU44WTNDM1hLbndHbVVsMGRYeWVCX3BZN2RkdHdCM09qN0YtVTZrVkI2ZWxMd1VKS0phM2NkOU1HNVpZWEVTTUlFRVdhNDdMbUl2bWkwUUpzU1BESjNMbnY4bVl0emVsbW93WVAxT3hibDJQQzFQWml6ZUxB?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxOMHRPQkM5ZDE3cW5CQXdzYnVsSmx4UTk5QkZsb3hFZHRndlpXcjdUOFp4OHdndEdOenByeUtraHVIMV9JMnNTaGhvajY4TFprdWJVdkFnN0lseGRHcnRPRllpVWtxaVhHNlpkRkh1N1VFSVlLYktuZV9oSm84SVh2THNLQkx5bHM0RmJXLXpTZl9aY3dEYzJQUERXLWjSAaIBQVVfeXFMTVFqMEV6djQ0amxtYlgycUd3eWJpUVdrN0xfVFJ4X2pMZjFJQ0NoaU44WTNDM1hLbndHbVVsMGRYeWVCX3BZN2RkdHdCM09qN0YtVTZrVkI2ZWxMd1VKS0phM2NkOU1HNVpZWEVTTUlFRVdhNDdMbUl2bWkwUUpzU1BESjNMbnY4bVl0emVsbW93WVAxT3hibDJQQzFQWml6ZUxB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
