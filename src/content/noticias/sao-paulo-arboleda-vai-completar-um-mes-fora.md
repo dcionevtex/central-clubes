@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Arboleda vai completar um mês fora"
+description: "São Paulo: Arboleda vai completar um mês fora  ABCD Jornal"
+pubDate: "2026-05-01T15:08:17.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxOUXBCVk01cUlIaWU1SVZVVHZOVnBlWXpaalhWeElBNmhTYlhUb0Q3YklOLUhWWE5oNUI5TGQ2bl84U1YzNjBWcEpaVmQ0U2tzLURKLUlCMzV3R1FwVENPaWdNWU4wUVROQ1o5WDhEdG1leUlEeVdwX2tLcEwzS0ZaNXlmYWI4VmFBU3p6OTl0NUNfRnpxTUdrMFZmU1g5OEJPUm03WdIBpAFBVV95cUxOUXBCVk01cUlIaWU1SVZVVHZOVnBlWXpaalhWeElBNmhTYlhUb0Q3YklOLUhWWE5oNUI5TGQ2bl84U1YzNjBWcEpaVmQ0U2tzLURKLUlCMzV3R1FwVENPaWdNWU4wUVROQ1o5WDhEdG1leUlEeVdwX2tLcEwzS0ZaNXlmYWI4VmFBU3p6OTl0NUNfRnpxTUdrMFZmU1g5OEJPUm03WQ?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxOUXBCVk01cUlIaWU1SVZVVHZOVnBlWXpaalhWeElBNmhTYlhUb0Q3YklOLUhWWE5oNUI5TGQ2bl84U1YzNjBWcEpaVmQ0U2tzLURKLUlCMzV3R1FwVENPaWdNWU4wUVROQ1o5WDhEdG1leUlEeVdwX2tLcEwzS0ZaNXlmYWI4VmFBU3p6OTl0NUNfRnpxTUdrMFZmU1g5OEJPUm03WdIBpAFBVV95cUxOUXBCVk01cUlIaWU1SVZVVHZOVnBlWXpaalhWeElBNmhTYlhUb0Q3YklOLUhWWE5oNUI5TGQ2bl84U1YzNjBWcEpaVmQ0U2tzLURKLUlCMzV3R1FwVENPaWdNWU4wUVROQ1o5WDhEdG1leUlEeVdwX2tLcEwzS0ZaNXlmYWI4VmFBU3p6OTl0NUNfRnpxTUdrMFZmU1g5OEJPUm03WQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
