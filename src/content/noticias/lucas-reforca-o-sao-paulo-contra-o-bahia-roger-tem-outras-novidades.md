@@ -1,0 +1,13 @@
+---
+title: "Lucas reforça o São Paulo contra o Bahia; Roger tem outras novidades"
+description: "Lucas reforça o São Paulo contra o Bahia; Roger tem outras novidades  Esporte News Mundo"
+pubDate: "2026-05-02T16:57:10.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxNdzVsRi1lZFpubGhpdE1NOWlCZ1JWUHY2OS01WWZYZzZFMldfWlNUZVl0cTh2M0ozTTExN0ZvX2IzU21zMHNCeXhsTHRjTG9URUhLaWxoYjdHVnRXTzJheTZwM0h5WHQ0WDRoN0p6cFh6NWlhdEpMOXBBSm1DaUJiOUIwdE9ZbEZIdk40M25Xak0wd1M3MEItTlpWRDNCV0tzVkHSAacBQVVfeXFMTTFSM0xsbXFFVmY3TVBlVWoxcFUyM2JnZU9xTV9hODhWb0RaWWplOFVKXzBJYWRNQVlqUjdpZENxQ2JZWTdaM3RTWVFxeGxwa2dkWG93ZDB4bG1RV1FVa3ZpeW90RURrZWZsVGV3XzdHQjBIZ1k1SmxsU3djSTAyRkx0bzltUWU2NVdaSnpLUi1ZWEZXNnItazZyQUJfV0ZpR0tYMTEtQ0E?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxNdzVsRi1lZFpubGhpdE1NOWlCZ1JWUHY2OS01WWZYZzZFMldfWlNUZVl0cTh2M0ozTTExN0ZvX2IzU21zMHNCeXhsTHRjTG9URUhLaWxoYjdHVnRXTzJheTZwM0h5WHQ0WDRoN0p6cFh6NWlhdEpMOXBBSm1DaUJiOUIwdE9ZbEZIdk40M25Xak0wd1M3MEItTlpWRDNCV0tzVkHSAacBQVVfeXFMTTFSM0xsbXFFVmY3TVBlVWoxcFUyM2JnZU9xTV9hODhWb0RaWWplOFVKXzBJYWRNQVlqUjdpZENxQ2JZWTdaM3RTWVFxeGxwa2dkWG93ZDB4bG1RV1FVa3ZpeW90RURrZWZsVGV3XzdHQjBIZ1k1SmxsU3djSTAyRkx0bzltUWU2NVdaSnpLUi1ZWEZXNnItazZyQUJfV0ZpR0tYMTEtQ0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
