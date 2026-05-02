@@ -1,0 +1,13 @@
+---
+title: "São Paulo aprova jovens em teste duro e vê evolução"
+description: "São Paulo aprova jovens em teste duro e vê evolução  Bolavip Brasil"
+pubDate: "2026-05-02T15:59:42.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMijAFBVV95cUxQeVlvRzJZTDIxLVpZSTFwUktHM0ctaTZ4cnJVb0pBQkMtN19zc0JoNFpscTBEeUk2ZzB2SjBPUktDQi1qMTlzNHQ2aF9FaExlTFktYzVNT3V2SjBfZlczaEpMdXdnSlJjZ0xTNHUzRmhIU3N5Qmd5cjVaUmFnZTQ2MkpDR2dpWFlnUTIzWNIBkgFBVV95cUxQRUFaY3NOTFQ3d0xhN2RpOWtId2RVV202clY3eXJTSnVZUHpCVVRkblNTdTJ5dWVpMDRKS29VaUpGVUFoQzVvdkRPVldOM01fVHVKaVJwNDgyY0JUWGpLbndSMElpbmdGYU5keXBCbENEbTg2VXRvSUV6OExSZ0FTeTVPcDlLLWtheEdiRzhMRUhvQQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAFBVV95cUxQeVlvRzJZTDIxLVpZSTFwUktHM0ctaTZ4cnJVb0pBQkMtN19zc0JoNFpscTBEeUk2ZzB2SjBPUktDQi1qMTlzNHQ2aF9FaExlTFktYzVNT3V2SjBfZlczaEpMdXdnSlJjZ0xTNHUzRmhIU3N5Qmd5cjVaUmFnZTQ2MkpDR2dpWFlnUTIzWNIBkgFBVV95cUxQRUFaY3NOTFQ3d0xhN2RpOWtId2RVV202clY3eXJTSnVZUHpCVVRkblNTdTJ5dWVpMDRKS29VaUpGVUFoQzVvdkRPVldOM01fVHVKaVJwNDgyY0JUWGpLbndSMElpbmdGYU5keXBCbENEbTg2VXRvSUV6OExSZ0FTeTVPcDlLLWtheEdiRzhMRUhvQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
