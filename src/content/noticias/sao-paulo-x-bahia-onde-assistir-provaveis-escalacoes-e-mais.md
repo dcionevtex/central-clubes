@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Bahia: onde assistir, prováveis escalações e mais"
+description: "São Paulo x Bahia: onde assistir, prováveis escalações e mais  A TARDE"
+pubDate: "2026-05-02T11:38:15.000Z"
+source: "A TARDE"
+link: "https://news.google.com/rss/articles/CBMipwFBVV95cUxPQ2R5cjIxT1dMcDFrU0NEMjdvUENsZlA2MTZmN1FCVGhjcUM1VWtKWW4xVXhnU0wzWXc1cjhKc1NjcUk4OGtxWHRKT2FKMnc4SmRvbjhMR1R0ZGtJT3BVWTRvZmZidDNacU1LOWpsM2ZrS2RJRVNySUhVUndnY1lCcy1OUXo3Q0xWVmtjTGpsTmtCM2FwQXF1UXFrcG1rVTI2N0FheEQtVdIBpwFBVV95cUxPQ2R5cjIxT1dMcDFrU0NEMjdvUENsZlA2MTZmN1FCVGhjcUM1VWtKWW4xVXhnU0wzWXc1cjhKc1NjcUk4OGtxWHRKT2FKMnc4SmRvbjhMR1R0ZGtJT3BVWTRvZmZidDNacU1LOWpsM2ZrS2RJRVNySUhVUndnY1lCcy1OUXo3Q0xWVmtjTGpsTmtCM2FwQXF1UXFrcG1rVTI2N0FheEQtVQ?oc=5"
+---
+
+### Fonte Original: A TARDE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwFBVV95cUxPQ2R5cjIxT1dMcDFrU0NEMjdvUENsZlA2MTZmN1FCVGhjcUM1VWtKWW4xVXhnU0wzWXc1cjhKc1NjcUk4OGtxWHRKT2FKMnc4SmRvbjhMR1R0ZGtJT3BVWTRvZmZidDNacU1LOWpsM2ZrS2RJRVNySUhVUndnY1lCcy1OUXo3Q0xWVmtjTGpsTmtCM2FwQXF1UXFrcG1rVTI2N0FheEQtVdIBpwFBVV95cUxPQ2R5cjIxT1dMcDFrU0NEMjdvUENsZlA2MTZmN1FCVGhjcUM1VWtKWW4xVXhnU0wzWXc1cjhKc1NjcUk4OGtxWHRKT2FKMnc4SmRvbjhMR1R0ZGtJT3BVWTRvZmZidDNacU1LOWpsM2ZrS2RJRVNySUhVUndnY1lCcy1OUXo3Q0xWVmtjTGpsTmtCM2FwQXF1UXFrcG1rVTI2N0FheEQtVQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

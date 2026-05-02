@@ -1,0 +1,13 @@
+---
+title: "São Paulo reduz pela metade investimento em reforços"
+description: "São Paulo reduz pela metade investimento em reforços  Portal Hortolândia"
+pubDate: "2026-05-02T13:12:38.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE1yYl9EaDhSRGJSU1ZTTUpLbVZwX2JIbm45a25NMzJKUzkzN1UxSmljN3M3WDBrbWU5Q0ZXaEdnOGtSQmVyT2owdnFGZzkyYkJRaS1RSGJGT1ZteUQwellidVdYSlpVN1FLR0dCQTZFRXJIb0oyY3BpbGtsQdIBe0FVX3lxTE1yYl9EaDhSRGJSU1ZTTUpLbVZwX2JIbm45a25NMzJKUzkzN1UxSmljN3M3WDBrbWU5Q0ZXaEdnOGtSQmVyT2owdnFGZzkyYkJRaS1RSGJGT1ZteUQwellidVdYSlpVN1FLR0dCQTZFRXJIb0oyY3BpbGtsQQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE1yYl9EaDhSRGJSU1ZTTUpLbVZwX2JIbm45a25NMzJKUzkzN1UxSmljN3M3WDBrbWU5Q0ZXaEdnOGtSQmVyT2owdnFGZzkyYkJRaS1RSGJGT1ZteUQwellidVdYSlpVN1FLR0dCQTZFRXJIb0oyY3BpbGtsQdIBe0FVX3lxTE1yYl9EaDhSRGJSU1ZTTUpLbVZwX2JIbm45a25NMzJKUzkzN1UxSmljN3M3WDBrbWU5Q0ZXaEdnOGtSQmVyT2owdnFGZzkyYkJRaS1RSGJGT1ZteUQwellidVdYSlpVN1FLR0dCQTZFRXJIb0oyY3BpbGtsQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

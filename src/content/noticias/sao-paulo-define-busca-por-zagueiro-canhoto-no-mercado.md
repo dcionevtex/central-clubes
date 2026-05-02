@@ -1,0 +1,13 @@
+---
+title: "São Paulo define busca por zagueiro canhoto no mercado"
+description: "São Paulo define busca por zagueiro canhoto no mercado  Bolavip Brasil"
+pubDate: "2026-05-02T13:31:42.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMikAFBVV95cUxNTEVCWVRkMjBtU2ljUlNKRkhjbmFNQy1DT1FydzdvcjYyN2YwR1V3X0dLYl9pQzJPNUtKRjZLbk15VmVDUEtvOV9TM05vMGxUZDNrbmU3bzNUUXEzcHA1NS1rZ3gwMGJnQm9rRkpGLU83aS1ESVExa1lQMWlLZmlfY1h5S3d1WDVGbENuNHpvYTPSAZYBQVVfeXFMUFgxcXJMcTBILU5XM0RROUY2bWNvbzFCbHFMOVo5MjdRRXcyRmRtQXRrVDBQbWZETHhMZ2tPLWVSMVNoZHc1UVRKOHRjODIyUDlfUDN0bm9KTnNZLXNTYUVuOVhxSktKTXNVQkRtY3BNdkpPTjktU1RXU2JOdm1Sd2lNODZyREdIdllPSXBrYXFIOGJtYnNB?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAFBVV95cUxNTEVCWVRkMjBtU2ljUlNKRkhjbmFNQy1DT1FydzdvcjYyN2YwR1V3X0dLYl9pQzJPNUtKRjZLbk15VmVDUEtvOV9TM05vMGxUZDNrbmU3bzNUUXEzcHA1NS1rZ3gwMGJnQm9rRkpGLU83aS1ESVExa1lQMWlLZmlfY1h5S3d1WDVGbENuNHpvYTPSAZYBQVVfeXFMUFgxcXJMcTBILU5XM0RROUY2bWNvbzFCbHFMOVo5MjdRRXcyRmRtQXRrVDBQbWZETHhMZ2tPLWVSMVNoZHc1UVRKOHRjODIyUDlfUDN0bm9KTnNZLXNTYUVuOVhxSktKTXNVQkRtY3BNdkpPTjktU1RXU2JOdm1Sd2lNODZyREdIdllPSXBrYXFIOGJtYnNB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
