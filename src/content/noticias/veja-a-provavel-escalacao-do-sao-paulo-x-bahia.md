@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo x Bahia"
+description: "Veja a provável escalação do São Paulo x Bahia  Portal Hortolândia"
+pubDate: "2026-05-02T18:58:11.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE41ZDJWZE9lWWJBZzV2UkJjWExQUW9sVEotZkhxWi04VXlQOFR2Rk9qaUg2MzhueXlmR18yeS1HTmlqVFVfSGlFbVhRMlhsQm1rTVhLZVk5ME5YN1lIMHFITnNZOXRVZkJQS2ZNcHRoWFEtaWNvdWs1ZFh4UllKd9IBfkFVX3lxTE41ZDJWZE9lWWJBZzV2UkJjWExQUW9sVEotZkhxWi04VXlQOFR2Rk9qaUg2MzhueXlmR18yeS1HTmlqVFVfSGlFbVhRMlhsQm1rTVhLZVk5ME5YN1lIMHFITnNZOXRVZkJQS2ZNcHRoWFEtaWNvdWs1ZFh4UllKdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE41ZDJWZE9lWWJBZzV2UkJjWExQUW9sVEotZkhxWi04VXlQOFR2Rk9qaUg2MzhueXlmR18yeS1HTmlqVFVfSGlFbVhRMlhsQm1rTVhLZVk5ME5YN1lIMHFITnNZOXRVZkJQS2ZNcHRoWFEtaWNvdWs1ZFh4UllKd9IBfkFVX3lxTE41ZDJWZE9lWWJBZzV2UkJjWExQUW9sVEotZkhxWi04VXlQOFR2Rk9qaUg2MzhueXlmR18yeS1HTmlqVFVfSGlFbVhRMlhsQm1rTVhLZVk5ME5YN1lIMHFITnNZOXRVZkJQS2ZNcHRoWFEtaWNvdWs1ZFh4UllKdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
