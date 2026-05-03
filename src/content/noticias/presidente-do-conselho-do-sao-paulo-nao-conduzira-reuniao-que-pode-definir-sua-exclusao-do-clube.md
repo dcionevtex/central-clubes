@@ -1,0 +1,13 @@
+---
+title: "Presidente do Conselho do São Paulo não conduzirá reunião que pode definir sua exclusão do clube"
+description: "Presidente do Conselho do São Paulo não conduzirá reunião que pode definir sua exclusão do clube  Terra"
+pubDate: "2026-05-03T19:50:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMilAJBVV95cUxNOVBUemQyV1RZc2libTF0MkRKQm9rZVdpT3ZlNHRVMnQyTll1YVpyeE1vdVpPRDJKd3NiMzFVVzBqcmZsOWJraVE2TmtjcFRoclR5bnFEdmV2OTNlY2gwWHpaUXZGSHlUc2NLazBVLWpzTmRLRVpvSGxGbnVIczdoaGozMVIwR0RtZF9pTHc5MXFlYW5rNEQ1VWpyYmFBSm9xZklxcUZxWjdhNUdQczk4WkhQRlBmTnFXcV9uOGgtN1JmMGJCQUtYZnZESlJqSVQyZjgtT0ZTV1hTX1BiOUREeFZaYTAxZDJVa0N5MVh0dlpDckJHcjdvWDlxMnNLU3RZeVVFNDlDODV3ZzlQWDg3LWU0TVA?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAJBVV95cUxNOVBUemQyV1RZc2libTF0MkRKQm9rZVdpT3ZlNHRVMnQyTll1YVpyeE1vdVpPRDJKd3NiMzFVVzBqcmZsOWJraVE2TmtjcFRoclR5bnFEdmV2OTNlY2gwWHpaUXZGSHlUc2NLazBVLWpzTmRLRVpvSGxGbnVIczdoaGozMVIwR0RtZF9pTHc5MXFlYW5rNEQ1VWpyYmFBSm9xZklxcUZxWjdhNUdQczk4WkhQRlBmTnFXcV9uOGgtN1JmMGJCQUtYZnZESlJqSVQyZjgtT0ZTV1hTX1BiOUREeFZaYTAxZDJVa0N5MVh0dlpDckJHcjdvWDlxMnNLU3RZeVVFNDlDODV3ZzlQWDg3LWU0TVA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
