@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Lucas volta antes da hora e vive 'prova de fogo' por renovação"
+description: "São Paulo: Lucas volta antes da hora e vive 'prova de fogo' por renovação  UOL"
+pubDate: "2026-05-03T08:33:14.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMipAJBVV95cUxNcGg5dEVYWXpGSkRCX1d4TGVuYlB4aUNiRWtCYkU3dWxGMW5DX1ZHb3Z5bF9MOWl2UmtvSjlZZnUzT3hMdGh0eXdqNDAtLWR6ZE1jY2N4V2o0cDFyRzNvS2c3SW4wNHZQUVY2dDNPeHdwSndBUGhnNVM0VndFeDNwSlJCamxGbnhGZmlYZnJiYmhEREFCWjJCRF9MT0RYNWs3eE1TR3BJbXpVVl96YUpiRzBMdEtYQm1TRUJZQVgyaFB0T0V2R2NlSEE0U0Y2YTZYdXVSOV95RDB5Y3NnVHQyYXJCOEZKbWR0T2V4RGE0cUpQYllreWNvalBscXVpSExSaFBLcXJkbThqS3o2NE45NlZJVEtmblgxcnhHZzRRVkczZDNi?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAJBVV95cUxNcGg5dEVYWXpGSkRCX1d4TGVuYlB4aUNiRWtCYkU3dWxGMW5DX1ZHb3Z5bF9MOWl2UmtvSjlZZnUzT3hMdGh0eXdqNDAtLWR6ZE1jY2N4V2o0cDFyRzNvS2c3SW4wNHZQUVY2dDNPeHdwSndBUGhnNVM0VndFeDNwSlJCamxGbnhGZmlYZnJiYmhEREFCWjJCRF9MT0RYNWs3eE1TR3BJbXpVVl96YUpiRzBMdEtYQm1TRUJZQVgyaFB0T0V2R2NlSEE0U0Y2YTZYdXVSOV95RDB5Y3NnVHQyYXJCOEZKbWR0T2V4RGE0cUpQYllreWNvalBscXVpSExSaFBLcXJkbThqS3o2NE45NlZJVEtmblgxcnhHZzRRVkczZDNi?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
