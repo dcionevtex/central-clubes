@@ -1,0 +1,13 @@
+---
+title: "Onde assistir são paulo futebol clube x esporte clube bahia"
+description: "Onde assistir são paulo futebol clube x esporte clube bahia  Fala Regional"
+pubDate: "2026-05-03T19:20:02.000Z"
+source: "Fala Regional"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxPVkhoUTVkNTRqZXlhd0tpaXllWllKVWxveGc1SGVKU2JsUUN1dWVIOUlxNGxWMXM2MmJ4LTU5WVN5YTc4bTFjQjZseXBEenVtM05FNUtGXzc3LWJPMVB1YktodFE5NXJpdGtOQnpQVU9qYkJyOU9LVEVPaEpyR0VrNVBRWVJGbVVLTWdreVpsYmtQVUJqcnpZUzJVZTR2b3Jv0gGgAUFVX3lxTE9WSGhRNWQ1NGpleWF3S2lpeWVaWUpVbG94ZzVIZUpTYmxRQ3V1ZUg5SXE0bFYxczYyYngtNTlZU3lhNzhtMWNCNmx5cER6dW0zTkU1S0ZfNzctYk8xUHViS2h0UTk1cml0a05CelBVT2piQnI5T0tURU9oSnJHRWs1UFFZUkZtVUtNZ2t5Wmxia1BVQmpyellTMlVlNHZvcm8?oc=5"
+---
+
+### Fonte Original: Fala Regional
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxPVkhoUTVkNTRqZXlhd0tpaXllWllKVWxveGc1SGVKU2JsUUN1dWVIOUlxNGxWMXM2MmJ4LTU5WVN5YTc4bTFjQjZseXBEenVtM05FNUtGXzc3LWJPMVB1YktodFE5NXJpdGtOQnpQVU9qYkJyOU9LVEVPaEpyR0VrNVBRWVJGbVVLTWdreVpsYmtQVUJqcnpZUzJVZTR2b3Jv0gGgAUFVX3lxTE9WSGhRNWQ1NGpleWF3S2lpeWVaWUpVbG94ZzVIZUpTYmxRQ3V1ZUg5SXE0bFYxczYyYngtNTlZU3lhNzhtMWNCNmx5cER6dW0zTkU1S0ZfNzctYk8xUHViS2h0UTk1cml0a05CelBVT2piQnI5T0tURU9oSnJHRWs1UFFZUkZtVUtNZ2t5Wmxia1BVQmpyellTMlVlNHZvcm8?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

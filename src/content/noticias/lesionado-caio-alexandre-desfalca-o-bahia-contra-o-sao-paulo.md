@@ -1,0 +1,13 @@
+---
+title: "Lesionado, Caio Alexandre desfalca o Bahia contra o São Paulo"
+description: "Lesionado, Caio Alexandre desfalca o Bahia contra o São Paulo  A TARDE"
+pubDate: "2026-05-03T18:18:46.000Z"
+source: "A TARDE"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxOc2xzb3dSSkl3Y1lycWdFbUZSd1NCVG02ZHZaSl9JVnhtaVFnc0Q4bmNxLUU5UWtud1lvdHFhZ3NpcjFmRlNGTEp1MFpneFNhVmd5R0diVVE3SVNtSzB1M3ptRjFZUHlFMmFHa1VxRTRnam4zWERCSDBfcDU3ZEN3X0xRNlU2SlVudjQxazE2MVdFa2stTmQxbjBOQTNGTElSNXhHUlhvdHrSAagBQVVfeXFMTnNsc293UkpJd2NZcnFnRW1GUndTQlRtNmR2WkpfSVZ4bWlRZ3NEOG5jcS1FOVFrbndZb3RxYWdzaXIxZkZTRkxKdTBaZ3hTYVZneUdHYlVRN0lTbUswdTN6bUYxWVB5RTJhR2tVcUU0Z2puM1hEQkgwX3A1N2RDd19MUTZVNkpVbnY0MWsxNjFXRWtrLU5kMW4wTkEzRkxJUjV4R1JYb3R6?oc=5"
+---
+
+### Fonte Original: A TARDE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOc2xzb3dSSkl3Y1lycWdFbUZSd1NCVG02ZHZaSl9JVnhtaVFnc0Q4bmNxLUU5UWtud1lvdHFhZ3NpcjFmRlNGTEp1MFpneFNhVmd5R0diVVE3SVNtSzB1M3ptRjFZUHlFMmFHa1VxRTRnam4zWERCSDBfcDU3ZEN3X0xRNlU2SlVudjQxazE2MVdFa2stTmQxbjBOQTNGTElSNXhHUlhvdHrSAagBQVVfeXFMTnNsc293UkpJd2NZcnFnRW1GUndTQlRtNmR2WkpfSVZ4bWlRZ3NEOG5jcS1FOVFrbndZb3RxYWdzaXIxZkZTRkxKdTBaZ3hTYVZneUdHYlVRN0lTbUswdTN6bUYxWVB5RTJhR2tVcUU0Z2puM1hEQkgwX3A1N2RDd19MUTZVNkpVbnY0MWsxNjFXRWtrLU5kMW4wTkEzRkxJUjV4R1JYb3R6?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
