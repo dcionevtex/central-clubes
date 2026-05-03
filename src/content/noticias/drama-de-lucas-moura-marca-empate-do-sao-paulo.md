@@ -1,0 +1,13 @@
+---
+title: "Drama de Lucas Moura marca empate do São Paulo"
+description: "Drama de Lucas Moura marca empate do São Paulo  Jogada 10"
+pubDate: "2026-05-03T22:24:03.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE45ZnVnOVJoYWkxRFBNOUJRMnBNeWtEbGdBSkJUV1RCenFoeDliVWhyQi1VWDNDV3N3SzJIOVpXSGt1RDByb1RmLU8zblA5WkZ2QnViUEJfTkdNV25ibUdSUUFNX3dFSEwtOGcySzgtOTFyb1lBczVJQW02b9IBgAFBVV95cUxNVXhfaWhZajZSaC0wbTlqdXhIY1g3ZDRVNU9pM3ZqX1VpRmNfX2NOZjRpZkJFQko4NDlhX0x2em9tWHRQdXFnUnFKclVvY1dyYWVfdDZvNHdJbS02YUZZNGNXNUptQ1ZHRnlCay1OTkJNTVVwOFc2UGZyMmlPQS1NSA?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE45ZnVnOVJoYWkxRFBNOUJRMnBNeWtEbGdBSkJUV1RCenFoeDliVWhyQi1VWDNDV3N3SzJIOVpXSGt1RDByb1RmLU8zblA5WkZ2QnViUEJfTkdNV25ibUdSUUFNX3dFSEwtOGcySzgtOTFyb1lBczVJQW02b9IBgAFBVV95cUxNVXhfaWhZajZSaC0wbTlqdXhIY1g3ZDRVNU9pM3ZqX1VpRmNfX2NOZjRpZkJFQko4NDlhX0x2em9tWHRQdXFnUnFKclVvY1dyYWVfdDZvNHdJbS02YUZZNGNXNUptQ1ZHRnlCay1OTkJNTVVwOFc2UGZyMmlPQS1NSA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

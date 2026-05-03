@@ -1,0 +1,13 @@
+---
+title: "São Paulo cede empate ao Bahia no Brasileirão"
+description: "São Paulo cede empate ao Bahia no Brasileirão  Portal Hortolândia"
+pubDate: "2026-05-03T21:54:57.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE93eDBEV2ViQW40ckVmSm5WbFdvenBoRWZZSEZPU0FydjBnQlBtSTV3MjZ1Znd2VHVDYnNzbGRKMFdsQzBiUm9wOG1RNkFkdlV1NVI1ekV2dGNQTTRFMVlxbHlER1B2NGk4aW5PVE04aEpXYjdmZk1aOG1aRF_SAXxBVV95cUxPd3gwRFdlYkFuNHJFZkpuVmxXb3pwaEVmWUhGT1NBcnYwZ0JQbUk1dzI2dWZ3dlR1Q2Jzc2xkSjBXbEMwYlJvcDhtUTZBZHZVdTVSNXpFdnRjUE00RTFZcWx5REdQdjRpOGluT1RNOGhKV2I3ZmZNWjhtWkRf?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE93eDBEV2ViQW40ckVmSm5WbFdvenBoRWZZSEZPU0FydjBnQlBtSTV3MjZ1Znd2VHVDYnNzbGRKMFdsQzBiUm9wOG1RNkFkdlV1NVI1ekV2dGNQTTRFMVlxbHlER1B2NGk4aW5PVE04aEpXYjdmZk1aOG1aRF_SAXxBVV95cUxPd3gwRFdlYkFuNHJFZkpuVmxXb3pwaEVmWUhGT1NBcnYwZ0JQbUk1dzI2dWZ3dlR1Q2Jzc2xkSjBXbEMwYlJvcDhtUTZBZHZVdTVSNXpFdnRjUE00RTFZcWx5REdQdjRpOGluT1RNOGhKV2I3ZmZNWjhtWkRf?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

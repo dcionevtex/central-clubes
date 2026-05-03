@@ -1,0 +1,13 @@
+---
+title: "São Paulo preocupado: Lucas Moura e Alan Franco sentem"
+description: "São Paulo preocupado: Lucas Moura e Alan Franco sentem  Portal Hortolândia"
+pubDate: "2026-05-03T22:08:41.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxNRF9TUVVYSE1jeUdGVFBPajM2RWd6S0wzT3ZnNUhHTHdycW9xcHo3NXE2NmhTbkUxWUtKbEhRemw2RkNsMm1nbUY3UG1QSGxDX1dvMjBrX0lJT3kxd0J3QXZMWnZPVTB4N3p4Wk9KdmI3OWc2WGdmR2lZZHhvZ0lhUE1B0gGCAUFVX3lxTE1EX1NRVVhITWN5R0ZUUE9qMzZFZ3pLTDNPdmc1SEdMd3Jxb3Fwejc1cTY2aFNuRTFZS0psSFF6bDZGQ2wybWdtRjdQbVBIbENfV28yMGtfSUlPeTF3QndBdkxadk9VMHg3enhaT0p2Yjc5ZzZYZ2ZHaVlkeG9nSWFQTUE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxNRF9TUVVYSE1jeUdGVFBPajM2RWd6S0wzT3ZnNUhHTHdycW9xcHo3NXE2NmhTbkUxWUtKbEhRemw2RkNsMm1nbUY3UG1QSGxDX1dvMjBrX0lJT3kxd0J3QXZMWnZPVTB4N3p4Wk9KdmI3OWc2WGdmR2lZZHhvZ0lhUE1B0gGCAUFVX3lxTE1EX1NRVVhITWN5R0ZUUE9qMzZFZ3pLTDNPdmc1SEdMd3Jxb3Fwejc1cTY2aFNuRTFZS0psSFF6bDZGQ2wybWdtRjdQbVBIbENfV28yMGtfSUlPeTF3QndBdkxadk9VMHg3enhaT0p2Yjc5ZzZYZ2ZHaVlkeG9nSWFQTUE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
