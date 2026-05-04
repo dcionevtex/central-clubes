@@ -1,0 +1,13 @@
+---
+title: "Lucas Moura passa por cirurgia após lesão, e São Paulo define cronograma de recuperação"
+description: "Lucas Moura passa por cirurgia após lesão, e São Paulo define cronograma de recuperação  Gazeta Esportiva"
+pubDate: "2026-05-04T15:46:05.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiiwFBVV95cUxPLWZZa3h2aUdWRXJaQm5jZldUaEx2amp3REtzc0taNWZUVXJFdWtfX0FvTVlZUXpUNm1xaDZnZUJtSUM3RHN5ZXYtVVI1eS1nRkEwTGlfeVA3dWwyM0h0Q3BaTlhiZGt1OWZWTGpMVU9yRzJNVlVGOG1RZ1p0ZUV1emZ1RF9RakdPeDRv0gGLAUFVX3lxTE8tZllreHZpR1ZFclpCbmNmV1RoTHZqandES3NzS1o1ZlRVckV1a19fQW9NWVlRelQ2bXFoNmdlQm1JQzdEc3lldi1VUjV5LWdGQTBMaV95UDd1bDIzSHRDcFpOWGJka3U5ZlZMakxVT3JHMk1WVUY4bVFnWnRlRXV6ZnVEX1FqR094NG8?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPLWZZa3h2aUdWRXJaQm5jZldUaEx2amp3REtzc0taNWZUVXJFdWtfX0FvTVlZUXpUNm1xaDZnZUJtSUM3RHN5ZXYtVVI1eS1nRkEwTGlfeVA3dWwyM0h0Q3BaTlhiZGt1OWZWTGpMVU9yRzJNVlVGOG1RZ1p0ZUV1emZ1RF9RakdPeDRv0gGLAUFVX3lxTE8tZllreHZpR1ZFclpCbmNmV1RoTHZqandES3NzS1o1ZlRVckV1a19fQW9NWVlRelQ2bXFoNmdlQm1JQzdEc3lldi1VUjV5LWdGQTBMaV95UDd1bDIzSHRDcFpOWGJka3U5ZlZMakxVT3JHMk1WVUY4bVFnWnRlRXV6ZnVEX1FqR094NG8?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
