@@ -1,0 +1,13 @@
+---
+title: "Com gosto de derrota, São Paulo sofre empate do Bahia no último minuto"
+description: "Com gosto de derrota, São Paulo sofre empate do Bahia no último minuto  Esporte News Mundo"
+pubDate: "2026-05-03T23:52:38.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNeGNhUHFhSmxBQ2N6ZG10OWY4MkRsWmdLS1VPeXFraFFXZ29KbEx2dnhsUGFsUTBZTFR5LWlVN2RUaUZlX2g4Ymw1aVFZQjUtajJzRVdkNldEV2NBTnJLYkRDdmlzLUdwRENsUW9KaURwWnN6MWYyeGo2SXFJaFVaZGU0Rl9SaVVVZzJESndIc0s0akp6ZmVQczBuWTVjNER6ZnN2M20wTTdHZ9IBqgFBVV95cUxNeGNhUHFhSmxBQ2N6ZG10OWY4MkRsWmdLS1VPeXFraFFXZ29KbEx2dnhsUGFsUTBZTFR5LWlVN2RUaUZlX2g4Ymw1aVFZQjUtajJzRVdkNldEV2NBTnJLYkRDdmlzLUdwRENsUW9KaURwWnN6MWYyeGo2SXFJaFVaZGU0Rl9SaVVVZzJESndIc0s0akp6ZmVQczBuWTVjNER6ZnN2M20wTTdHZw?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNeGNhUHFhSmxBQ2N6ZG10OWY4MkRsWmdLS1VPeXFraFFXZ29KbEx2dnhsUGFsUTBZTFR5LWlVN2RUaUZlX2g4Ymw1aVFZQjUtajJzRVdkNldEV2NBTnJLYkRDdmlzLUdwRENsUW9KaURwWnN6MWYyeGo2SXFJaFVaZGU0Rl9SaVVVZzJESndIc0s0akp6ZmVQczBuWTVjNER6ZnN2M20wTTdHZ9IBqgFBVV95cUxNeGNhUHFhSmxBQ2N6ZG10OWY4MkRsWmdLS1VPeXFraFFXZ29KbEx2dnhsUGFsUTBZTFR5LWlVN2RUaUZlX2g4Ymw1aVFZQjUtajJzRVdkNldEV2NBTnJLYkRDdmlzLUdwRENsUW9KaURwWnN6MWYyeGo2SXFJaFVaZGU0Rl9SaVVVZzJESndIc0s0akp6ZmVQczBuWTVjNER6ZnN2M20wTTdHZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
