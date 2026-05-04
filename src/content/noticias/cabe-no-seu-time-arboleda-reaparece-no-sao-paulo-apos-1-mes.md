@@ -1,0 +1,13 @@
+---
+title: "Cabe no seu time? Arboleda reaparece no São Paulo após 1 mês"
+description: "Cabe no seu time? Arboleda reaparece no São Paulo após 1 mês  iG Esportes"
+pubDate: "2026-05-04T21:02:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxNUk1wYlNnaUxqT2dGYkF2bGZ3NjN5bGI2THJKem1NVzVpRG8zTlAwNDl2bWtOMU1yQTh4TGdsNHVuam5DTmlPWldtUkdTU2lGQ2RvOFkxeURVQUIxdmY3d2FPclhuWGRVSjQ4aEc2VnNvNGtPckdCa0Z4UU05WDFzSjBqY2hzaDBBcWZ2Y1lZcUVHOUEwMHk4REh2SdIBoAFBVV95cUxNdHJVaE80ZlhjYXhiLXRtNktVb2ktZHNLdmFsY1Y2Y084U3Z6ZEVMY0ZqX2NjWHZ2ZWdzUlNWNkhnQ3VmQV9zZWZWbDd2NVlhTGJROG4wenRCaWlnMnlRbVRtd3dvS0Y5TFlISHRZcTlGUHZJZU9iQm1IWjZxTWpjODlmUGlsTGFMNU1NSlNMYlN4OGp2SEZjYm1HTkhfcDJn?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxNUk1wYlNnaUxqT2dGYkF2bGZ3NjN5bGI2THJKem1NVzVpRG8zTlAwNDl2bWtOMU1yQTh4TGdsNHVuam5DTmlPWldtUkdTU2lGQ2RvOFkxeURVQUIxdmY3d2FPclhuWGRVSjQ4aEc2VnNvNGtPckdCa0Z4UU05WDFzSjBqY2hzaDBBcWZ2Y1lZcUVHOUEwMHk4REh2SdIBoAFBVV95cUxNdHJVaE80ZlhjYXhiLXRtNktVb2ktZHNLdmFsY1Y2Y084U3Z6ZEVMY0ZqX2NjWHZ2ZWdzUlNWNkhnQ3VmQV9zZWZWbDd2NVlhTGJROG4wenRCaWlnMnlRbVRtd3dvS0Y5TFlISHRZcTlGUHZJZU9iQm1IWjZxTWpjODlmUGlsTGFMNU1NSlNMYlN4OGp2SEZjYm1HTkhfcDJn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

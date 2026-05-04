@@ -1,0 +1,13 @@
+---
+title: "São Paulo bate o martelo sobre Arboleda"
+description: "São Paulo bate o martelo sobre Arboleda  Portal Hortolândia"
+pubDate: "2026-05-04T21:28:37.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE5oY0MybDdvMV96NXFSVmNfaEpJQjZERVpKQm85dWEtcTBpN2hYZjZ3Mk1vX1Z2ckFlTnJIZmltLV9wbTRQa2NhRE9mTGJYa3pKaTVSUkFZSTItYW9yYjRZZGdudmRiRllQbHlTRHowMjlDaERIdFAyMDBsdXlPX2vSAX9BVV95cUxOaGNDMmw3bzFfejVxUlZjX2hKSUI2REVaSkJvOXVhLXEwaTdoWGY2dzJNb19WdnJBZU5ySGZpbS1fcG00UGtjYURPZkxiWGt6Smk1UlJBWUkyLWFvcmI0WWRnbnZkYkZZUGx5U0R6MDI5Q2hESHRQMjAwbHV5T19r?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE5oY0MybDdvMV96NXFSVmNfaEpJQjZERVpKQm85dWEtcTBpN2hYZjZ3Mk1vX1Z2ckFlTnJIZmltLV9wbTRQa2NhRE9mTGJYa3pKaTVSUkFZSTItYW9yYjRZZGdudmRiRllQbHlTRHowMjlDaERIdFAyMDBsdXlPX2vSAX9BVV95cUxOaGNDMmw3bzFfejVxUlZjX2hKSUI2REVaSkJvOXVhLXEwaTdoWGY2dzJNb19WdnJBZU5ySGZpbS1fcG00UGtjYURPZkxiWGt6Smk1UlJBWUkyLWFvcmI0WWRnbnZkYkZZUGx5U0R6MDI5Q2hESHRQMjAwbHV5T19r?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
