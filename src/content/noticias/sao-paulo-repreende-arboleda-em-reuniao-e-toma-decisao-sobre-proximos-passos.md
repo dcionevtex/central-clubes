@@ -1,0 +1,13 @@
+---
+title: "São Paulo repreende Arboleda em reunião e toma decisão sobre próximos passos"
+description: "São Paulo repreende Arboleda em reunião e toma decisão sobre próximos passos  Rádio Itatiaia"
+pubDate: "2026-05-04T22:11:25.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_gFBVV95cUxOQnlSQmJDSk41c0wtcHh5eE9IdE5TU05SX2tLYmI1Rzh5Vjd6LTJEQzZDaktvdlB6N2drc3F2YjZUVWdPbEo2Y29NUTFvR2w4N05BTU4yT2FBNmVmQzdXWURTNFJ5aE1IaDYxdFlPOGZCUkdsRzkwTTZSbzlLVDJWM1BHVWttd3ZIbUxrUmpvSUkwMEdKNEJhVGVPcEVieFhzZ3BJbUkxbzhOelplTU1kT1psQzZraEtOVDNESlp2Sno3Ukd4d09ibC1JZ29CcUYteHhEajVxNjNkbk12WmlMTHJhdk95SGY0bjhmckF0N3VPeERDdW1VZlZlRnluUQ?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_gFBVV95cUxOQnlSQmJDSk41c0wtcHh5eE9IdE5TU05SX2tLYmI1Rzh5Vjd6LTJEQzZDaktvdlB6N2drc3F2YjZUVWdPbEo2Y29NUTFvR2w4N05BTU4yT2FBNmVmQzdXWURTNFJ5aE1IaDYxdFlPOGZCUkdsRzkwTTZSbzlLVDJWM1BHVWttd3ZIbUxrUmpvSUkwMEdKNEJhVGVPcEVieFhzZ3BJbUkxbzhOelplTU1kT1psQzZraEtOVDNESlp2Sno3Ukd4d09ibC1JZ29CcUYteHhEajVxNjNkbk12WmlMTHJhdk95SGY0bjhmckF0N3VPeERDdW1VZlZlRnluUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
