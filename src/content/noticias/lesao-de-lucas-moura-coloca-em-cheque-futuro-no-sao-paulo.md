@@ -1,0 +1,13 @@
+---
+title: "Lesão de Lucas Moura coloca em cheque futuro no São Paulo"
+description: "Lesão de Lucas Moura coloca em cheque futuro no São Paulo  Portal Hortolândia"
+pubDate: "2026-05-04T10:10:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTFBPZWUzNkRvUnExVEtIeTNQV1VaUTR0QzlaamFra3V5Nnd0NHFFc2J4ZGFwRVZOa04xQjR6ck55Yy1RV194ei1JT053dW5mbG41MDV2V3pHYUFtbVdFaTF3TC1ORU40Smc3cloyQ0c4TXR5emFpSEpPUXFmTENDUdIBfkFVX3lxTFBPZWUzNkRvUnExVEtIeTNQV1VaUTR0QzlaamFra3V5Nnd0NHFFc2J4ZGFwRVZOa04xQjR6ck55Yy1RV194ei1JT053dW5mbG41MDV2V3pHYUFtbVdFaTF3TC1ORU40Smc3cloyQ0c4TXR5emFpSEpPUXFmTENDUQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTFBPZWUzNkRvUnExVEtIeTNQV1VaUTR0QzlaamFra3V5Nnd0NHFFc2J4ZGFwRVZOa04xQjR6ck55Yy1RV194ei1JT053dW5mbG41MDV2V3pHYUFtbVdFaTF3TC1ORU40Smc3cloyQ0c4TXR5emFpSEpPUXFmTENDUdIBfkFVX3lxTFBPZWUzNkRvUnExVEtIeTNQV1VaUTR0QzlaamFra3V5Nnd0NHFFc2J4ZGFwRVZOa04xQjR6ck55Yy1RV194ei1JT053dW5mbG41MDV2V3pHYUFtbVdFaTF3TC1ORU40Smc3cloyQ0c4TXR5emFpSEpPUXFmTENDUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

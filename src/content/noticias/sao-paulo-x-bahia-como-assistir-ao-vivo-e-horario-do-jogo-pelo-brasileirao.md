@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Bahia: Como assistir ao vivo e horário do jogo pelo Brasileirão"
+description: "São Paulo x Bahia: Como assistir ao vivo e horário do jogo pelo Brasileirão  Portal Hortolândia"
+pubDate: "2026-05-03T17:00:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMijgFBVV95cUxQN2RNamJuY3lNRXZxYWRQa3BweGtkS18xbXIweDFsX25nZ2E3Z1hqZWpQSi05djJYdENPb2g2N2FiaW9oRVRtUjNCVWhJQ2Q5LXNDQ1o1STZFNDNtWmVnSGFfV0QzS2dwNjdKMlpOSjNmQ2trc3FiN0VwMS1tcDJDWUoySnRaVmdHdUpFbWF30gGOAUFVX3lxTFA3ZE1qYm5jeU1FdnFhZFBrcHB4a2RLXzFtcjB4MWxfbmdnYTdnWGplalBKLTl2Mlh0Q09vaDY3YWJpb2hFVG1SM0JVaElDZDktc0NDWjVJNkU0M21aZWdIYV9XRDNLZ3A2N0oyWk5KM2ZDa2tzcWI3RXAxLW1wMkNZSjJKdFpWZ0d1SkVtYXc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijgFBVV95cUxQN2RNamJuY3lNRXZxYWRQa3BweGtkS18xbXIweDFsX25nZ2E3Z1hqZWpQSi05djJYdENPb2g2N2FiaW9oRVRtUjNCVWhJQ2Q5LXNDQ1o1STZFNDNtWmVnSGFfV0QzS2dwNjdKMlpOSjNmQ2trc3FiN0VwMS1tcDJDWUoySnRaVmdHdUpFbWF30gGOAUFVX3lxTFA3ZE1qYm5jeU1FdnFhZFBrcHB4a2RLXzFtcjB4MWxfbmdnYTdnWGplalBKLTl2Mlh0Q09vaDY3YWJpb2hFVG1SM0JVaElDZDktc0NDWjVJNkU0M21aZWdIYV9XRDNLZ3A2N0oyWk5KM2ZDa2tzcWI3RXAxLW1wMkNZSjJKdFpWZ0d1SkVtYXc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
