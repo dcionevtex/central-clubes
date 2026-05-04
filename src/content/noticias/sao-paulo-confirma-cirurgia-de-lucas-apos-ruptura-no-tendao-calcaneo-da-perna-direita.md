@@ -1,0 +1,13 @@
+---
+title: "São Paulo confirma cirurgia de Lucas após ruptura no tendão calcâneo da perna direita"
+description: "São Paulo confirma cirurgia de Lucas após ruptura no tendão calcâneo da perna direita  Rádio Itatiaia"
+pubDate: "2026-05-04T16:04:37.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiigJBVV95cUxPemhndnBkVU9OdTd2ZHBHUzM4VnlLWUVVZzl1b3FmcVVudU44anQwZnZHT2JsV093ZXZ5VUpWMUp3QW5odVNUN25xM3NFUUlNTU5EU1dtS0VRdW1CNjNyWjZfem95YVU4UUUwTnlkODVFVG1MOVN4Z0Zyem9pRlZUbVR1MWtiTTJZLURVcm1sd1YycWlROUFfbjk1Z2NEMDUtaUtyRmQ2dnlhTERxQV9DMmdJTHU0YUc2WDFsa1VZNzdwX1drck96X1JzVmZqRzVLa29aU2Y1WUhVZUUtckZGNThpTUhQbWM3YUxoT0huWmdoTjFIeGtHOWFNSVlsWTNoWXBaQ1FuaC1OZw?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigJBVV95cUxPemhndnBkVU9OdTd2ZHBHUzM4VnlLWUVVZzl1b3FmcVVudU44anQwZnZHT2JsV093ZXZ5VUpWMUp3QW5odVNUN25xM3NFUUlNTU5EU1dtS0VRdW1CNjNyWjZfem95YVU4UUUwTnlkODVFVG1MOVN4Z0Zyem9pRlZUbVR1MWtiTTJZLURVcm1sd1YycWlROUFfbjk1Z2NEMDUtaUtyRmQ2dnlhTERxQV9DMmdJTHU0YUc2WDFsa1VZNzdwX1drck96X1JzVmZqRzVLa29aU2Y1WUhVZUUtckZGNThpTUhQbWM3YUxoT0huWmdoTjFIeGtHOWFNSVlsWTNoWXBaQ1FuaC1OZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
