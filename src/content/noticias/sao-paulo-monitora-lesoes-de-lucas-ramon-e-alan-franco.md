@@ -1,0 +1,13 @@
+---
+title: "São Paulo monitora lesões de Lucas Ramon e Alan Franco"
+description: "São Paulo monitora lesões de Lucas Ramon e Alan Franco  Bolavip Brasil"
+pubDate: "2026-05-04T12:53:17.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMikAFBVV95cUxQbXpndW1jOFNmbjR4YVZ2dzVHQmEzNEdOc0YzVlRxaDJ6ZFhIZ21sRG9iQzVlNFZoZjJKSlY1TEpzd3gxUUxfYkhoMk1iRWpFOGxscFhULTRRNHotTU9vSFcxbWQ2UWJTeDFpNnJ4N01ndWgtRF9VdUczSDJLczNDTmpJbmpGTS00eERGZFlVNFTSAZYBQVVfeXFMTXZ6ZUdkYUtteFoyemF0OWYyQ2RRbFFVQ1JFN1BUNHVoTkFNUVhSaXNuUnpENldCeTRSUWFCSlZSa29KUkFQTjZJYTBfRFZJRFpvcmpQR2RMYnBpb0E2dTFndjRLRUdGeHRxVU5IcGpIUVhfc05VakZWR1hBQzN4MkhqWGhodEUtbTYxYURnVVFQQ0lsajNB?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAFBVV95cUxQbXpndW1jOFNmbjR4YVZ2dzVHQmEzNEdOc0YzVlRxaDJ6ZFhIZ21sRG9iQzVlNFZoZjJKSlY1TEpzd3gxUUxfYkhoMk1iRWpFOGxscFhULTRRNHotTU9vSFcxbWQ2UWJTeDFpNnJ4N01ndWgtRF9VdUczSDJLczNDTmpJbmpGTS00eERGZFlVNFTSAZYBQVVfeXFMTXZ6ZUdkYUtteFoyemF0OWYyQ2RRbFFVQ1JFN1BUNHVoTkFNUVhSaXNuUnpENldCeTRSUWFCSlZSa29KUkFQTjZJYTBfRFZJRFpvcmpQR2RMYnBpb0E2dTFndjRLRUdGeHRxVU5IcGpIUVhfc05VakZWR1hBQzN4MkhqWGhodEUtbTYxYURnVVFQQ0lsajNB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
