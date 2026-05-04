@@ -1,0 +1,13 @@
+---
+title: "São Paulo oscila no Brasileirão, mas se mantém no G4"
+description: "São Paulo oscila no Brasileirão, mas se mantém no G4  Portal Hortolândia"
+pubDate: "2026-05-04T12:00:00.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQYzhES1VjMUhJa2phVUNReW8wXzhoc1pSQ0ZTTVNUSDBsTjVXQkVacGZONm94U1VGcllxY2liTkNaYTVwSGlDdEdSOUFkdXJlT1BTWnJ5c1JOYXNGOW1Xd01NLTFuY1Y4Q2lTbVNRSkttY2gtVmdRV1VjZ1V2Q1VJWjB6b9IBgwFBVV95cUxQYzhES1VjMUhJa2phVUNReW8wXzhoc1pSQ0ZTTVNUSDBsTjVXQkVacGZONm94U1VGcllxY2liTkNaYTVwSGlDdEdSOUFkdXJlT1BTWnJ5c1JOYXNGOW1Xd01NLTFuY1Y4Q2lTbVNRSkttY2gtVmdRV1VjZ1V2Q1VJWjB6bw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQYzhES1VjMUhJa2phVUNReW8wXzhoc1pSQ0ZTTVNUSDBsTjVXQkVacGZONm94U1VGcllxY2liTkNaYTVwSGlDdEdSOUFkdXJlT1BTWnJ5c1JOYXNGOW1Xd01NLTFuY1Y4Q2lTbVNRSkttY2gtVmdRV1VjZ1V2Q1VJWjB6b9IBgwFBVV95cUxQYzhES1VjMUhJa2phVUNReW8wXzhoc1pSQ0ZTTVNUSDBsTjVXQkVacGZONm94U1VGcllxY2liTkNaYTVwSGlDdEdSOUFkdXJlT1BTWnJ5c1JOYXNGOW1Xd01NLTFuY1Y4Q2lTbVNRSkttY2gtVmdRV1VjZ1V2Q1VJWjB6bw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

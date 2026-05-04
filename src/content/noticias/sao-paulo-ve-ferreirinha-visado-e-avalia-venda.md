@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê Ferreirinha visado e avalia venda"
+description: "São Paulo vê Ferreirinha visado e avalia venda  Bolavip Brasil"
+pubDate: "2026-05-04T11:15:58.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxQUnk2TnUxMEprUzZBbDJ1alU5T2YxYkJieXBqV0owREQ3b09RS0ZBLS1ibjQ4TzVRZkZ3TEpyR0tQZVBBX1lLSWFZZXl5cGVCN29mZW9PSEpMb0ZKaTdQZE0xb0pkNDR1YVhfSVJMUWtreW1GWEJ1aDdNWDNuX0V5U0d2RWJFZ9IBiwFBVV95cUxOQ2ZnZG9raTRjRnh1U3E4azV5QWFtdnk1dG0xbHhyTVB3M0JvcTF6Mmo0M3RCb1ZINVhYQ1RJSE5jc3JJcUN2SjlzZ2JRTXNheHdXOEJfZDdGRXpkbHBXTDhBWHBLRUNfXy02dU9WWEF1VVB1bVBGS2tacGJlb3lVVW9vMWkyVHR2b0s4?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxQUnk2TnUxMEprUzZBbDJ1alU5T2YxYkJieXBqV0owREQ3b09RS0ZBLS1ibjQ4TzVRZkZ3TEpyR0tQZVBBX1lLSWFZZXl5cGVCN29mZW9PSEpMb0ZKaTdQZE0xb0pkNDR1YVhfSVJMUWtreW1GWEJ1aDdNWDNuX0V5U0d2RWJFZ9IBiwFBVV95cUxOQ2ZnZG9raTRjRnh1U3E4azV5QWFtdnk1dG0xbHhyTVB3M0JvcTF6Mmo0M3RCb1ZINVhYQ1RJSE5jc3JJcUN2SjlzZ2JRTXNheHdXOEJfZDdGRXpkbHBXTDhBWHBLRUNfXy02dU9WWEF1VVB1bVBGS2tacGJlb3lVVW9vMWkyVHR2b0s4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
