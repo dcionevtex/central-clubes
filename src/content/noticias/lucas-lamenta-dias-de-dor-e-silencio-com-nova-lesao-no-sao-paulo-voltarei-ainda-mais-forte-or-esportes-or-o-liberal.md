@@ -1,0 +1,13 @@
+---
+title: "Lucas lamenta 'dias de dor e silêncio' com nova lesão no São Paulo: 'Voltarei ainda mais forte' | Esportes | O Liberal"
+description: "Lucas lamenta 'dias de dor e silêncio' com nova lesão no São Paulo: 'Voltarei ainda mais forte' | Esportes | O Liberal  O Liberal"
+pubDate: "2026-05-05T16:41:22.000Z"
+source: "O Liberal"
+link: "https://news.google.com/rss/articles/CBMizwFBVV95cUxOOGVUT3VMc095SDdrUnVwdzFKRDhMbkViOEhiTERNd1ZYd004OVRoSEFSUUxxSTVSUjBjSWNDV0lCS2dJQUdfV0U5NEJXSzRsUzh3NlpGTHZHbDItOENGX0hXS0FrRklsSXdZNGRMNjY0Yk5zZXJwTHBnQWRERVM0bnBRcDNnTkp0UFlqMXEzNnRLaTBQM1REVmlhTzBDM1VTSVVFM1k4U0ltNzFxV1J0WUI2WWVHRGJ0RU9iS0w4SllHVmVjVXhlc3htOFIzcDjSAdQBQVVfeXFMUG5tV0NqNGR0VFZrQm8ycWFHZHBrVG55YWdDQ1loWTZ0S253NDRrV0M1cGxNSUxHMzk1WG53MGNnVi1GLV91OENIM05Id2lLaktGTmFONmVBVHNLbXJSNFMxSkNkaG56WXdRbVR6dGhRc0h5bWJJWlVSbHpYSXVVaFdpajg2Z2RKa2lrcGFzWTdrejNnSlFKbmd4d2NycGtfZnR5eGhRQ042RnNoZWFvb0pkMmxvWGJ5ekNjRGZ1R1RBWUJZaG5OSUZuYVk2RUY4S0hja08?oc=5"
+---
+
+### Fonte Original: O Liberal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMizwFBVV95cUxOOGVUT3VMc095SDdrUnVwdzFKRDhMbkViOEhiTERNd1ZYd004OVRoSEFSUUxxSTVSUjBjSWNDV0lCS2dJQUdfV0U5NEJXSzRsUzh3NlpGTHZHbDItOENGX0hXS0FrRklsSXdZNGRMNjY0Yk5zZXJwTHBnQWRERVM0bnBRcDNnTkp0UFlqMXEzNnRLaTBQM1REVmlhTzBDM1VTSVVFM1k4U0ltNzFxV1J0WUI2WWVHRGJ0RU9iS0w4SllHVmVjVXhlc3htOFIzcDjSAdQBQVVfeXFMUG5tV0NqNGR0VFZrQm8ycWFHZHBrVG55YWdDQ1loWTZ0S253NDRrV0M1cGxNSUxHMzk1WG53MGNnVi1GLV91OENIM05Id2lLaktGTmFONmVBVHNLbXJSNFMxSkNkaG56WXdRbVR6dGhRc0h5bWJJWlVSbHpYSXVVaFdpajg2Z2RKa2lrcGFzWTdrejNnSlFKbmd4d2NycGtfZnR5eGhRQ042RnNoZWFvb0pkMmxvWGJ5ekNjRGZ1R1RBWUJZaG5OSUZuYVk2RUY4S0hja08?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo muda foco para Sul-Americana e volta aos treinos"
+description: "São Paulo muda foco para Sul-Americana e volta aos treinos  Portal Hortolândia"
+pubDate: "2026-05-05T15:49:47.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQLTVhQ2tYYzVNTFlGZFBWNWZDVHZUc2J4SmdtNkRBVEppdnA0U0lqNVZLUTRKdWlyVi16S3EzMmJjZHVzeEVaeHBvc3hfT1UyU0RPaFJ1enZJZThYbU05OXlVRmhSbkVSM3JQWktoYktTci1CNjZob2tHd3pKazA3N3lFMNIBgwFBVV95cUxQLTVhQ2tYYzVNTFlGZFBWNWZDVHZUc2J4SmdtNkRBVEppdnA0U0lqNVZLUTRKdWlyVi16S3EzMmJjZHVzeEVaeHBvc3hfT1UyU0RPaFJ1enZJZThYbU05OXlVRmhSbkVSM3JQWktoYktTci1CNjZob2tHd3pKazA3N3lFMA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQLTVhQ2tYYzVNTFlGZFBWNWZDVHZUc2J4SmdtNkRBVEppdnA0U0lqNVZLUTRKdWlyVi16S3EzMmJjZHVzeEVaeHBvc3hfT1UyU0RPaFJ1enZJZThYbU05OXlVRmhSbkVSM3JQWktoYktTci1CNjZob2tHd3pKazA3N3lFMNIBgwFBVV95cUxQLTVhQ2tYYzVNTFlGZFBWNWZDVHZUc2J4SmdtNkRBVEppdnA0U0lqNVZLUTRKdWlyVi16S3EzMmJjZHVzeEVaeHBvc3hfT1UyU0RPaFJ1enZJZThYbU05OXlVRmhSbkVSM3JQWktoYktTci1CNjZob2tHd3pKazA3N3lFMA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

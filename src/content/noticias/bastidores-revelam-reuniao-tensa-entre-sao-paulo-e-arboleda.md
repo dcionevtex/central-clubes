@@ -1,0 +1,13 @@
+---
+title: "Bastidores revelam reunião tensa entre São Paulo e Arboleda"
+description: "Bastidores revelam reunião tensa entre São Paulo e Arboleda  Bolavip Brasil"
+pubDate: "2026-05-05T15:28:23.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxObnByREpvaEJSNGhYQnRvNC1JNU9XMWFxMTNlTEdQTW5UQjdGMm5Lb1U0eXpvbVBUM3ZWalhLTm1KYnNiU2YxaXlqbjFlSzRpMHVqRldpSXdTZDNFNk9nTkdQRm5IeXNGVVdWYUkxbUxUbEwwZlJBQ0VmLXUxUWtXcmZMV3lGVDhieW5vam9PR1M0UlpNRWJN0gGcAUFVX3lxTE1wemhCVnlFT0NnalZfMFZYN2ZfU1BPMGdBNHJqWWRNcVhyRndzZkhpMjd3eWdETnB5QkpWYUNMeVgxVVpuSDF2N1Q5Q3c1UkFBRlhBUmF4Snhhb0JfSXZycENNeHd5TzhUODhSb2xySWVLOUZzdF9wUjBiQzdVd0ZaSThNUGpwSFltTUd2d1Z3Vmt2ejBqZUlOV0t2Nw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxObnByREpvaEJSNGhYQnRvNC1JNU9XMWFxMTNlTEdQTW5UQjdGMm5Lb1U0eXpvbVBUM3ZWalhLTm1KYnNiU2YxaXlqbjFlSzRpMHVqRldpSXdTZDNFNk9nTkdQRm5IeXNGVVdWYUkxbUxUbEwwZlJBQ0VmLXUxUWtXcmZMV3lGVDhieW5vam9PR1M0UlpNRWJN0gGcAUFVX3lxTE1wemhCVnlFT0NnalZfMFZYN2ZfU1BPMGdBNHJqWWRNcVhyRndzZkhpMjd3eWdETnB5QkpWYUNMeVgxVVpuSDF2N1Q5Q3c1UkFBRlhBUmF4Snhhb0JfSXZycENNeHd5TzhUODhSb2xySWVLOUZzdF9wUjBiQzdVd0ZaSThNUGpwSFltTUd2d1Z3Vmt2ejBqZUlOV0t2Nw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
