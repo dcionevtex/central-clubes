@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem estratégia definida para Arboleda após reapresentação ao clube"
+description: "São Paulo tem estratégia definida para Arboleda após reapresentação ao clube  Terra"
+pubDate: "2026-05-05T13:18:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi-gFBVV95cUxQQWtMOFBpcEwzYms4OFNzcE5zWUFlQkc0YnhhTXR2bUV1VGxkOE1CM2dYcGdwakdBVlFYOFpsOTR0d19DMm5mNUp1OGs5Y0MwWU5aZWF4bElVWjlLNmZ1UkRDeFRWdEc3VXFSYzdaTF92X0ZuaDNkVmJWNkRkaWZnQ25BR3puaDhONE9KckRmNy1ZaTR4aVI3R3pCcVZXVWxyMXBSU2VXT0Z1RVNLZFdhdm1lTWYzUk5QdExacWw4WjZ0YU50emlTQmoyUVdvV2ZGdEROTkppWmdRRktMWjdzYklVQlBvZTMzcjRRUlFpZm5YRVJ3ZWYxbE93?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi-gFBVV95cUxQQWtMOFBpcEwzYms4OFNzcE5zWUFlQkc0YnhhTXR2bUV1VGxkOE1CM2dYcGdwakdBVlFYOFpsOTR0d19DMm5mNUp1OGs5Y0MwWU5aZWF4bElVWjlLNmZ1UkRDeFRWdEc3VXFSYzdaTF92X0ZuaDNkVmJWNkRkaWZnQ25BR3puaDhONE9KckRmNy1ZaTR4aVI3R3pCcVZXVWxyMXBSU2VXT0Z1RVNLZFdhdm1lTWYzUk5QdExacWw4WjZ0YU50emlTQmoyUVdvV2ZGdEROTkppWmdRRktMWjdzYklVQlBvZTMzcjRRUlFpZm5YRVJ3ZWYxbE93?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

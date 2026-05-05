@@ -1,0 +1,13 @@
+---
+title: "Arboleda, do São Paulo, entra na mira do mercado e Athletico lidera corrida"
+description: "Arboleda, do São Paulo, entra na mira do mercado e Athletico lidera corrida  Bolavip Brasil"
+pubDate: "2026-05-05T13:11:40.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxPaW1XeHJYYzRjTFZmTFVTUlpJUDJ4LXFsMG9haE5lRXBFSktpMkdGSGstQzhDOFdVSHAtNC1WZEdxb2dlejJDQXlWN0I4ejd1TUxBaDYxekVSY280TU0zYmVJSjN4ekNpbnI0Wm1JLTZUZDZlOE15NTFwMlV5Q1czSnRLU3pidHhOdVZRYmNacEhVN3dIeTFtTjFrTWNEcmpLWGt0R2FKUnB5Z9IBrwFBVV95cUxOVFRTdkUyTlUtMF8xM2dOM0J0OUN3WENJcVRPd0tzWUpHVlFNaFQ0b05PbDNxV1JmN25TdXlYamJVTFJQYWJJWG94enV1TGp6dGVXellMbmNNbzZNaXdIN29Cd1lxcFdKTnhqV0F1WnplaC1aQTRQbWtXcDQ5V0lyOHBRVEhTS1BWdkxmY3dvNGVXQWdZSmlTNV80OVdQUVpjUlh1M3ZHdXY0b2Q0Y1NN?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxPaW1XeHJYYzRjTFZmTFVTUlpJUDJ4LXFsMG9haE5lRXBFSktpMkdGSGstQzhDOFdVSHAtNC1WZEdxb2dlejJDQXlWN0I4ejd1TUxBaDYxekVSY280TU0zYmVJSjN4ekNpbnI0Wm1JLTZUZDZlOE15NTFwMlV5Q1czSnRLU3pidHhOdVZRYmNacEhVN3dIeTFtTjFrTWNEcmpLWGt0R2FKUnB5Z9IBrwFBVV95cUxOVFRTdkUyTlUtMF8xM2dOM0J0OUN3WENJcVRPd0tzWUpHVlFNaFQ0b05PbDNxV1JmN25TdXlYamJVTFJQYWJJWG94enV1TGp6dGVXellMbmNNbzZNaXdIN29Cd1lxcFdKTnhqV0F1WnplaC1aQTRQbWtXcDQ5V0lyOHBRVEhTS1BWdkxmY3dvNGVXQWdZSmlTNV80OVdQUVpjUlh1M3ZHdXY0b2Q0Y1NN?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

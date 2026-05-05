@@ -1,0 +1,13 @@
+---
+title: "São Paulo entende empate com o Bahia e inicia novo planejamento"
+description: "São Paulo entende empate com o Bahia e inicia novo planejamento  Bolavip Brasil"
+pubDate: "2026-05-05T14:59:39.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxQdUxHa1c0YTJnQmNvbmFzbkoyalVaQVlFbnFIOXVWVlZvdTFYek0wRVFYWWY1SFFjcGhXVjFMbWU4UFMtWVVHeTZqMkd3RTJ2U2xJU0FFMDdEbjBXZzRJS2YyYjFvX1p0ekZacDkyNUY2NXdZWlFoZTJyQVhxRWdQTjQxenRIREFIUUEzZ3htRUFBYm80NURldkdkRGPSAaIBQVVfeXFMTW1jdjg1QzR0bWd6WWVITUdUTnFuSTlCZkczcFJHV3htX045d0oxUXNGdm55cUNhb1lFT3ptQzZWbVZhVlJoVFJPYnVCcThweHRfZFZob2RHSDJTQXNieks0aG1ZY2xGdzBWOUY1cTExd05Rc3hXM3dVZHRkTWQ3OWtEU0xMYy1QVzNVdmJXX3I4M2dBc2NYQ21MaG1WaTlsZUhn?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxQdUxHa1c0YTJnQmNvbmFzbkoyalVaQVlFbnFIOXVWVlZvdTFYek0wRVFYWWY1SFFjcGhXVjFMbWU4UFMtWVVHeTZqMkd3RTJ2U2xJU0FFMDdEbjBXZzRJS2YyYjFvX1p0ekZacDkyNUY2NXdZWlFoZTJyQVhxRWdQTjQxenRIREFIUUEzZ3htRUFBYm80NURldkdkRGPSAaIBQVVfeXFMTW1jdjg1QzR0bWd6WWVITUdUTnFuSTlCZkczcFJHV3htX045d0oxUXNGdm55cUNhb1lFT3ptQzZWbVZhVlJoVFJPYnVCcThweHRfZFZob2RHSDJTQXNieks0aG1ZY2xGdzBWOUY1cTExd05Rc3hXM3dVZHRkTWQ3OWtEU0xMYy1QVzNVdmJXX3I4M2dBc2NYQ21MaG1WaTlsZUhn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
