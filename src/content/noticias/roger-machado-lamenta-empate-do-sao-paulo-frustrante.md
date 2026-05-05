@@ -1,0 +1,13 @@
+---
+title: "Roger Machado lamenta empate do São Paulo: \"Frustrante\""
+description: "Roger Machado lamenta empate do São Paulo: \"Frustrante\"  Imirante.com"
+pubDate: "2026-05-04T23:18:00.000Z"
+source: "Imirante.com"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNaXBiR0JDa3JXRkh0OEhaWi1XT0lHZkRiLWNuX2FjZFFuUVBZVXUzZXEwWll5bzN6SkFraWd1VFRucjlueDBndkZpLXZPN0FUWktJVU5mWTBLdGp4SVg2QUNsZzd0bE11bkpxajB4NHJVV1liTjNaM0YzTklIMFJ0aGhOZXpqZTNJQ0dGRG85V2pQLXdFRExvZUY1aXNYMEZhUTNNYkJnYVXSAa4BQVVfeXFMTkcwY3lkMHNMaTlZVm1HVERhRkZOeEdzSWlCWTlFUEdBenVMa0ljaXFtX3pETjY1UEtueVZrRTVBanV0SFM3N0JBSVM4eGZKZE1HQmEySTU4Tk5PUjJRemhad242cVNlWk4tQ2RXbEpLUHJSdDkwQVAyeUtQajBDLVA1LUlxeWd4bU54Y0w3d01yV0pmZ3dBTlZLbWZtcDdVSmxYbHVENDFCdzJoTzBn?oc=5"
+---
+
+### Fonte Original: Imirante.com
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNaXBiR0JDa3JXRkh0OEhaWi1XT0lHZkRiLWNuX2FjZFFuUVBZVXUzZXEwWll5bzN6SkFraWd1VFRucjlueDBndkZpLXZPN0FUWktJVU5mWTBLdGp4SVg2QUNsZzd0bE11bkpxajB4NHJVV1liTjNaM0YzTklIMFJ0aGhOZXpqZTNJQ0dGRG85V2pQLXdFRExvZUY1aXNYMEZhUTNNYkJnYVXSAa4BQVVfeXFMTkcwY3lkMHNMaTlZVm1HVERhRkZOeEdzSWlCWTlFUEdBenVMa0ljaXFtX3pETjY1UEtueVZrRTVBanV0SFM3N0JBSVM4eGZKZE1HQmEySTU4Tk5PUjJRemhad242cVNlWk4tQ2RXbEpLUHJSdDkwQVAyeUtQajBDLVA1LUlxeWd4bU54Y0w3d01yV0pmZ3dBTlZLbWZtcDdVSmxYbHVENDFCdzJoTzBn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
