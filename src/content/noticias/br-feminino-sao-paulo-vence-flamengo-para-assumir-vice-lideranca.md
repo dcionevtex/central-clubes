@@ -1,0 +1,13 @@
+---
+title: "BR Feminino: São Paulo vence Flamengo para assumir vice-liderança"
+description: "BR Feminino: São Paulo vence Flamengo para assumir vice-liderança  UOL Notícias"
+pubDate: "2026-05-05T02:48:00.000Z"
+source: "UOL Notícias"
+link: "https://news.google.com/rss/articles/CBMitwJBVV95cUxPaUgyNXBheHBPQXh5SFk5YURKNVVLVW1jMEQyNW9DV2Y3UnBfUXI3MHZESWF5QzFKWmp6LTJRZFRaeGhlcTJ1b1c3aWhvU2tlRXRQNkx0WDVISTlNLVNPbk1nMkhla3VvcHVKT253Z2czUENaTHgtOWxNOW9IUnFDWXFVblpQNXVGZHc5VGhhVDFrVUhlaTRzUTktV2U4ZzBEcmNpVHFMVGhHYXpzV0hlaDVUMFFpLWtuWTd3emR1dGdVV09lU2doT2tPOHpWTEdlMUw3MVBuZ3Z5WGdXbHBPSkFGMmx5MDFLOVFwRVoxY0pTWnNRTzdNR2E5ZmMzQUNnRUdySnJIVXRONUtCTUpvY0k1YmFxT25fbVY3bVJxeWppbGRqdXhERnBsWU9HMl9rWU91bDB3WQ?oc=5"
+---
+
+### Fonte Original: UOL Notícias
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMitwJBVV95cUxPaUgyNXBheHBPQXh5SFk5YURKNVVLVW1jMEQyNW9DV2Y3UnBfUXI3MHZESWF5QzFKWmp6LTJRZFRaeGhlcTJ1b1c3aWhvU2tlRXRQNkx0WDVISTlNLVNPbk1nMkhla3VvcHVKT253Z2czUENaTHgtOWxNOW9IUnFDWXFVblpQNXVGZHc5VGhhVDFrVUhlaTRzUTktV2U4ZzBEcmNpVHFMVGhHYXpzV0hlaDVUMFFpLWtuWTd3emR1dGdVV09lU2doT2tPOHpWTEdlMUw3MVBuZ3Z5WGdXbHBPSkFGMmx5MDFLOVFwRVoxY0pTWnNRTzdNR2E5ZmMzQUNnRUdySnJIVXRONUtCTUpvY0k1YmFxT25fbVY3bVJxeWppbGRqdXhERnBsWU9HMl9rWU91bDB3WQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

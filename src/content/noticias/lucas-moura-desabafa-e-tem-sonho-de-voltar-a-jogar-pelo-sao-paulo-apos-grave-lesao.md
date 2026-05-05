@@ -1,0 +1,13 @@
+---
+title: "Lucas Moura desabafa e tem sonho de voltar a jogar pelo São Paulo após grave lesão"
+description: "Lucas Moura desabafa e tem sonho de voltar a jogar pelo São Paulo após grave lesão  Bolavip Brasil"
+pubDate: "2026-05-05T03:01:48.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxNamtlenRMSnJZa3MtOWRvZERiZGx2WFdYQmNVbldvQU8wVHlaNmNWcmVMRGVmNF9vTkc3OW8temRWVy0yYTlCVERORzUyc0FpZm5ONHZnQk1LUkVZdTh4UGRyNkxZUFozcDNrMXg5ZkF0RlJ4S3RtRThnRTZZOUdVMGstcDhNMnpwNm82M21WaklpbjVFanR3UzN4SXVSWUXSAaQBQVVfeXFMTVdKUXRuZTg2YWIxdEFLYi13ajNLRFZIZnFQR2wxT2pYN3daYlV0Y25hSzEwVmxybUdxa0daUXNFdHBaZjl3TFd0N0RYN2dhM2w5aFlIVUpRQk5vVkhxcWVPVHR5WXF1Y05DMkZIR2VKRm9nWVc4aGJmUVM1dDJpUGJLeDJIMF9tRlZHUWF1TGlUX3FvRXFCeFJtb1hwQVNRTUdNd3E?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxNamtlenRMSnJZa3MtOWRvZERiZGx2WFdYQmNVbldvQU8wVHlaNmNWcmVMRGVmNF9vTkc3OW8temRWVy0yYTlCVERORzUyc0FpZm5ONHZnQk1LUkVZdTh4UGRyNkxZUFozcDNrMXg5ZkF0RlJ4S3RtRThnRTZZOUdVMGstcDhNMnpwNm82M21WaklpbjVFanR3UzN4SXVSWUXSAaQBQVVfeXFMTVdKUXRuZTg2YWIxdEFLYi13ajNLRFZIZnFQR2wxT2pYN3daYlV0Y25hSzEwVmxybUdxa0daUXNFdHBaZjl3TFd0N0RYN2dhM2w5aFlIVUpRQk5vVkhxcWVPVHR5WXF1Y05DMkZIR2VKRm9nWVc4aGJmUVM1dDJpUGJLeDJIMF9tRlZHUWF1TGlUX3FvRXFCeFJtb1hwQVNRTUdNd3E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

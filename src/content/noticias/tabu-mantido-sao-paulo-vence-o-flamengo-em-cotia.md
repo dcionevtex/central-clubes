@@ -1,0 +1,13 @@
+---
+title: "Tabu mantido: São Paulo vence o Flamengo em Cotia"
+description: "Tabu mantido: São Paulo vence o Flamengo em Cotia  Bolavip Brasil"
+pubDate: "2026-05-05T02:09:27.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxQWGRXNTRpcGdaNWtuNldtUFdINlRzV19JaTIyenZaUFhGSU9CVklTT1hzZGNZVWdMR0pyaG42MlItSDFDbDJxMjAxdnRpRm42cHRhQ0ZOSG9wckktaUo5R20zdUFWdjBRR0NDdWdLT24zQUxXSlBPSjhlWFlsR2hRbUs2V2EtaGFtSmhkd2IzeVZyQmpOT1BR0gGXAUFVX3lxTFBYZFc1NGlwZ1o1a242V21QV0g2VHNXX0lpMjJ6dlpQWEZJT0JWSVNPWHNkY1lVZ0xHSnJobjYyUi1IMUNsMnEyMDF2dGlGbjZwdGFDRk5Ib3BySS1pSjlHbTN1QVZ2MFFHQ0N1Z0tPbjNBTFdKUE9KOGVYWWxHaFFtSzZXYS1oYW1KaGR3YjN5VnJCak5PUFE?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxQWGRXNTRpcGdaNWtuNldtUFdINlRzV19JaTIyenZaUFhGSU9CVklTT1hzZGNZVWdMR0pyaG42MlItSDFDbDJxMjAxdnRpRm42cHRhQ0ZOSG9wckktaUo5R20zdUFWdjBRR0NDdWdLT24zQUxXSlBPSjhlWFlsR2hRbUs2V2EtaGFtSmhkd2IzeVZyQmpOT1BR0gGXAUFVX3lxTFBYZFc1NGlwZ1o1a242V21QV0g2VHNXX0lpMjJ6dlpQWEZJT0JWSVNPWHNkY1lVZ0xHSnJobjYyUi1IMUNsMnEyMDF2dGlGbjZwdGFDRk5Ib3BySS1pSjlHbTN1QVZ2MFFHQ0N1Z0tPbjNBTFdKUE9KOGVYWWxHaFFtSzZXYS1oYW1KaGR3YjN5VnJCak5PUFE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

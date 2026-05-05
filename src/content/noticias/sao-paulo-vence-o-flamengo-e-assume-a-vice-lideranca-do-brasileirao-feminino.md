@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence o Flamengo e assume a vice-liderança do Brasileirão feminino"
+description: "São Paulo vence o Flamengo e assume a vice-liderança do Brasileirão feminino  Gazeta Esportiva"
+pubDate: "2026-05-05T02:07:36.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxOMlVVRExGd0xfcmRqZUEtY2lUcWIwM1J4UGt5Q2pacVJPVjk1TTJLWW1zeHQ4QXBsQ0R6Y2FDeXNqV3FCdjNSUElVbWx1cGdSbHc4dTFHLTRJekZUSWxJVUZ6SW5tekMxOHpuR0hJMVVqSjk4SHpfMWhkRVRNNjdfTjJDUTdvR3BmS2tFUTkzVzdXa0w3YWVlbkppSnNPTlF6dlJDX9IBpAFBVV95cUxOMlVVRExGd0xfcmRqZUEtY2lUcWIwM1J4UGt5Q2pacVJPVjk1TTJLWW1zeHQ4QXBsQ0R6Y2FDeXNqV3FCdjNSUElVbWx1cGdSbHc4dTFHLTRJekZUSWxJVUZ6SW5tekMxOHpuR0hJMVVqSjk4SHpfMWhkRVRNNjdfTjJDUTdvR3BmS2tFUTkzVzdXa0w3YWVlbkppSnNPTlF6dlJDXw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxOMlVVRExGd0xfcmRqZUEtY2lUcWIwM1J4UGt5Q2pacVJPVjk1TTJLWW1zeHQ4QXBsQ0R6Y2FDeXNqV3FCdjNSUElVbWx1cGdSbHc4dTFHLTRJekZUSWxJVUZ6SW5tekMxOHpuR0hJMVVqSjk4SHpfMWhkRVRNNjdfTjJDUTdvR3BmS2tFUTkzVzdXa0w3YWVlbkppSnNPTlF6dlJDX9IBpAFBVV95cUxOMlVVRExGd0xfcmRqZUEtY2lUcWIwM1J4UGt5Q2pacVJPVjk1TTJLWW1zeHQ4QXBsQ0R6Y2FDeXNqV3FCdjNSUElVbWx1cGdSbHc4dTFHLTRJekZUSWxJVUZ6SW5tekMxOHpuR0hJMVVqSjk4SHpfMWhkRVRNNjdfTjJDUTdvR3BmS2tFUTkzVzdXa0w3YWVlbkppSnNPTlF6dlJDXw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
