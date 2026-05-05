@@ -1,0 +1,13 @@
+---
+title: "Lucas lamenta 'dias de dor e silêncio' com nova lesão no São Paulo: 'Voltarei ainda mais forte'"
+description: "Lucas lamenta 'dias de dor e silêncio' com nova lesão no São Paulo: 'Voltarei ainda mais forte'  Folha PE"
+pubDate: "2026-05-05T16:53:00.000Z"
+source: "Folha PE"
+link: "https://news.google.com/rss/articles/CBMisAFBVV95cUxQZW1VUXBlNXRrS0V3UzI3c2QzRXJYdHFKanhpYnZLOWdWaW91UnozNWdOTWhvclJwSFN6NDBGTWpUdDZRUkEtSVlCRUE1VmdMandQZ0lFYWFMcXBWWWxKQktnbDE1bHlQc3ZRQzMzYm53MDBCaTJBbjFRdlM0dmJ0a2pMNWxqX1VuZDE5Z1c1TEpSeFlINlVjOWdocXpnQjN5RjJhWWlYb3BQaUhOdFdfMNIBsAFBVV95cUxQZW1VUXBlNXRrS0V3UzI3c2QzRXJYdHFKanhpYnZLOWdWaW91UnozNWdOTWhvclJwSFN6NDBGTWpUdDZRUkEtSVlCRUE1VmdMandQZ0lFYWFMcXBWWWxKQktnbDE1bHlQc3ZRQzMzYm53MDBCaTJBbjFRdlM0dmJ0a2pMNWxqX1VuZDE5Z1c1TEpSeFlINlVjOWdocXpnQjN5RjJhWWlYb3BQaUhOdFdfMA?oc=5"
+---
+
+### Fonte Original: Folha PE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMisAFBVV95cUxQZW1VUXBlNXRrS0V3UzI3c2QzRXJYdHFKanhpYnZLOWdWaW91UnozNWdOTWhvclJwSFN6NDBGTWpUdDZRUkEtSVlCRUE1VmdMandQZ0lFYWFMcXBWWWxKQktnbDE1bHlQc3ZRQzMzYm53MDBCaTJBbjFRdlM0dmJ0a2pMNWxqX1VuZDE5Z1c1TEpSeFlINlVjOWdocXpnQjN5RjJhWWlYb3BQaUhOdFdfMNIBsAFBVV95cUxQZW1VUXBlNXRrS0V3UzI3c2QzRXJYdHFKanhpYnZLOWdWaW91UnozNWdOTWhvclJwSFN6NDBGTWpUdDZRUkEtSVlCRUE1VmdMandQZ0lFYWFMcXBWWWxKQktnbDE1bHlQc3ZRQzMzYm53MDBCaTJBbjFRdlM0dmJ0a2pMNWxqX1VuZDE5Z1c1TEpSeFlINlVjOWdocXpnQjN5RjJhWWlYb3BQaUhOdFdfMA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
