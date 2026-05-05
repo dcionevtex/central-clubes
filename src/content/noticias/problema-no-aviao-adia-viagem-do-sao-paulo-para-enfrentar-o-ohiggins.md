@@ -1,0 +1,13 @@
+---
+title: "Problema no avião adia viagem do São Paulo para enfrentar o O'Higgins"
+description: "Problema no avião adia viagem do São Paulo para enfrentar o O'Higgins  Terra"
+pubDate: "2026-05-05T21:21:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMihwJBVV95cUxPTmpNcm80VHh4UFNtaVFoTHBFSmNFcUNRSEhIdXNtT3V4a0NTT0Y3YXBPUG1mLWs3ZEtHSmZJakpmOGgwWWpGNjE3VURtQVhmQ0h4WVBWUTdLU2RmZW94S0V2aGZKakt1T3F4UDljbmkxTldpcF9GcjJWNjN3ellqdmFmSUVRODZvRFBVbm1VRW1jWkpIeGdfTEU1X1ZEVWNfelZjS3c4cy1nMDNMMzBrV0phRGFuOWgtN1d1blBRWkFRNXByNzZydm9PNDFvdmNaV3FDXzlPcmZVcGt2UUF2MUE3N09BSFlpRXQ1bHN3NHFTTUVsamV4ZDRab2hqMDRzYzhja0pOQQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihwJBVV95cUxPTmpNcm80VHh4UFNtaVFoTHBFSmNFcUNRSEhIdXNtT3V4a0NTT0Y3YXBPUG1mLWs3ZEtHSmZJakpmOGgwWWpGNjE3VURtQVhmQ0h4WVBWUTdLU2RmZW94S0V2aGZKakt1T3F4UDljbmkxTldpcF9GcjJWNjN3ellqdmFmSUVRODZvRFBVbm1VRW1jWkpIeGdfTEU1X1ZEVWNfelZjS3c4cy1nMDNMMzBrV0phRGFuOWgtN1d1blBRWkFRNXByNzZydm9PNDFvdmNaV3FDXzlPcmZVcGt2UUF2MUE3N09BSFlpRXQ1bHN3NHFTTUVsamV4ZDRab2hqMDRzYzhja0pOQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem viagem para o Chile adiada por problemas em avião; saiba detalhes"
+description: "São Paulo tem viagem para o Chile adiada por problemas em avião; saiba detalhes  Rádio Itatiaia"
+pubDate: "2026-05-05T20:52:59.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiowJBVV95cUxQUDk0UVozdEFGcVVma01nMzZ1R2d1NS1YODFBdEQtLXFEd3IxSmlMUHNaLTlTTTRnOFp3b0NTVFF3N1VLWnRkc2JPeElvby1iV19SUTFTY1V2eEtNb3otRFVjbGVQdXRiZlM5MkNaTkhyTUNXYWg0WTdaOV9ENUt4R28yNll4eWlxdExtWnhWV0t0dEhlXzc0UWoxM2RZT0xTbENKd0dVMGwwTzZoVzg0cjVxa0ZDU0NXcmFSbmZqMFlqWG96R2RrQnFScjYwODBTT2E0YnZMWDBPWVZMSHdOMzExS3NhLVVZdVZOUUNBVk0xSERBRkpzZkVRQzhCZ0NobHF5bGlyNElMLVVJSEp1NE1ZTW1vbDNZbkNzSVlwZTdqbkU?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowJBVV95cUxQUDk0UVozdEFGcVVma01nMzZ1R2d1NS1YODFBdEQtLXFEd3IxSmlMUHNaLTlTTTRnOFp3b0NTVFF3N1VLWnRkc2JPeElvby1iV19SUTFTY1V2eEtNb3otRFVjbGVQdXRiZlM5MkNaTkhyTUNXYWg0WTdaOV9ENUt4R28yNll4eWlxdExtWnhWV0t0dEhlXzc0UWoxM2RZT0xTbENKd0dVMGwwTzZoVzg0cjVxa0ZDU0NXcmFSbmZqMFlqWG96R2RrQnFScjYwODBTT2E0YnZMWDBPWVZMSHdOMzExS3NhLVVZdVZOUUNBVk0xSERBRkpzZkVRQzhCZ0NobHF5bGlyNElMLVVJSEp1NE1ZTW1vbDNZbkNzSVlwZTdqbkU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
