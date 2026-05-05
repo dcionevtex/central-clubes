@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem problema no avião antes de viagem para o Chile"
+description: "São Paulo tem problema no avião antes de viagem para o Chile  Portal Hortolândia"
+pubDate: "2026-05-05T21:59:14.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxOcHlnWXdNcWZvQlNkRWhxTENnT2l1Y2JwR0ZyNUhfa0tlOXp0cjByVGM0eXFqVDQ3LTJQOVh5enRKS3lqSF9kcUpRbi1GZ0NockFfYjR2V3RFVHY3Vi0yLUctckhGME52a2hKUGVZVU9ZMmtVUGIyb21YM2Q0UXd5ZGhrVWdGZ9IBhgFBVV95cUxOcHlnWXdNcWZvQlNkRWhxTENnT2l1Y2JwR0ZyNUhfa0tlOXp0cjByVGM0eXFqVDQ3LTJQOVh5enRKS3lqSF9kcUpRbi1GZ0NockFfYjR2V3RFVHY3Vi0yLUctckhGME52a2hKUGVZVU9ZMmtVUGIyb21YM2Q0UXd5ZGhrVWdGZw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxOcHlnWXdNcWZvQlNkRWhxTENnT2l1Y2JwR0ZyNUhfa0tlOXp0cjByVGM0eXFqVDQ3LTJQOVh5enRKS3lqSF9kcUpRbi1GZ0NockFfYjR2V3RFVHY3Vi0yLUctckhGME52a2hKUGVZVU9ZMmtVUGIyb21YM2Q0UXd5ZGhrVWdGZ9IBhgFBVV95cUxOcHlnWXdNcWZvQlNkRWhxTENnT2l1Y2JwR0ZyNUhfa0tlOXp0cjByVGM0eXFqVDQ3LTJQOVh5enRKS3lqSF9kcUpRbi1GZ0NockFfYjR2V3RFVHY3Vi0yLUctckhGME52a2hKUGVZVU9ZMmtVUGIyb21YM2Q0UXd5ZGhrVWdGZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
