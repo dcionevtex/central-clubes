@@ -1,0 +1,13 @@
+---
+title: "São Paulo evita debate sobre futuro e blinda Lucas Moura após lesão"
+description: "São Paulo evita debate sobre futuro e blinda Lucas Moura após lesão  Bolavip Brasil"
+pubDate: "2026-05-05T12:05:03.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxNRHhxNlIxenQxdGVRSlZYSldWOFNUWVFPcjRkNjZCZkNsb3J3MWRqbGZsV3FiUDkyQzE3bGNIMTNDQ29aaWJuZ1A5XzNXUzdkUl83OGdSQmpsYXJ3WDI3OC1teUZpZjFUUV95b3NnYWlPTmd0TUFvQjkwZVRSTW1HcGZzVER6QlYxQV9jNjVvYVNOVEdQY2NwTW9UemJRbTdnWHfSAacBQVVfeXFMTkc0bVloaXJ0T0FWclRMV2FqX21MRlc5ZlFpMmJSbFJZRUVSdldIV1ItbnpxMGd0a2QwRnlXTmEteHdYYllUY1hXRjBKbS02aWh3WERBeURkM2JwT0dqbmI3QkozV0pFbWY1SVU5VTd1eGJLUDFUdDlnQjNBOVdpMEZFYzNjMWpuZW05RUpVUkNGSHp3RVB0T1JJOWVjay0tcWRFeXJkbWc?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxNRHhxNlIxenQxdGVRSlZYSldWOFNUWVFPcjRkNjZCZkNsb3J3MWRqbGZsV3FiUDkyQzE3bGNIMTNDQ29aaWJuZ1A5XzNXUzdkUl83OGdSQmpsYXJ3WDI3OC1teUZpZjFUUV95b3NnYWlPTmd0TUFvQjkwZVRSTW1HcGZzVER6QlYxQV9jNjVvYVNOVEdQY2NwTW9UemJRbTdnWHfSAacBQVVfeXFMTkc0bVloaXJ0T0FWclRMV2FqX21MRlc5ZlFpMmJSbFJZRUVSdldIV1ItbnpxMGd0a2QwRnlXTmEteHdYYllUY1hXRjBKbS02aWh3WERBeURkM2JwT0dqbmI3QkozV0pFbWY1SVU5VTd1eGJLUDFUdDlnQjNBOVdpMEZFYzNjMWpuZW05RUpVUkNGSHp3RVB0T1JJOWVjay0tcWRFeXJkbWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

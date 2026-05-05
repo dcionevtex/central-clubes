@@ -1,0 +1,13 @@
+---
+title: "Cauteloso, Corinthians reduz expectativa por Memphis contra o São Paulo"
+description: "Cauteloso, Corinthians reduz expectativa por Memphis contra o São Paulo  UOL"
+pubDate: "2026-05-05T11:49:25.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMi9wFBVV95cUxOZWVJd0dyR2J5T0phbWkyQUxtZGhBbV85Slo3QjJhZW1PWkZVa1ZzUjB0OVVMSHBkbnUwZ0ExdTk1aWdlZ1ZTZDlNWFpMbzB1bUN2dkJTcDA2ZV85MWJ0Z0VVWnBXTEJzTl8tZFJqMTVaT0hDUWlfdE0zSzJxYkhWZF93UFpaV2s3WkpwQlZXbXIwOWlCUzZvZkFlRjJIcFREdlI3YllNWndUTlpFRUZCUE0waEw2R2hEV1NmWThmYnhBQkdpX2h2bzRMMXpnOTB5eTM2NmJ5dTZyZ0lUVkNzSDE1SlhSZUNDMXJNTnJZaXk3VUtiVmRz?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9wFBVV95cUxOZWVJd0dyR2J5T0phbWkyQUxtZGhBbV85Slo3QjJhZW1PWkZVa1ZzUjB0OVVMSHBkbnUwZ0ExdTk1aWdlZ1ZTZDlNWFpMbzB1bUN2dkJTcDA2ZV85MWJ0Z0VVWnBXTEJzTl8tZFJqMTVaT0hDUWlfdE0zSzJxYkhWZF93UFpaV2s3WkpwQlZXbXIwOWlCUzZvZkFlRjJIcFREdlI3YllNWndUTlpFRUZCUE0waEw2R2hEV1NmWThmYnhBQkdpX2h2bzRMMXpnOTB5eTM2NmJ5dTZyZ0lUVkNzSDE1SlhSZUNDMXJNTnJZaXk3VUtiVmRz?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
