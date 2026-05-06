@@ -1,0 +1,13 @@
+---
+title: "São Paulo vai com time misto e “poupa para valer” pensando em sequência"
+description: "São Paulo vai com time misto e “poupa para valer” pensando em sequência  Bolavip Brasil"
+pubDate: "2026-05-06T12:09:12.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMEhMdTIzQloxcmVTTGItcWRTaWlNNEZQRTNObHB2TmxKQ3NWWXJSMHNRemM1dVYyVUh6MVBlWHZwbmdqTkIwX1dnbldTY2VWMGpCUTNKM0dEOWRYRS1zSldMZDRrZGpsXzg4VF9xSzRzYjB5SWdFWEZVNzVJLTNkdE4tWEdxZ0I3NGUzY3Nyb1NiOFQzNkdpSk1iUHUwRGZwZTN6ODA2NjFMUdIBqgFBVV95cUxNMEhMdTIzQloxcmVTTGItcWRTaWlNNEZQRTNObHB2TmxKQ3NWWXJSMHNRemM1dVYyVUh6MVBlWHZwbmdqTkIwX1dnbldTY2VWMGpCUTNKM0dEOWRYRS1zSldMZDRrZGpsXzg4VF9xSzRzYjB5SWdFWEZVNzVJLTNkdE4tWEdxZ0I3NGUzY3Nyb1NiOFQzNkdpSk1iUHUwRGZwZTN6ODA2NjFMUQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNMEhMdTIzQloxcmVTTGItcWRTaWlNNEZQRTNObHB2TmxKQ3NWWXJSMHNRemM1dVYyVUh6MVBlWHZwbmdqTkIwX1dnbldTY2VWMGpCUTNKM0dEOWRYRS1zSldMZDRrZGpsXzg4VF9xSzRzYjB5SWdFWEZVNzVJLTNkdE4tWEdxZ0I3NGUzY3Nyb1NiOFQzNkdpSk1iUHUwRGZwZTN6ODA2NjFMUdIBqgFBVV95cUxNMEhMdTIzQloxcmVTTGItcWRTaWlNNEZQRTNObHB2TmxKQ3NWWXJSMHNRemM1dVYyVUh6MVBlWHZwbmdqTkIwX1dnbldTY2VWMGpCUTNKM0dEOWRYRS1zSldMZDRrZGpsXzg4VF9xSzRzYjB5SWdFWEZVNzVJLTNkdE4tWEdxZ0I3NGUzY3Nyb1NiOFQzNkdpSk1iUHUwRGZwZTN6ODA2NjFMUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
