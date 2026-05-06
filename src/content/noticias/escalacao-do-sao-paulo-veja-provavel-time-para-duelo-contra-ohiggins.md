@@ -1,0 +1,13 @@
+---
+title: "Escalação do São Paulo: veja provável time para duelo contra O'Higgins"
+description: "Escalação do São Paulo: veja provável time para duelo contra O'Higgins  Rádio Itatiaia"
+pubDate: "2026-05-06T19:03:33.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMilgJBVV95cUxPeEhiRVhxU0twNjR5UFd4UWk3MVc4RU0tMndTNW4xZ1BjbXQ4bUtGcFd0THFMNzFzU0s4WjJxX2NhS2FLZlhOUGhUamc1QTJuMmNhZGpzZzVaUC16MmltWXJ6Mld1bGpraXFzMDdpTVlkYU1KWUZmM3NhNml2VnlVUEhVRklyMWg2Tl9NbUdWSllVenMzQXY0QnZrbXRUSGg0QmVRZlVBTEJGVkFmVU9BZ0ltelZxM2ktWU1CQ1JoaFlyRXpkWVhtcHJsa2ZYS2Y2aF9KV25EZFJNd0g4T2JXLVRuV0RwZUpHM0g5ZGV3MXFmR3VlRG5EcFZWM051cXdURW5JQllqQzhtbjh1c0dsOWJwMG9qQQ?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgJBVV95cUxPeEhiRVhxU0twNjR5UFd4UWk3MVc4RU0tMndTNW4xZ1BjbXQ4bUtGcFd0THFMNzFzU0s4WjJxX2NhS2FLZlhOUGhUamc1QTJuMmNhZGpzZzVaUC16MmltWXJ6Mld1bGpraXFzMDdpTVlkYU1KWUZmM3NhNml2VnlVUEhVRklyMWg2Tl9NbUdWSllVenMzQXY0QnZrbXRUSGg0QmVRZlVBTEJGVkFmVU9BZ0ltelZxM2ktWU1CQ1JoaFlyRXpkWVhtcHJsa2ZYS2Y2aF9KV25EZFJNd0g4T2JXLVRuV0RwZUpHM0g5ZGV3MXFmR3VlRG5EcFZWM051cXdURW5JQllqQzhtbjh1c0dsOWJwMG9qQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

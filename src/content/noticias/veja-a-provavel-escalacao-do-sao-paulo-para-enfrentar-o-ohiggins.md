@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo para enfrentar o O'Higgins"
+description: "Veja a provável escalação do São Paulo para enfrentar o O'Higgins  Portal Hortolândia"
+pubDate: "2026-05-06T17:29:11.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxPSWVHUHMyRHA4VTR5b1A0OVNWMUd6VFhxLXU1TGE0YU5xZGh4bGlnNWJqY2t5X1Z2WXVkYzdyMkpmTjR1cVkyR1R0NzY4NlJhczYyRnNsYjNiSHNFZkU4Ym1ZSlBRZE56Sm1GRU5jLUdqdEdWQlRLWlZBMVoybFhXZTBRMkVBd9IBhgFBVV95cUxPSWVHUHMyRHA4VTR5b1A0OVNWMUd6VFhxLXU1TGE0YU5xZGh4bGlnNWJqY2t5X1Z2WXVkYzdyMkpmTjR1cVkyR1R0NzY4NlJhczYyRnNsYjNiSHNFZkU4Ym1ZSlBRZE56Sm1GRU5jLUdqdEdWQlRLWlZBMVoybFhXZTBRMkVBdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxPSWVHUHMyRHA4VTR5b1A0OVNWMUd6VFhxLXU1TGE0YU5xZGh4bGlnNWJqY2t5X1Z2WXVkYzdyMkpmTjR1cVkyR1R0NzY4NlJhczYyRnNsYjNiSHNFZkU4Ym1ZSlBRZE56Sm1GRU5jLUdqdEdWQlRLWlZBMVoybFhXZTBRMkVBd9IBhgFBVV95cUxPSWVHUHMyRHA4VTR5b1A0OVNWMUd6VFhxLXU1TGE0YU5xZGh4bGlnNWJqY2t5X1Z2WXVkYzdyMkpmTjR1cVkyR1R0NzY4NlJhczYyRnNsYjNiSHNFZkU4Ym1ZSlBRZE56Sm1GRU5jLUdqdEdWQlRLWlZBMVoybFhXZTBRMkVBdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
