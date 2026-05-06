@@ -1,0 +1,13 @@
+---
+title: "Filho de ídolo do São Paulo assina contrato profissional com clube; veja multa"
+description: "Filho de ídolo do São Paulo assina contrato profissional com clube; veja multa  Rádio Itatiaia"
+pubDate: "2026-05-06T08:10:15.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiogJBVV95cUxNYTlVUTJyaTkzNXo2QUpJTnBwd1pka2hfTmVSWU9RUjA4WTFYOExXTFE2WFRiT1p6UzJaWDk3dVpXVDZuY3R2eFFVZGxhUFl3RDlwMUg1VFhDSzBJLXZicXR4UUdyTWRzcmdXWVg5SEdPNm1xVHZYZnhNeU1WMDlURzMxeEY5b1cwSGVhZlZCbl9uUmJoN3pqNVhONEFLZ1p1NXgzM0J2RDlSamxfMGlrTDNDelNtS1hwOHRGN3F1eXJCMFFqMmNVanJvZTV2VXB2a05jZEd0d0RIZXFSUGNXbGpPMDdFblVmLUc2SFhkb3F6Sm1xZEJYR1E2Ry16aUdHaWJ2eGp6U1U2R2xvOU5MaFBUb3BLMFE5TmhYYl82OVhxdw?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogJBVV95cUxNYTlVUTJyaTkzNXo2QUpJTnBwd1pka2hfTmVSWU9RUjA4WTFYOExXTFE2WFRiT1p6UzJaWDk3dVpXVDZuY3R2eFFVZGxhUFl3RDlwMUg1VFhDSzBJLXZicXR4UUdyTWRzcmdXWVg5SEdPNm1xVHZYZnhNeU1WMDlURzMxeEY5b1cwSGVhZlZCbl9uUmJoN3pqNVhONEFLZ1p1NXgzM0J2RDlSamxfMGlrTDNDelNtS1hwOHRGN3F1eXJCMFFqMmNVanJvZTV2VXB2a05jZEd0d0RIZXFSUGNXbGpPMDdFblVmLUc2SFhkb3F6Sm1xZEJYR1E2Ry16aUdHaWJ2eGp6U1U2R2xvOU5MaFBUb3BLMFE5TmhYYl82OVhxdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
