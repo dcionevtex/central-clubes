@@ -1,0 +1,13 @@
+---
+title: "Roger define São Paulo com reservas para encarar o O’Higgins na Sul-Americana; veja escalações"
+description: "Roger define São Paulo com reservas para encarar o O’Higgins na Sul-Americana; veja escalações  Gazeta Esportiva"
+pubDate: "2026-05-07T20:49:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxOT1BUbENGeXg5bVNnQ3JCYkRkTGxmUmdoQnMtc2NrZDVfQm1nTk0xdEZkRnM3MEpQVzBoN0FrQkJyZXlJa0k1UVRzOGNfMF8ycDE4LWRiNW5wRWVJMWx0MW4tcHlQZ3gxV2JneW5yWjNpNUlmdERJa2k2MUxfa3I5QlBIVmxxYXhOd2FEUlVsV0dRb0pDbGlSRzBrR2Y1OXFSc0FZ0gGoAUFVX3lxTE1Yakh1YlFzdW9PNFIxRTF2N09kXzVhcC15Y3VaR2hoVWRzRlhzdlRua0dCNDA0MnEtRDJfOVViWmVDT3BVUm5lM0JPLWlDOHoyNVVfd3dEMUs3TjZBODh6SGdlQ2F3OW43RmZCdXlCQk8td3BHSGZzd3NpZThFXzVqZkVMQzRha29VZjc2aUJ0SmFFRU9YTG5RU0h3dVlka2t1cDBMdTdybw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxOT1BUbENGeXg5bVNnQ3JCYkRkTGxmUmdoQnMtc2NrZDVfQm1nTk0xdEZkRnM3MEpQVzBoN0FrQkJyZXlJa0k1UVRzOGNfMF8ycDE4LWRiNW5wRWVJMWx0MW4tcHlQZ3gxV2JneW5yWjNpNUlmdERJa2k2MUxfa3I5QlBIVmxxYXhOd2FEUlVsV0dRb0pDbGlSRzBrR2Y1OXFSc0FZ0gGoAUFVX3lxTE1Yakh1YlFzdW9PNFIxRTF2N09kXzVhcC15Y3VaR2hoVWRzRlhzdlRua0dCNDA0MnEtRDJfOVViWmVDT3BVUm5lM0JPLWlDOHoyNVVfd3dEMUs3TjZBODh6SGdlQ2F3OW43RmZCdXlCQk8td3BHSGZzd3NpZThFXzVqZkVMQzRha29VZjc2aUJ0SmFFRU9YTG5RU0h3dVlka2t1cDBMdTdybw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
