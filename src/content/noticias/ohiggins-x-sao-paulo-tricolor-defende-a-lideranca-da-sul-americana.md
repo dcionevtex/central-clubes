@@ -1,0 +1,13 @@
+---
+title: "O’Higgins x São Paulo: Tricolor defende a liderança da Sul-Americana"
+description: "O’Higgins x São Paulo: Tricolor defende a liderança da Sul-Americana  Esporte News Mundo"
+pubDate: "2026-05-07T14:37:30.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxNMXNZbFZIMW92V1FiYmJYbGpRSHdUc2JLOGpNUU1uMmpZaEYyQ1ROOEhZY252TFFCRUZpSGFleF9jMFFtSXVocTJsc2NBV0wyM0NScWt0THA1VFk4cDlySzFfcEJIcUZjbDdldmsxLURMMnFHSFpCUWExcmZvY1Nidl81c3LSAYoBQVVfeXFMTkNqMnUySW1ZOFJPUjNfTWtSRHlmbEkzclNvYnR5NVVYdW9KQUxsRE5TcW0tM0NWX2JVSWVFS3N0RGhwN1VMblZJM2loV3N1dWR0Tmt2R0xGV1oweFRwaXNWbXVjSWJhNTRpbVdacGphaDRmU0Naek1LVEVSaWoxcmZMbG9oRkVJR1NR?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxNMXNZbFZIMW92V1FiYmJYbGpRSHdUc2JLOGpNUU1uMmpZaEYyQ1ROOEhZY252TFFCRUZpSGFleF9jMFFtSXVocTJsc2NBV0wyM0NScWt0THA1VFk4cDlySzFfcEJIcUZjbDdldmsxLURMMnFHSFpCUWExcmZvY1Nidl81c3LSAYoBQVVfeXFMTkNqMnUySW1ZOFJPUjNfTWtSRHlmbEkzclNvYnR5NVVYdW9KQUxsRE5TcW0tM0NWX2JVSWVFS3N0RGhwN1VMblZJM2loV3N1dWR0Tmt2R0xGV1oweFRwaXNWbXVjSWJhNTRpbVdacGphaDRmU0Naek1LVEVSaWoxcmZMbG9oRkVJR1NR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
