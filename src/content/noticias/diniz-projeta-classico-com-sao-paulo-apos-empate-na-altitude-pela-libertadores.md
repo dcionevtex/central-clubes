@@ -1,0 +1,13 @@
+---
+title: "Diniz projeta clássico com São Paulo após empate na altitude pela Libertadores"
+description: "Diniz projeta clássico com São Paulo após empate na altitude pela Libertadores  Rádio Itatiaia"
+pubDate: "2026-05-07T09:30:26.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMigAJBVV95cUxOU0N2UEMtc2FUMDc4eG5SVEZmQk1JV3RzRldUTGZLTk9kMUZjV19ndHRKTGJwb0tpbGllUXA2VGFlazl1Z0QyWmh4RTFhZWRJbHU4SDBsNHc4YjFmcWdmZmdWTmY0S0JZZnRrdThNa2d4N1paYjNfUk9fYVZGd0R4MWdHdG9teldHNlBrRjhXSTZHQkJMYURKM0I3R0hqNmpLZEVHVllfb1Nxa0JhRE1qU2dNQXU1SjlueGQ5MzY4VldOZzVpTDFkUjN1dE9XLW1lZ0NWQUllZGg0UDhDN0R5MUE3akdqYjF6aC1wSGpxNncyQmFOX0ZpYm1tQVdDN3RV?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAJBVV95cUxOU0N2UEMtc2FUMDc4eG5SVEZmQk1JV3RzRldUTGZLTk9kMUZjV19ndHRKTGJwb0tpbGllUXA2VGFlazl1Z0QyWmh4RTFhZWRJbHU4SDBsNHc4YjFmcWdmZmdWTmY0S0JZZnRrdThNa2d4N1paYjNfUk9fYVZGd0R4MWdHdG9teldHNlBrRjhXSTZHQkJMYURKM0I3R0hqNmpLZEVHVllfb1Nxa0JhRE1qU2dNQXU1SjlueGQ5MzY4VldOZzVpTDFkUjN1dE9XLW1lZ0NWQUllZGg0UDhDN0R5MUE3akdqYjF6aC1wSGpxNncyQmFOX0ZpYm1tQVdDN3RV?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

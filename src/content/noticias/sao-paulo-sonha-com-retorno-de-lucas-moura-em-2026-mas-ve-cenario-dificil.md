@@ -1,0 +1,13 @@
+---
+title: "São Paulo sonha com retorno de Lucas Moura em 2026, mas vê cenário difícil"
+description: "São Paulo sonha com retorno de Lucas Moura em 2026, mas vê cenário difícil  UOL"
+pubDate: "2026-05-07T08:32:26.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMiowJBVV95cUxNMTJ3RDlBWFRnbnZJYm1XTkdNYUYzTXFZbXFPOUlucWNOZzN1QVJFNExJRXFFbWpkak45VXZLQVJUM0hYWm1RRFB2ZU5XbllWSFBuX1V5WS1DSUNEOVlGTGdXOFB6NHpTcGtmSDB3NkdnWDBSRnVYM1gzTzB3dUwyLTR4Ym1tV1U0WmhlYW96SzNtcFNYeDZENWVQSGtNQ0tzVUJjOTN2N2tMMW85TUVLdTJLQncwMTh4b2wyUTlMZ0FtSGdZcVp1bm9XcUVjWnR0XzJ5OUVWU2lDNlJzWWRCOUdkV3JoNmlzZHdVUV8xZGk0YldMc2I2TXJvbFVJMzdQYzZiTGJNT1dubG5TTDA4MkZpOGM5VkhSUDA5T19tT0hsUTA?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowJBVV95cUxNMTJ3RDlBWFRnbnZJYm1XTkdNYUYzTXFZbXFPOUlucWNOZzN1QVJFNExJRXFFbWpkak45VXZLQVJUM0hYWm1RRFB2ZU5XbllWSFBuX1V5WS1DSUNEOVlGTGdXOFB6NHpTcGtmSDB3NkdnWDBSRnVYM1gzTzB3dUwyLTR4Ym1tV1U0WmhlYW96SzNtcFNYeDZENWVQSGtNQ0tzVUJjOTN2N2tMMW85TUVLdTJLQncwMTh4b2wyUTlMZ0FtSGdZcVp1bm9XcUVjWnR0XzJ5OUVWU2lDNlJzWWRCOUdkV3JoNmlzZHdVUV8xZGk0YldMc2I2TXJvbFVJMzdQYzZiTGJNT1dubG5TTDA4MkZpOGM5VkhSUDA5T19tT0hsUTA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

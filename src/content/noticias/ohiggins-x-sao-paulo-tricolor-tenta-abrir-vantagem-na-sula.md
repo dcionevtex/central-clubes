@@ -1,0 +1,13 @@
+---
+title: "O’Higgins x São Paulo: Tricolor tenta abrir vantagem na Sula"
+description: "O’Higgins x São Paulo: Tricolor tenta abrir vantagem na Sula  iG Esportes"
+pubDate: "2026-05-07T09:39:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxNakQ5bTBWSjZhWFBqNXNRTi1aX3ZjZUhhZ0wwUFZsQmhXX0U1VFdMY1dOMlh5Y1ZaaXRVNHNiaTlwWElXRWd6SXFxUGstQTNTY2xJQTZIQlFNQU43TnRsaFprTUxjS2RiTGZBR0RnZUdkNjNxTEtGMVQ3dEFNSFRieWFBbDlraTJjVnh4cHZ2VU0ydDBJS1BJeDdVWmYtUdIBowFBVV95cUxQMGVqZWZORE1XV09hVHd0UG5MZzIzZThZN2VkSEtlcW5QSlJfNlBsT0txeFNfM3dTTTFmd0lRWjdhRExmRWZneFcxamp0aWZQV1FydHkwQ3dwWDlIQ2gzU2RFaEJOclowanZzdU5hNjY3TC1zOTJ0TnNPaXpldWxRTDgxTDFJWUtxY29BbHprME5MbmtVZGRIZlRKdnJKcWZ0cUM0?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxNakQ5bTBWSjZhWFBqNXNRTi1aX3ZjZUhhZ0wwUFZsQmhXX0U1VFdMY1dOMlh5Y1ZaaXRVNHNiaTlwWElXRWd6SXFxUGstQTNTY2xJQTZIQlFNQU43TnRsaFprTUxjS2RiTGZBR0RnZUdkNjNxTEtGMVQ3dEFNSFRieWFBbDlraTJjVnh4cHZ2VU0ydDBJS1BJeDdVWmYtUdIBowFBVV95cUxQMGVqZWZORE1XV09hVHd0UG5MZzIzZThZN2VkSEtlcW5QSlJfNlBsT0txeFNfM3dTTTFmd0lRWjdhRExmRWZneFcxamp0aWZQV1FydHkwQ3dwWDlIQ2gzU2RFaEJOclowanZzdU5hNjY3TC1zOTJ0TnNPaXpldWxRTDgxTDFJWUtxY29BbHprME5MbmtVZGRIZlRKdnJKcWZ0cUM0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
