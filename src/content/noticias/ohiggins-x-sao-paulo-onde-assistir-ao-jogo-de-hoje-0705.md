@@ -1,0 +1,13 @@
+---
+title: "O’Higgins x São Paulo: onde assistir ao jogo de hoje, 07/05"
+description: "O’Higgins x São Paulo: onde assistir ao jogo de hoje, 07/05  iG Esportes"
+pubDate: "2026-05-07T04:04:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxNNnhfTzRsc1RCS0VONUNycmtLNzQ3QWxyN3kxMm9RY2dnM1ZsRml5cTR4UTV2Y29pOHZabUhjTlRkdHNoOE95S1pESXBDWUxoU3dRS2pUYkMzZ0NhSGNNMkZCYUpHSV9RM0FsME1zVjZjQW84S2pCUUlFRVcweUlTMnVpOFNvUFZZcWJWeV9jX0ZnYWI2c01HbmNwVdIBoAFBVV95cUxOb0k4ZjdSLWtBX0haQW1rTzdwQjBJSjRpZ1pkRk9VT3FzM0ZHcDFpM2lLM3R1YWFaNzZaU1Q5d3JGTkJvMWctWUwyLUtVUFJzcWZScFdFSkpNSnFjaVRQWk1sZXl1MS0tUXRhcko3RkdWTVFuOGNDM1d2LVVVTFA1dmhxYm8zUnlnbnFSbF9xeGg4Y0RHM2dJdUxsZnFUQUl4?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxNNnhfTzRsc1RCS0VONUNycmtLNzQ3QWxyN3kxMm9RY2dnM1ZsRml5cTR4UTV2Y29pOHZabUhjTlRkdHNoOE95S1pESXBDWUxoU3dRS2pUYkMzZ0NhSGNNMkZCYUpHSV9RM0FsME1zVjZjQW84S2pCUUlFRVcweUlTMnVpOFNvUFZZcWJWeV9jX0ZnYWI2c01HbmNwVdIBoAFBVV95cUxOb0k4ZjdSLWtBX0haQW1rTzdwQjBJSjRpZ1pkRk9VT3FzM0ZHcDFpM2lLM3R1YWFaNzZaU1Q5d3JGTkJvMWctWUwyLUtVUFJzcWZScFdFSkpNSnFjaVRQWk1sZXl1MS0tUXRhcko3RkdWTVFuOGNDM1d2LVVVTFA1dmhxYm8zUnlnbnFSbF9xeGg4Y0RHM2dJdUxsZnFUQUl4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
