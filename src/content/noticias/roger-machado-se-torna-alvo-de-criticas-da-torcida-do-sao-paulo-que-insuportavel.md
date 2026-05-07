@@ -1,0 +1,13 @@
+---
+title: "Roger Machado se torna alvo de críticas da torcida do São Paulo: “Que insuportável”"
+description: "Roger Machado se torna alvo de críticas da torcida do São Paulo: “Que insuportável”  Bolavip Brasil"
+pubDate: "2026-05-07T23:00:07.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxPT1d2SEY3TVFTRGM3MW16TVJSeTcza1FHU1BvUW1JN1REczNOYnNMRlExMHZob3NJVDV3V21fUkNaNFJPMTF0SFpkZTZ3cExXZ2pmWEJ6WXlYejd5bmdfNXBqamlDc1dPa1BJVnR2RXhvY2FQdXhpa2NhTUZEYjAtZHF1T00wOXgwTVlNSTJkNHJRYVhBLTBnN2tVSTfSAaIBQVVfeXFMT0pRSDFhRmpsQ2E4a2Zfam8xQmNwdjdTNHluUElkN0VZeU1hNjZIbjVsYWR2cXpjbUdNc0RzbzBmVWNxUUlCVEp3Z3luMGN0cjQzU0lIX3B1dnppbnpPRlV5alNlNFlKZ3NrbUJ0WkxtcjR5V0tXdDJZQlNpeURwRDBmcFo4SDJRTF9hVmhWSW5MTVZqWFdjZ0xvTVJXNUdjVkZR?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxPT1d2SEY3TVFTRGM3MW16TVJSeTcza1FHU1BvUW1JN1REczNOYnNMRlExMHZob3NJVDV3V21fUkNaNFJPMTF0SFpkZTZ3cExXZ2pmWEJ6WXlYejd5bmdfNXBqamlDc1dPa1BJVnR2RXhvY2FQdXhpa2NhTUZEYjAtZHF1T00wOXgwTVlNSTJkNHJRYVhBLTBnN2tVSTfSAaIBQVVfeXFMT0pRSDFhRmpsQ2E4a2Zfam8xQmNwdjdTNHluUElkN0VZeU1hNjZIbjVsYWR2cXpjbUdNc0RzbzBmVWNxUUlCVEp3Z3luMGN0cjQzU0lIX3B1dnppbnpPRlV5alNlNFlKZ3NrbUJ0WkxtcjR5V0tXdDJZQlNpeURwRDBmcFo4SDJRTF9hVmhWSW5MTVZqWFdjZ0xvTVJXNUdjVkZR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

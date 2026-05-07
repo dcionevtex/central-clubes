@@ -1,0 +1,13 @@
+---
+title: "O’Higgins x São Paulo: veja fotos do jogo da 4ª rodada da Sul-Americana"
+description: "O’Higgins x São Paulo: veja fotos do jogo da 4ª rodada da Sul-Americana  Gazeta Esportiva"
+pubDate: "2026-05-07T22:57:08.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxOYXZ6c1E3REluenBIeVJNYjliZzk2cjVNZHhkZlgwaXU1Ulp4MTJ6RkJQRWZJNUNINWN3VWQ0OHZPdFl6cGdvaHd0SXd1S2ZiTU03WDZ2OEx2NzJXSFJ0ZHNLUF9ER0Rxc0l6dlJhUFJsMnBNWEZvMkVMdGFfenppRXROZnB4Z2dBMjZuX1BieFdPeGNRd2lvUk1TdWJxSUtTekHSAaIBQVVfeXFMTmF2enNRN0RJbnpwSHlSTWI5Ymc5NnI1TWR4ZGZYMGl1NVJaeDEyekZCUEVmSTVDSDVjd1VkNDh2T3RZenBnb2h3dEl3dUtmYk1NN1g2djhMdjcyV0hSdGRzS1BfREdEcXNJenZSYVBSbDJwTVhGbzJFTHRhX3p6aUV0TmZweGdnQTI2bl9QYnhXT3hjUXdpb1JNU3VicUlLU3pB?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxOYXZ6c1E3REluenBIeVJNYjliZzk2cjVNZHhkZlgwaXU1Ulp4MTJ6RkJQRWZJNUNINWN3VWQ0OHZPdFl6cGdvaHd0SXd1S2ZiTU03WDZ2OEx2NzJXSFJ0ZHNLUF9ER0Rxc0l6dlJhUFJsMnBNWEZvMkVMdGFfenppRXROZnB4Z2dBMjZuX1BieFdPeGNRd2lvUk1TdWJxSUtTekHSAaIBQVVfeXFMTmF2enNRN0RJbnpwSHlSTWI5Ymc5NnI1TWR4ZGZYMGl1NVJaeDEyekZCUEVmSTVDSDVjd1VkNDh2T3RZenBnb2h3dEl3dUtmYk1NN1g2djhMdjcyV0hSdGRzS1BfREdEcXNJenZSYVBSbDJwTVhGbzJFTHRhX3p6aUV0TmZweGdnQTI2bl9QYnhXT3hjUXdpb1JNU3VicUlLU3pB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
