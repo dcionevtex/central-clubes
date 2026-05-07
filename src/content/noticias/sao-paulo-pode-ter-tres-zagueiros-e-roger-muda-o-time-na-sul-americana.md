@@ -1,0 +1,13 @@
+---
+title: "São Paulo pode ter três zagueiros e Roger muda o time na Sul-Americana"
+description: "São Paulo pode ter três zagueiros e Roger muda o time na Sul-Americana  Bolavip Brasil"
+pubDate: "2026-05-07T11:59:03.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxOYUNNM014SkNzaHdXV1pfWkVia0Z1WWVIQWFUNkM1SHo0ajJMUWdmU05mekd4WjdKdndwOHU5NmE5LUFDZ21YU3ByOFBhX0tqdW82R3hndlkwVDJzbXd3YVZvUFVHY05xRWZlTnFoTlFkUEdMQmpJRWlwZV9oTl9OZWFQcGxtcGNuNGxZMW8xd3k4akRCdnV1MlJ0VnNuby05dXlVX2Jn0gGrAUFVX3lxTE1YSUpuOHpOZkNIMkRyMVlJUWZ2U3FBNXVzTjlBemNBQlphWWxwc1J3d1ZIVjBuQ0dsUHZnSEhfbDRkYXpKbEdra21HX3NGMDhuVFRMMnA1cmt2MFIyZkUwNjU4akdaN0dNS0pfTlVWeFVyMkdibFowTzZXQ2h3VjROQnptLXJTVG56UmJPYklEMG1OWUhXcWdmZUNBVHZYTlhmQ0pXME5BQ19Pcw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxOYUNNM014SkNzaHdXV1pfWkVia0Z1WWVIQWFUNkM1SHo0ajJMUWdmU05mekd4WjdKdndwOHU5NmE5LUFDZ21YU3ByOFBhX0tqdW82R3hndlkwVDJzbXd3YVZvUFVHY05xRWZlTnFoTlFkUEdMQmpJRWlwZV9oTl9OZWFQcGxtcGNuNGxZMW8xd3k4akRCdnV1MlJ0VnNuby05dXlVX2Jn0gGrAUFVX3lxTE1YSUpuOHpOZkNIMkRyMVlJUWZ2U3FBNXVzTjlBemNBQlphWWxwc1J3d1ZIVjBuQ0dsUHZnSEhfbDRkYXpKbEdra21HX3NGMDhuVFRMMnA1cmt2MFIyZkUwNjU4akdaN0dNS0pfTlVWeFVyMkdibFowTzZXQ2h3VjROQnptLXJTVG56UmJPYklEMG1OWUhXcWdmZUNBVHZYTlhmQ0pXME5BQ19Pcw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
