@@ -1,0 +1,13 @@
+---
+title: "O'Higgins x São Paulo: veja escalações do duelo pela Sul-Americana"
+description: "O'Higgins x São Paulo: veja escalações do duelo pela Sul-Americana  Rádio Itatiaia"
+pubDate: "2026-05-07T20:50:10.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMikAJBVV95cUxPZk1DWkUxQjhoOElsbzR5N0hMZWJOMDY3TTZ4SmhNMUdyZ21vTVpQT3N0aXBoNW1BWWpMZEoxaVpmbnR0RkUxM0QyckFlS1VUMGZnSW1DcXJfWms2R3dvdXA0VkdrWWxNR09rS0laVHRlZHgxMk10WWhLWTVETUNRX3kwbENSRF9YQTVoMk1LZ0VKY0xHN2c2SElwa0RFYVQ0MlhKcmNoQjFVNFNJUlFNRXhvR3owalRQWFNVUld5TXZFTC1vQWRqenNOY0hBeXRGWXE0SU9YTzJGWmt4V2lUMHhKd18wZ05vdkVZdjY1dVN2ckpkR2Zyb3dPRUpsbHp6Y2UzUUgxckNIZ2dCYVJIaw?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikAJBVV95cUxPZk1DWkUxQjhoOElsbzR5N0hMZWJOMDY3TTZ4SmhNMUdyZ21vTVpQT3N0aXBoNW1BWWpMZEoxaVpmbnR0RkUxM0QyckFlS1VUMGZnSW1DcXJfWms2R3dvdXA0VkdrWWxNR09rS0laVHRlZHgxMk10WWhLWTVETUNRX3kwbENSRF9YQTVoMk1LZ0VKY0xHN2c2SElwa0RFYVQ0MlhKcmNoQjFVNFNJUlFNRXhvR3owalRQWFNVUld5TXZFTC1vQWRqenNOY0hBeXRGWXE0SU9YTzJGWmt4V2lUMHhKd18wZ05vdkVZdjY1dVN2ckpkR2Zyb3dPRUpsbHp6Y2UzUUgxckNIZ2dCYVJIaw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
