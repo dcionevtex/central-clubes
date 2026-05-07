@@ -1,0 +1,13 @@
+---
+title: "São Paulo luta para manter tabu de 18 anos"
+description: "São Paulo luta para manter tabu de 18 anos  ABCD Jornal"
+pubDate: "2026-05-07T14:18:39.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQTjZUZDI0NXpPaTJnNkFxRUhybngtYktQRmxORWVmdzlOUldZRXhsbm5ZdGp2VW9QNGM0YmFvU2FUbkZfdjZzUmREc1pUdFkyYkZqZVN3N0gyd20zWlZWNmFIUi1QOFg3MmJoVEszNndFZ1dXeERJbmFSeUJVbjV4UHZoRGowMWdVUk9majQxbkhHT3dpUURsekJ2WlY1ejlyLVRKbdIBpAFBVV95cUxQTjZUZDI0NXpPaTJnNkFxRUhybngtYktQRmxORWVmdzlOUldZRXhsbm5ZdGp2VW9QNGM0YmFvU2FUbkZfdjZzUmREc1pUdFkyYkZqZVN3N0gyd20zWlZWNmFIUi1QOFg3MmJoVEszNndFZ1dXeERJbmFSeUJVbjV4UHZoRGowMWdVUk9majQxbkhHT3dpUURsekJ2WlY1ejlyLVRKbQ?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxQTjZUZDI0NXpPaTJnNkFxRUhybngtYktQRmxORWVmdzlOUldZRXhsbm5ZdGp2VW9QNGM0YmFvU2FUbkZfdjZzUmREc1pUdFkyYkZqZVN3N0gyd20zWlZWNmFIUi1QOFg3MmJoVEszNndFZ1dXeERJbmFSeUJVbjV4UHZoRGowMWdVUk9majQxbkhHT3dpUURsekJ2WlY1ejlyLVRKbdIBpAFBVV95cUxQTjZUZDI0NXpPaTJnNkFxRUhybngtYktQRmxORWVmdzlOUldZRXhsbm5ZdGp2VW9QNGM0YmFvU2FUbkZfdjZzUmREc1pUdFkyYkZqZVN3N0gyd20zWlZWNmFIUi1QOFg3MmJoVEszNndFZ1dXeERJbmFSeUJVbjV4UHZoRGowMWdVUk9majQxbkhHT3dpUURsekJ2WlY1ejlyLVRKbQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
