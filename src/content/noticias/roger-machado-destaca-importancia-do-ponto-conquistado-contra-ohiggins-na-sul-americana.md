@@ -1,0 +1,13 @@
+---
+title: "Roger Machado destaca importância do ponto conquistado contra O'Higgins na Sul-Americana"
+description: "Roger Machado destaca importância do ponto conquistado contra O'Higgins na Sul-Americana  Terra"
+pubDate: "2026-05-08T04:57:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiiAJBVV95cUxPNEs0YmN4RzJELVFoTGJoaTRYdU40ajNaLTl6TTVLdzBUMTBaLTNSYXJhS1BZcUNzbFFibURlR0pNeXNObmNfQkV3Z2RIOGNWSm5oMXJXc0hYTk9QRFFvR1c3UmtkdGFPaVlsZmN3emVXdlFoM1B5TG1jX29PNEY3M3FBN0w1c0hvcjhNalBKZWRZcFVuUjFJWWJKb0ljUTRpUFhMVHExTHQyVmtEZkduVjRWdzFibXY3aWIzSjRXdWZiUVNOT2p6em8zcHZWX3B3NVh1WFBLY3U0SVJlaHpWQjZfZENyeGdUNjRwSEtkTk5XUFNHQ1hFS1VBcE9NMlVMTjltMHBJZE4?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAJBVV95cUxPNEs0YmN4RzJELVFoTGJoaTRYdU40ajNaLTl6TTVLdzBUMTBaLTNSYXJhS1BZcUNzbFFibURlR0pNeXNObmNfQkV3Z2RIOGNWSm5oMXJXc0hYTk9QRFFvR1c3UmtkdGFPaVlsZmN3emVXdlFoM1B5TG1jX29PNEY3M3FBN0w1c0hvcjhNalBKZWRZcFVuUjFJWWJKb0ljUTRpUFhMVHExTHQyVmtEZkduVjRWdzFibXY3aWIzSjRXdWZiUVNOT2p6em8zcHZWX3B3NVh1WFBLY3U0SVJlaHpWQjZfZENyeGdUNjRwSEtkTk5XUFNHQ1hFS1VBcE9NMlVMTjltMHBJZE4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
