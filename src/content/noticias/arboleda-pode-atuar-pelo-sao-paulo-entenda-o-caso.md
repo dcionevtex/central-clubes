@@ -1,0 +1,13 @@
+---
+title: "Arboleda pode atuar pelo São Paulo? Entenda o caso"
+description: "Arboleda pode atuar pelo São Paulo? Entenda o caso  Portal Hortolândia"
+pubDate: "2026-05-08T18:59:11.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMie0FVX3lxTE1LdnZpVzYybGVCdVZ3YWI5M0FRbjY1MHh0LS1fYnVaNUUxTlplU3JlekJ3TElRMURoS2R6UWJwUktsY2s2SXZoR00xdEpHZWFLNm1kN2ptT0NHYjZyR0xyNnNIbUtGWEFHMTkwZmtocnVheTEwcFZKQmh3RdIBe0FVX3lxTE1LdnZpVzYybGVCdVZ3YWI5M0FRbjY1MHh0LS1fYnVaNUUxTlplU3JlekJ3TElRMURoS2R6UWJwUktsY2s2SXZoR00xdEpHZWFLNm1kN2ptT0NHYjZyR0xyNnNIbUtGWEFHMTkwZmtocnVheTEwcFZKQmh3RQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMie0FVX3lxTE1LdnZpVzYybGVCdVZ3YWI5M0FRbjY1MHh0LS1fYnVaNUUxTlplU3JlekJ3TElRMURoS2R6UWJwUktsY2s2SXZoR00xdEpHZWFLNm1kN2ptT0NHYjZyR0xyNnNIbUtGWEFHMTkwZmtocnVheTEwcFZKQmh3RdIBe0FVX3lxTE1LdnZpVzYybGVCdVZ3YWI5M0FRbjY1MHh0LS1fYnVaNUUxTlplU3JlekJ3TElRMURoS2R6UWJwUktsY2s2SXZoR00xdEpHZWFLNm1kN2ptT0NHYjZyR0xyNnNIbUtGWEFHMTkwZmtocnVheTEwcFZKQmh3RQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

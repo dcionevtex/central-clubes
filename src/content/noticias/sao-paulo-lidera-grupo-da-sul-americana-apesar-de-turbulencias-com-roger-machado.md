@@ -1,0 +1,13 @@
+---
+title: "São Paulo lidera grupo da Sul-Americana apesar de turbulências com Roger Machado"
+description: "São Paulo lidera grupo da Sul-Americana apesar de turbulências com Roger Machado  Terra"
+pubDate: "2026-05-08T10:36:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi_wFBVV95cUxPTzg5SHdqRWJyNWpTcGp5dUk2UGplaFJCS1pDX3FZYVB0dkVONFo1bjdFNHljcUh2V21XNHYzVGM3elE5dHhEdUpaT0lxOEFCTzNTRzhWMlFGNDRPbjNvNnhSMlg2OUpXT0VqcUNxVzlLallXLU9JN0tPMkNYd25MMWRmV1NBT1VGU1RGazlOMzVMaF9OU0h5dGhDWFMyOGxTOTJleFdpZVFLWWd5RjAzVy1Bb1FLU2k4VExHT2NQSWUyMTlhUUU4eFp0ckh0VTVlX1h4bkxkVUJ1d0hlZmVnaEstdTVqcVNydEtoNWhxNExCTGVqZ2RrLVFnenBjSkU?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_wFBVV95cUxPTzg5SHdqRWJyNWpTcGp5dUk2UGplaFJCS1pDX3FZYVB0dkVONFo1bjdFNHljcUh2V21XNHYzVGM3elE5dHhEdUpaT0lxOEFCTzNTRzhWMlFGNDRPbjNvNnhSMlg2OUpXT0VqcUNxVzlLallXLU9JN0tPMkNYd25MMWRmV1NBT1VGU1RGazlOMzVMaF9OU0h5dGhDWFMyOGxTOTJleFdpZVFLWWd5RjAzVy1Bb1FLU2k4VExHT2NQSWUyMTlhUUU4eFp0ckh0VTVlX1h4bkxkVUJ1d0hlZmVnaEstdTVqcVNydEtoNWhxNExCTGVqZ2RrLVFnenBjSkU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
