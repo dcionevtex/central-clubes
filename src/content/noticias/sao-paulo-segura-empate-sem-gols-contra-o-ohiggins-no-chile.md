@@ -1,0 +1,13 @@
+---
+title: "São Paulo segura empate sem gols contra o O'Higgins no Chile"
+description: "São Paulo segura empate sem gols contra o O'Higgins no Chile  Campo Grande News"
+pubDate: "2026-05-08T00:17:00.000Z"
+source: "Campo Grande News"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxPWDJPLTRIdDhlamloQ0hreHFBVGRzWmQ1U19JNEYxS0FTc2l4MDRmLXBLQXRNSUF1UTZzQTdYN0FkekxlLWRObTIxakkwRjk5THprM3RZdUdaZG8taXB0dUlyUS1rS2JORjhwS3VEWXhvVlUtQkYwQThROHAzcU01c042VzJkUzFWNUNxYjQ2UE1hQXE3V1RnaVJ0QnVIVllhZDMyMjNB0gGmAUFVX3lxTE9YMk8tNEh0OGVqaWhDSGt4cUFUZHNaZDVTX0k0RjFLQVNzaXgwNGYtcEtBdE1JQXVRNnNBN1g3QWR6TGUtZE5tMjFqSTBGOTlMemszdFl1R1pkby1pcHR1SXJRLWtLYk5GOHBLdURZeG9WVS1CRjBBOFE4cDNxTTVzTjZXMmRTMVY1Q3FiNDZQTWFBcTdXVGdpUnRCdUhWWWFkMzIyM0E?oc=5"
+---
+
+### Fonte Original: Campo Grande News
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxPWDJPLTRIdDhlamloQ0hreHFBVGRzWmQ1U19JNEYxS0FTc2l4MDRmLXBLQXRNSUF1UTZzQTdYN0FkekxlLWRObTIxakkwRjk5THprM3RZdUdaZG8taXB0dUlyUS1rS2JORjhwS3VEWXhvVlUtQkYwQThROHAzcU01c042VzJkUzFWNUNxYjQ2UE1hQXE3V1RnaVJ0QnVIVllhZDMyMjNB0gGmAUFVX3lxTE9YMk8tNEh0OGVqaWhDSGt4cUFUZHNaZDVTX0k0RjFLQVNzaXgwNGYtcEtBdE1JQXVRNnNBN1g3QWR6TGUtZE5tMjFqSTBGOTlMemszdFl1R1pkby1pcHR1SXJRLWtLYk5GOHBLdURZeG9WVS1CRjBBOFE4cDNxTTVzTjZXMmRTMVY1Q3FiNDZQTWFBcTdXVGdpUnRCdUhWWWFkMzIyM0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

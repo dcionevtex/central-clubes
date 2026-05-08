@@ -1,0 +1,13 @@
+---
+title: "São Paulo empata com O’Higgins e defende liderança na Sul-Americana"
+description: "São Paulo empata com O’Higgins e defende liderança na Sul-Americana  Esporte News Mundo"
+pubDate: "2026-05-08T02:57:41.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiiwFBVV95cUxPX28yOVlKcGdidmRpMnB4WmJKNmFsbEpvZ1diT0pBMWc2UHR3QzJvTmtFRE54alNUa0luMV9Oa05pNTJ4amwyTlhhTGtzS1JscDJ0LTFXbldMU2c2emYwd3VlQ2ZKVV9BMGlOTEo4b0dGMTdleWVjR0lYdFM0VjJsVGhxOFVVcmE1cHk00gGQAUFVX3lxTE1OcWQyWDlLeUtpQ2w3SGlqMEw2MHY1V0lMQWVPeXBEb1FWOVF1SUFsM3NyZ2FkZ1U0NjNrd1hTSEcwZm5CVThhLVVCaE9jUEhxSF9nY09xNXFDNzA0ZDg0dlI1VHp0ZWRyNDRlbGdBd0k2N1VSbC1leWY3alZKY2x6MEYxREFIQVZyUEc4NEM1aQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPX28yOVlKcGdidmRpMnB4WmJKNmFsbEpvZ1diT0pBMWc2UHR3QzJvTmtFRE54alNUa0luMV9Oa05pNTJ4amwyTlhhTGtzS1JscDJ0LTFXbldMU2c2emYwd3VlQ2ZKVV9BMGlOTEo4b0dGMTdleWVjR0lYdFM0VjJsVGhxOFVVcmE1cHk00gGQAUFVX3lxTE1OcWQyWDlLeUtpQ2w3SGlqMEw2MHY1V0lMQWVPeXBEb1FWOVF1SUFsM3NyZ2FkZ1U0NjNrd1hTSEcwZm5CVThhLVVCaE9jUEhxSF9nY09xNXFDNzA0ZDg0dlI1VHp0ZWRyNDRlbGdBd0k2N1VSbC1leWY3alZKY2x6MEYxREFIQVZyUEc4NEM1aQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
