@@ -1,0 +1,13 @@
+---
+title: "São Paulo segura pressão do O’Higgins e mantém liderança do grupo na Sul-Americana"
+description: "São Paulo segura pressão do O’Higgins e mantém liderança do grupo na Sul-Americana  Jogada 10"
+pubDate: "2026-05-08T01:18:34.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd2lpZmRSYURVaVFPUVVsM3E0cktsMkJvbTlPUWFCWDZ3Y0RaejQ1VUs3MmdEU1NvUGI5SlNqejZpMXhEQlRYbFZxNW5CMTRZS0RnbEEwUXhZazczaTh2Nk9ISmdHb1ZzbEVrZVNjbS1QZFhhVWIwX18zOGVXUDZYbHZCU1YtOFRHbDA3d003ZFBGZHBhcTRYUlktNTlpZmNZQUZXbFJaTGotQdIBrwFBVV95cUxNSkFvVV9wTFZXMzE2amhRb3FfQVFEWjNmQWZnand5MHVjWmNkOGlKMklWRlgxSkZpVzVhYTdLVWdhbVZSOUlfSVZNVUQ1OTJleXJpZll6cGZad1RXN0dfRFBMblV0SlZ4T1VtN1RSUlpfUHBTNXVGYjhnd1c1dlI3SXlrc2szaVowZzRNeGxvcGUtVEpESzBhdjFDZ1FLZGxkNjhWdm1veHQ2cndwUjVz?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNd2lpZmRSYURVaVFPUVVsM3E0cktsMkJvbTlPUWFCWDZ3Y0RaejQ1VUs3MmdEU1NvUGI5SlNqejZpMXhEQlRYbFZxNW5CMTRZS0RnbEEwUXhZazczaTh2Nk9ISmdHb1ZzbEVrZVNjbS1QZFhhVWIwX18zOGVXUDZYbHZCU1YtOFRHbDA3d003ZFBGZHBhcTRYUlktNTlpZmNZQUZXbFJaTGotQdIBrwFBVV95cUxNSkFvVV9wTFZXMzE2amhRb3FfQVFEWjNmQWZnand5MHVjWmNkOGlKMklWRlgxSkZpVzVhYTdLVWdhbVZSOUlfSVZNVUQ1OTJleXJpZll6cGZad1RXN0dfRFBMblV0SlZ4T1VtN1RSUlpfUHBTNXVGYjhnd1c1dlI3SXlrc2szaVowZzRNeGxvcGUtVEpESzBhdjFDZ1FLZGxkNjhWdm1veHQ2cndwUjVz?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

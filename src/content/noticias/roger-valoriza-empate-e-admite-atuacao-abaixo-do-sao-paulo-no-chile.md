@@ -1,0 +1,13 @@
+---
+title: "Roger valoriza empate e admite atuação abaixo do São Paulo no Chile"
+description: "Roger valoriza empate e admite atuação abaixo do São Paulo no Chile  Jogada 10"
+pubDate: "2026-05-08T01:45:17.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxOMmc3OVlBbUxUX0I1d0kzb0IzYm1FQjd2blBvUFZpZlRoSkNPNFRRUkFWc21SMnlsZWk5TDVMVVJVUGhMeDJkT2VjWHdwVmJ2Nl9Qc0pjWHlSX1VPMVo2LW9CSmR4VzJZOHVmclNLYm9hS2kwVS1HSFhFcXl0MWJjRHZ1Z0RkMjZBU2JONHNNZkpJUzlSRVZR0gGcAUFVX3lxTE1uQzE2eTlvZVN4ZUpWaS1DV1pydjlzalFWanpmTGRDa3d3bjkyVnVXX2dNZ2lRUXFKak9ET09NLTl1Wm5aUlJfOVBiUU5mODRBa0ZwMHE4UGFzVkFiYjJlZUxzRFZLV2kxSjB1bnFVYlpTTU5CZ2tqZmNrdDMxaHNHamEzMU1sRFhHQW5UdU5uRTdrMnlydmg5LU9tYg?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxOMmc3OVlBbUxUX0I1d0kzb0IzYm1FQjd2blBvUFZpZlRoSkNPNFRRUkFWc21SMnlsZWk5TDVMVVJVUGhMeDJkT2VjWHdwVmJ2Nl9Qc0pjWHlSX1VPMVo2LW9CSmR4VzJZOHVmclNLYm9hS2kwVS1HSFhFcXl0MWJjRHZ1Z0RkMjZBU2JONHNNZkpJUzlSRVZR0gGcAUFVX3lxTE1uQzE2eTlvZVN4ZUpWaS1DV1pydjlzalFWanpmTGRDa3d3bjkyVnVXX2dNZ2lRUXFKak9ET09NLTl1Wm5aUlJfOVBiUU5mODRBa0ZwMHE4UGFzVkFiYjJlZUxzRFZLV2kxSjB1bnFVYlpTTU5CZ2tqZmNrdDMxaHNHamEzMU1sRFhHQW5UdU5uRTdrMnlydmg5LU9tYg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

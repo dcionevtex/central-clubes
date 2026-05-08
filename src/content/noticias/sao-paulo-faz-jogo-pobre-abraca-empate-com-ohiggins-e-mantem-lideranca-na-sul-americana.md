@@ -1,0 +1,13 @@
+---
+title: "São Paulo faz jogo pobre, abraça empate com O’Higgins e mantém liderança na Sul-Americana"
+description: "São Paulo faz jogo pobre, abraça empate com O’Higgins e mantém liderança na Sul-Americana  Estadão"
+pubDate: "2026-05-07T23:53:00.000Z"
+source: "Estadão"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxOM29razN4ZkJDeWt3ckVka0wwZl9tdzVWaVFwSUNWcXNMNGxMd1JackJLZFNrZUZ1MHhQNndKczU3TExTYkY4QzZQd3RHTE1aNTZvb29qbTdQbTZFd1JPN2plUEpGakR2Y1pKWGlKOVlEc01sdXF0ZEZ2Q3M4bXQtUnVqTUhCbkh0VGtaOGJrQkNDd0dMTF9XY2pqZTdpazFCUTM40gGoAUFVX3lxTFBCaVlIdHVGeEx1ckplYkRDYVEzdlEyS0JueUpzdklWRHhQSDlvRGlYUlhtQ0FRc1JoUWlYQ1dHTW9YRmZKUnVHekRVdUYxNVlDTVp5VVh0U0tuejI3a1VqdXB2eDZhNU1KS3NDSjNiaXF3WXRQV3NFY1hURXJlWXR4emI4bWdpemh4ZGlmT3I0d3lEbXcxNGtid0hNdEhzb0NoTkxSbVB2UQ?oc=5"
+---
+
+### Fonte Original: Estadão
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxOM29razN4ZkJDeWt3ckVka0wwZl9tdzVWaVFwSUNWcXNMNGxMd1JackJLZFNrZUZ1MHhQNndKczU3TExTYkY4QzZQd3RHTE1aNTZvb29qbTdQbTZFd1JPN2plUEpGakR2Y1pKWGlKOVlEc01sdXF0ZEZ2Q3M4bXQtUnVqTUhCbkh0VGtaOGJrQkNDd0dMTF9XY2pqZTdpazFCUTM40gGoAUFVX3lxTFBCaVlIdHVGeEx1ckplYkRDYVEzdlEyS0JueUpzdklWRHhQSDlvRGlYUlhtQ0FRc1JoUWlYQ1dHTW9YRmZKUnVHekRVdUYxNVlDTVp5VVh0U0tuejI3a1VqdXB2eDZhNU1KS3NDSjNiaXF3WXRQV3NFY1hURXJlWXR4emI4bWdpemh4ZGlmT3I0d3lEbXcxNGtid0hNdEhzb0NoTkxSbVB2UQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

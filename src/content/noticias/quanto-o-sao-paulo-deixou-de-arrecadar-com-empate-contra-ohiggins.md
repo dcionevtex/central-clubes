@@ -1,0 +1,13 @@
+---
+title: "Quanto o São Paulo deixou de arrecadar com empate contra O'Higgins"
+description: "Quanto o São Paulo deixou de arrecadar com empate contra O'Higgins  Rádio Itatiaia"
+pubDate: "2026-05-08T00:13:07.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMikgJBVV95cUxNT0xfekdnS3lxMm9hTnJWVTVlNFpoNENsbUN3X05ma3hwa3NKZE9ERDdRTks2VmRIQmdmdm9lN09kRXNRZTJTdUgxU21CaTJiTTRLZ0pCeF9ucXR5YVQ0dE9US3FNWGFwWWNMM2t3WURNYjRjQVVBQ1FFeTQ2dnBxSVRlVmZqd1czdVhsTzNVajdpNXVoazZJOFRrbGVoRHRJd1RhQmRPRG5EV1NMbjBDRGI0Wnd5ZTBpd0QyVjYwNU9oMHl0eTlWbDFHeXZwYUMyNnNNeFFVbF9FWS1tWVFhQWpSQ0N2bjRaeWNOOWg5VjNVN1BXYkpkNjM2SGsxaVZZOVdZZEtkMkJPVGFRcVR5WDd3?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgJBVV95cUxNT0xfekdnS3lxMm9hTnJWVTVlNFpoNENsbUN3X05ma3hwa3NKZE9ERDdRTks2VmRIQmdmdm9lN09kRXNRZTJTdUgxU21CaTJiTTRLZ0pCeF9ucXR5YVQ0dE9US3FNWGFwWWNMM2t3WURNYjRjQVVBQ1FFeTQ2dnBxSVRlVmZqd1czdVhsTzNVajdpNXVoazZJOFRrbGVoRHRJd1RhQmRPRG5EV1NMbjBDRGI0Wnd5ZTBpd0QyVjYwNU9oMHl0eTlWbDFHeXZwYUMyNnNNeFFVbF9FWS1tWVFhQWpSQ0N2bjRaeWNOOWg5VjNVN1BXYkpkNjM2SGsxaVZZOVdZZEtkMkJPVGFRcVR5WDd3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

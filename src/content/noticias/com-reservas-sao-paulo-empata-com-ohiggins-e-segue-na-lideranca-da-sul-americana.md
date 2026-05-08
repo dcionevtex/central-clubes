@@ -1,0 +1,13 @@
+---
+title: "Com reservas, São Paulo empata com O’Higgins e segue na liderança da Sul-Americana"
+description: "Com reservas, São Paulo empata com O’Higgins e segue na liderança da Sul-Americana  Gazeta Esportiva"
+pubDate: "2026-05-07T23:53:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxNLUItYUY3RWRuZHRkREdRNm1aaHFjSkJxZFJVT0hfeERKb3hzUzhJMEdnYlI0TzNEV1VTenpOcmdpYzVfV2V6c0FSR1lmTERVS0oyOTVCY2o2ZzRqQTNqYUtTTU5qUGt1Q2RHMjhXS3dhWWtVcGVhU2dCVlpFeWpld0NLUE84UXZpbmlBN3loU09NNHdDMjlBT2Z4bWZLdlp00gGmAUFVX3lxTE5zcndqZ3NCOG9GcDlIV3ZQRDV2b3lYd1lJei1QS2tSU3FsS2hiN1dpRkpPenpiOWFVLWVDRUh0SnZBc2JjZjc3ZHBrNHJ3Z1hXUTBfY2VxV24zSHZwcWZGLUg2cnBCcVVmWEQ0blZhMVQ4ZHc4LTVTMDBzUjhuVVlTWkd3MzFwYzlROVhVQm15SHhta05YRGlhc1RvaF8tZlVhaHVGWmc?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxNLUItYUY3RWRuZHRkREdRNm1aaHFjSkJxZFJVT0hfeERKb3hzUzhJMEdnYlI0TzNEV1VTenpOcmdpYzVfV2V6c0FSR1lmTERVS0oyOTVCY2o2ZzRqQTNqYUtTTU5qUGt1Q2RHMjhXS3dhWWtVcGVhU2dCVlpFeWpld0NLUE84UXZpbmlBN3loU09NNHdDMjlBT2Z4bWZLdlp00gGmAUFVX3lxTE5zcndqZ3NCOG9GcDlIV3ZQRDV2b3lYd1lJei1QS2tSU3FsS2hiN1dpRkpPenpiOWFVLWVDRUh0SnZBc2JjZjc3ZHBrNHJ3Z1hXUTBfY2VxV24zSHZwcWZGLUg2cnBCcVVmWEQ0blZhMVQ4ZHc4LTVTMDBzUjhuVVlTWkd3MzFwYzlROVhVQm15SHhta05YRGlhc1RvaF8tZlVhaHVGWmc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

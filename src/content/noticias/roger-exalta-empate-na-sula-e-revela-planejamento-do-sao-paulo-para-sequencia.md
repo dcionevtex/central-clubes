@@ -1,0 +1,13 @@
+---
+title: "Roger exalta empate na 'Sula' e revela planejamento do São Paulo para sequência"
+description: "Roger exalta empate na 'Sula' e revela planejamento do São Paulo para sequência  Rádio Itatiaia"
+pubDate: "2026-05-08T01:07:42.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiogJBVV95cUxPMld5NWdYcWV3QkxFVjA3dHNlVnBYTTlfaXZhOE11MWk3SkN3cWNMX0xPLXZlbGIxX29WczVnVnphcFh1Rnc2TjNOSUx6eFl3LVZ5VDJEUEU0N0UxRG9yd1hsQ3FOcGNOalpwSnY5YnlSM2ptdWdFSklleENCWUZtN1B0MTU5bGMwQ3lCR19FT1VLWFYtRU5DUlI1b2xoeE1yblZLNzlobEhobWJ6RUhpeXVaamt5NDdCTFk0RE1DVEh0OVAwUFBSc0FYZWdvdEU2VjNjSzFkeXZBXzJGcW1TUnZtQnltQ2Rxb21idXBNalFOVHJNZHJYY2JLM1gtN1VQWEloQUhNZldpX1RsallIYWU3RzNkZWlPX0lTOGlTQUx5dw?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogJBVV95cUxPMld5NWdYcWV3QkxFVjA3dHNlVnBYTTlfaXZhOE11MWk3SkN3cWNMX0xPLXZlbGIxX29WczVnVnphcFh1Rnc2TjNOSUx6eFl3LVZ5VDJEUEU0N0UxRG9yd1hsQ3FOcGNOalpwSnY5YnlSM2ptdWdFSklleENCWUZtN1B0MTU5bGMwQ3lCR19FT1VLWFYtRU5DUlI1b2xoeE1yblZLNzlobEhobWJ6RUhpeXVaamt5NDdCTFk0RE1DVEh0OVAwUFBSc0FYZWdvdEU2VjNjSzFkeXZBXzJGcW1TUnZtQnltQ2Rxb21idXBNalFOVHJNZHJYY2JLM1gtN1VQWEloQUhNZldpX1RsallIYWU3RzNkZWlPX0lTOGlTQUx5dw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

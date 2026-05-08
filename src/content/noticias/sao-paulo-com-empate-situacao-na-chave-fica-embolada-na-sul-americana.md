@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Com empate, situação na chave fica embolada na Sul-Americana"
+description: "São Paulo: Com empate, situação na chave fica embolada na Sul-Americana  Portal Hortolândia"
+pubDate: "2026-05-08T00:37:57.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxPTHJCVjl6YkFNNFluTTVFMkxPQkdFOHl4anBBR0tiNDJpMEUwaVZOcmFzNDk2WFBCcTc3Y0REZVJ0d2FpWDVmaURTaVY1a2lSRE1PLTZLU1RWaVFvbFpDWGZSTXNDczY5Ul9VVmRGYmx1anBNSEc1YnBsX1k3NkdFbzcxN2XSAYQBQVVfeXFMT0xyQlY5emJBTTRZbk01RTJMT0JHRTh5eGpwQUdLYjQyaTBFMGlWTnJhczQ5NlhQQnE3N2NERGVSdHdhaVg1ZmlEU2lWNWtpUkRNTy02S1NUVmlRb2xaQ1hmUk1zQ3M2OVJfVVZkRmJsdWpwTUhHNWJwbF9ZNzZHRW83MTdl?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxPTHJCVjl6YkFNNFluTTVFMkxPQkdFOHl4anBBR0tiNDJpMEUwaVZOcmFzNDk2WFBCcTc3Y0REZVJ0d2FpWDVmaURTaVY1a2lSRE1PLTZLU1RWaVFvbFpDWGZSTXNDczY5Ul9VVmRGYmx1anBNSEc1YnBsX1k3NkdFbzcxN2XSAYQBQVVfeXFMT0xyQlY5emJBTTRZbk01RTJMT0JHRTh5eGpwQUdLYjQyaTBFMGlWTnJhczQ5NlhQQnE3N2NERGVSdHdhaVg1ZmlEU2lWNWtpUkRNTy02S1NUVmlRb2xaQ1hmUk1zQ3M2OVJfVVZkRmJsdWpwTUhHNWJwbF9ZNzZHRW83MTdl?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

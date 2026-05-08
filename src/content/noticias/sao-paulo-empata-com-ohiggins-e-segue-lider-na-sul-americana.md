@@ -1,0 +1,13 @@
+---
+title: "São Paulo empata com O’Higgins e segue líder na Sul-Americana"
+description: "São Paulo empata com O’Higgins e segue líder na Sul-Americana  Campo Grande News"
+pubDate: "2026-05-08T00:17:00.000Z"
+source: "Campo Grande News"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxPZEhFNklfUnhYeGZjVnFXbjJqQUJDRXlGaGFNeURUUXFNV3BPZ3YzVlFPbnZrNXZzRWJDYnEtM0w1c1g5dGZhS1hGM1NuS0xtWVY4UEswd1gtT2JuY1U4WDE2Z2RlbldOakRFTWlQLUNlZlExaV9TY0hjcFhZRXg5ZjVCZi14Nml3SVc0aGVCSVhSQWpUb0lQc1ZFUmtsdzJISE03V0Nn0gGmAUFVX3lxTE9YMk8tNEh0OGVqaWhDSGt4cUFUZHNaZDVTX0k0RjFLQVNzaXgwNGYtcEtBdE1JQXVRNnNBN1g3QWR6TGUtZE5tMjFqSTBGOTlMemszdFl1R1pkby1pcHR1SXJRLWtLYk5GOHBLdURZeG9WVS1CRjBBOFE4cDNxTTVzTjZXMmRTMVY1Q3FiNDZQTWFBcTdXVGdpUnRCdUhWWWFkMzIyM0E?oc=5"
+---
+
+### Fonte Original: Campo Grande News
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxPZEhFNklfUnhYeGZjVnFXbjJqQUJDRXlGaGFNeURUUXFNV3BPZ3YzVlFPbnZrNXZzRWJDYnEtM0w1c1g5dGZhS1hGM1NuS0xtWVY4UEswd1gtT2JuY1U4WDE2Z2RlbldOakRFTWlQLUNlZlExaV9TY0hjcFhZRXg5ZjVCZi14Nml3SVc0aGVCSVhSQWpUb0lQc1ZFUmtsdzJISE03V0Nn0gGmAUFVX3lxTE9YMk8tNEh0OGVqaWhDSGt4cUFUZHNaZDVTX0k0RjFLQVNzaXgwNGYtcEtBdE1JQXVRNnNBN1g3QWR6TGUtZE5tMjFqSTBGOTlMemszdFl1R1pkby1pcHR1SXJRLWtLYk5GOHBLdURZeG9WVS1CRjBBOFE4cDNxTTVzTjZXMmRTMVY1Q3FiNDZQTWFBcTdXVGdpUnRCdUhWWWFkMzIyM0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

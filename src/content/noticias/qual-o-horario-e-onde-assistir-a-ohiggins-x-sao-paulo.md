@@ -1,0 +1,13 @@
+---
+title: "Qual o horário e onde assistir a O'Higgins x São Paulo"
+description: "Qual o horário e onde assistir a O'Higgins x São Paulo  GZH"
+pubDate: "2026-05-07T20:00:42.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMilwJBVV95cUxPXzZKdEt1eXE1ZVdXcEVYUHBEWnBDZzZxVl9oWXlQYXVzdGhNYi1YUV8wbVhsSGNaUVFCSUVmeDU1M080THpfeXhfLTdiT1A1aDlfMXY3UzRtem5XVnJOZWNMU256enNpMzN1OXZ2UGRFRHVIQmxFT3k0aTdFcU1raV9ZUkN6UUYwZ0VUNUNMZkFSbElERFFBNXo3WFNVZUVjMkRGMkhZUkU5YjJjbGJtSFhVMDlpVnFTYU1xczNzX3RZS0tHVUZTOVFCQ0Z3QjZTejljYnNzS2F2Y3o1T2FhdG90YVlndjFiRnp4RjBOWmRmVGY5SWRuamlUUzE5UkZHa1ExVkRQOGg1bDVpbW9GZ2Z4dENiVjg?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwJBVV95cUxPXzZKdEt1eXE1ZVdXcEVYUHBEWnBDZzZxVl9oWXlQYXVzdGhNYi1YUV8wbVhsSGNaUVFCSUVmeDU1M080THpfeXhfLTdiT1A1aDlfMXY3UzRtem5XVnJOZWNMU256enNpMzN1OXZ2UGRFRHVIQmxFT3k0aTdFcU1raV9ZUkN6UUYwZ0VUNUNMZkFSbElERFFBNXo3WFNVZUVjMkRGMkhZUkU5YjJjbGJtSFhVMDlpVnFTYU1xczNzX3RZS0tHVUZTOVFCQ0Z3QjZTejljYnNzS2F2Y3o1T2FhdG90YVlndjFiRnp4RjBOWmRmVGY5SWRuamlUUzE5UkZHa1ExVkRQOGg1bDVpbW9GZ2Z4dENiVjg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
