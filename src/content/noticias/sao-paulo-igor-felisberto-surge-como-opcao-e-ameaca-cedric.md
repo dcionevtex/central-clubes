@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Igor Felisberto surge como opção e ameaça Cédric"
+description: "São Paulo: Igor Felisberto surge como opção e ameaça Cédric  Portal Hortolândia"
+pubDate: "2026-05-08T13:31:49.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE9xXzlHdUJkMWFJUE5qenZ3LVhuR2U2YXRrSkdvbndrdy14eUxDTHVwbldlYjBGUVhYdG14NnRPTTlOZjdFUUw1OW96cEZleC0tUTM1VHVDNTdER0Noc2puWGJtXzVxWXlqMDA5c2ljRGNKa3ZLcVpQS2p4eFnSAXxBVV95cUxPcV85R3VCZDFhSVBOanp2dy1YbkdlNmF0a0pHb253a3cteHlMQ0x1cG5XZWIwRlFYWHRteDZ0T005TmY3RVFMNTlvenBGZXgtLVEzNVR1QzU3REdDaHNqblhibV81cVl5ajAwOXNpY0RjSmt2S3FaUEtqeHhZ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE9xXzlHdUJkMWFJUE5qenZ3LVhuR2U2YXRrSkdvbndrdy14eUxDTHVwbldlYjBGUVhYdG14NnRPTTlOZjdFUUw1OW96cEZleC0tUTM1VHVDNTdER0Noc2puWGJtXzVxWXlqMDA5c2ljRGNKa3ZLcVpQS2p4eFnSAXxBVV95cUxPcV85R3VCZDFhSVBOanp2dy1YbkdlNmF0a0pHb253a3cteHlMQ0x1cG5XZWIwRlFYWHRteDZ0T005TmY3RVFMNTlvenBGZXgtLVEzNVR1QzU3REdDaHNqblhibV81cVl5ajAwOXNpY0RjSmt2S3FaUEtqeHhZ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

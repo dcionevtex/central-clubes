@@ -1,0 +1,13 @@
+---
+title: "São Paulo consulta Wesley, mas esbarra em pedida milionária"
+description: "São Paulo consulta Wesley, mas esbarra em pedida milionária  Bolavip Brasil"
+pubDate: "2026-05-08T13:07:21.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxNeWQ2TWJvSVZORGRndTlmWkxhN3pqS3pWNm9FamhyMlEzUXFTeGk5VXRJWjFoYXo0Q3ZBOXJRazJoNmpWRUs1ZnpEZkE0ZWVpRWRsMzBDZXFTcFBUcEw3TnFCS2Z4ZG8tRU9aMUlkZ0RKNktXNllOQWFZa1RsQTRhLWlPRm5yYzhUU29oaDhJUW1jR0pTZ0HSAZsBQVVfeXFMT0VlX0FOMzVGalVKaXF2ZDBGYzVhdmU1cV9YMWEyNVVPRDVMWXJ5VjNhVmd5WUhGZUZ1QVVSbTZKY01YbjhNVm4tQkptWEhsWThOTldOeGt6YkZFNGhuTjNKdmo3NkU4NFZGRXBOV1hJVExYRmV4VC1LTFhGU21zNDIwRGtTbElpSDBuNFR1UXpQMEFqbFB3d0hUVGs?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxNeWQ2TWJvSVZORGRndTlmWkxhN3pqS3pWNm9FamhyMlEzUXFTeGk5VXRJWjFoYXo0Q3ZBOXJRazJoNmpWRUs1ZnpEZkE0ZWVpRWRsMzBDZXFTcFBUcEw3TnFCS2Z4ZG8tRU9aMUlkZ0RKNktXNllOQWFZa1RsQTRhLWlPRm5yYzhUU29oaDhJUW1jR0pTZ0HSAZsBQVVfeXFMT0VlX0FOMzVGalVKaXF2ZDBGYzVhdmU1cV9YMWEyNVVPRDVMWXJ5VjNhVmd5WUhGZUZ1QVVSbTZKY01YbjhNVm4tQkptWEhsWThOTldOeGt6YkZFNGhuTjNKdmo3NkU4NFZGRXBOV1hJVExYRmV4VC1LTFhGU21zNDIwRGtTbElpSDBuNFR1UXpQMEFqbFB3d0hUVGs?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
