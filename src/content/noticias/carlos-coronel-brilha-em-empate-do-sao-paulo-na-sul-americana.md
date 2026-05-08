@@ -1,0 +1,13 @@
+---
+title: "Carlos Coronel brilha em empate do São Paulo na Sul-Americana"
+description: "Carlos Coronel brilha em empate do São Paulo na Sul-Americana  Esporte News Mundo"
+pubDate: "2026-05-08T15:56:15.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxOV3ZUak1oRVVwZk9QajVRQUs0bDJXQTVOZy1CSFNYam9vNXgtczN3Q2tKRnhZQVpDT0J1SFdScWhFLTF2MDV3NjBQM19QcExDTGYxZVc4WkhWVjhBcVAyV1B4bWI0WDBVZ0ZBbjNnMkRvRnl3X0FiNk5OeEVILWU2OVdDZGNjRkdRaGU4M0VNcGJCckxWM1F4ZFFR0gGfAUFVX3lxTE03M1E1dXYwaXlTZmdOemVpRmJZXzB2R0RLLVhzUmVHMVN6T1ZmUVRqWHZyd2pLblR5UVdzQ0gzMnh0MlFEZWQ4YlhhX0lkNmViUko5LUZRM1A0M0V5MnJmanQ2c3lPWC1ZZjkzRS1LWlF2cG5KazFhTTZHaTZ1QXlQWl8xMkhCMjBIc3ZvSFdvdXloN04tVTF3UFMxT1R1VQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxOV3ZUak1oRVVwZk9QajVRQUs0bDJXQTVOZy1CSFNYam9vNXgtczN3Q2tKRnhZQVpDT0J1SFdScWhFLTF2MDV3NjBQM19QcExDTGYxZVc4WkhWVjhBcVAyV1B4bWI0WDBVZ0ZBbjNnMkRvRnl3X0FiNk5OeEVILWU2OVdDZGNjRkdRaGU4M0VNcGJCckxWM1F4ZFFR0gGfAUFVX3lxTE03M1E1dXYwaXlTZmdOemVpRmJZXzB2R0RLLVhzUmVHMVN6T1ZmUVRqWHZyd2pLblR5UVdzQ0gzMnh0MlFEZWQ4YlhhX0lkNmViUko5LUZRM1A0M0V5MnJmanQ2c3lPWC1ZZjkzRS1LWlF2cG5KazFhTTZHaTZ1QXlQWl8xMkhCMjBIc3ZvSFdvdXloN04tVTF3UFMxT1R1VQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
