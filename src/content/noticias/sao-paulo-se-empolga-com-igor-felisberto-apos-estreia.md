@@ -1,0 +1,13 @@
+---
+title: "São Paulo se empolga com Igor Felisberto após estreia"
+description: "São Paulo se empolga com Igor Felisberto após estreia  Bolavip Brasil"
+pubDate: "2026-05-08T11:07:56.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxQakxyMW9KTzlQanFHUjlhai1JTVlyMHJ2OFVsUnh3SEZRT0tJOExLeTEzemloSFRPd3dBVmVtZEMtS0IxQjRIdDJhU0xzSDhVYy0xTzkyTnladmszVzJGZzhFMnZpWWV1Mm54alo2RTZndWVuaHRsSmJ3Q1JsV1hqUVY4enRuaFB3dk9MWi1XWdIBlAFBVV95cUxNUThlUXRvSVdueFYzVlktbzRJUUR4RDBtM09makhBZzZMVVRSWm1jSlhpN0dkUjJBRlNINUk4S2FSX0lQOGp6QjR3dHhucUQ1WUxvY19Ba2tuVkNhT3V0cEwtTldzS2RWM2dySUdvUU8ycjg0VUI4ZmVISUdBNUpaQl9KbXo0aXJEVVk2TTVTMTgtT2xO?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxQakxyMW9KTzlQanFHUjlhai1JTVlyMHJ2OFVsUnh3SEZRT0tJOExLeTEzemloSFRPd3dBVmVtZEMtS0IxQjRIdDJhU0xzSDhVYy0xTzkyTnladmszVzJGZzhFMnZpWWV1Mm54alo2RTZndWVuaHRsSmJ3Q1JsV1hqUVY4enRuaFB3dk9MWi1XWdIBlAFBVV95cUxNUThlUXRvSVdueFYzVlktbzRJUUR4RDBtM09makhBZzZMVVRSWm1jSlhpN0dkUjJBRlNINUk4S2FSX0lQOGp6QjR3dHhucUQ1WUxvY19Ba2tuVkNhT3V0cEwtTldzS2RWM2dySUdvUU8ycjg0VUI4ZmVISUdBNUpaQl9KbXo0aXJEVVk2TTVTMTgtT2xO?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

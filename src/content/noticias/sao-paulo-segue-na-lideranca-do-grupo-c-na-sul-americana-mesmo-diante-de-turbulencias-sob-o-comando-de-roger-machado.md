@@ -1,0 +1,13 @@
+---
+title: "São Paulo segue na liderança do grupo C na Sul-Americana, mesmo diante de turbulências sob o comando de Roger Machado"
+description: "São Paulo segue na liderança do grupo C na Sul-Americana, mesmo diante de turbulências sob o comando de Roger Machado  Terra"
+pubDate: "2026-05-08T10:36:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMirwJBVV95cUxNQ1Nmd3BKT19rMjFsRnRuSGswZkJJQ2VjTUdJSll3UUxYY19oVDY5QjJ2QUh1OHVGUXdUZ1M0T0tvWDBCNUR2d0FLa0lIZmlrZHFHWTNCaURlZkNRUlNnOWIxbzJfaTFPMjV2X2p4cWg2YnF1OV9Md1BhTVpOWWpGWDFjZy1yOEV5VXFwY0sxUkc5X2xXUzdaN1NXUVRSMmdfVEJNVy1oTlJCNXJzYkd5VnJOWEVFeDBhR3N6VWEzVklXUG1aT1RNTUR4Z3RVYUVGd2h2LXpMcG5KR1J2M05NU3JOeG9lcUN4bXhZdkJ0UmxxbmYtNGlBYjRUUlZXS0tXX3Q1S3F5azRSRUVwLU85anhsajdwbmRMY2hQMkZjUWVkQWZ3REpBNjVVSTJIRTQ?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirwJBVV95cUxNQ1Nmd3BKT19rMjFsRnRuSGswZkJJQ2VjTUdJSll3UUxYY19oVDY5QjJ2QUh1OHVGUXdUZ1M0T0tvWDBCNUR2d0FLa0lIZmlrZHFHWTNCaURlZkNRUlNnOWIxbzJfaTFPMjV2X2p4cWg2YnF1OV9Md1BhTVpOWWpGWDFjZy1yOEV5VXFwY0sxUkc5X2xXUzdaN1NXUVRSMmdfVEJNVy1oTlJCNXJzYkd5VnJOWEVFeDBhR3N6VWEzVklXUG1aT1RNTUR4Z3RVYUVGd2h2LXpMcG5KR1J2M05NU3JOeG9lcUN4bXhZdkJ0UmxxbmYtNGlBYjRUUlZXS0tXX3Q1S3F5azRSRUVwLU85anhsajdwbmRMY2hQMkZjUWVkQWZ3REpBNjVVSTJIRTQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

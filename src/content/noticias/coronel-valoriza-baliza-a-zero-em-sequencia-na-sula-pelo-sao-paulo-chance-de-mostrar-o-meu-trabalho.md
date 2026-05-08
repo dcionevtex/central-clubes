@@ -1,0 +1,13 @@
+---
+title: "Coronel valoriza baliza a zero em sequência na Sula pelo São Paulo: “Chance de mostrar o meu trabalho”"
+description: "Coronel valoriza baliza a zero em sequência na Sula pelo São Paulo: “Chance de mostrar o meu trabalho”  Gazeta Esportiva"
+pubDate: "2026-05-08T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMitAFBVV95cUxQNms2NHNBTVNjZXAxUTNENTVRY0VJQnBJVHA1U0kxUHRWbGRtZE1tMFVRUGN4cVBtcmNmbFpxUG5yYWNaY25xWDA0QkJhd1lmUzJGNmRpNkZ1Nm9Db1Z4QzVEdlQ2TUZjQ25zTnVoLU5sc2lEUUl1VWRQYmRseGxvcE1WMWZYOUY2YWI2c1ZxVUhvcDRmMG01Yk4yRGl0a2dIbllxWV9jYjdvNExqZUdTdUcyOEjSAboBQVVfeXFMTTVHdUxxaXlITkdBOXQxeFJzeVRobHh0SDFFYVktZUUtTVVvVkdKYTJJUGdvYVFCSjNDbENHUGplUWZTd09BeGwzUVctTHEyY2tFd3lfSkdyX1NObEY1bTg5SUpYUkl6cDhsMmkxYTc0NExrY25mY1V4anl3YlE3b1FTQ2RzOXhldi1hRFp6bUZhX0JWeVd6bnBKcjQ3YktwYmhtVXZLQ3paNVdwcWJUcnhuZW1tRkl1cDlR?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMitAFBVV95cUxQNms2NHNBTVNjZXAxUTNENTVRY0VJQnBJVHA1U0kxUHRWbGRtZE1tMFVRUGN4cVBtcmNmbFpxUG5yYWNaY25xWDA0QkJhd1lmUzJGNmRpNkZ1Nm9Db1Z4QzVEdlQ2TUZjQ25zTnVoLU5sc2lEUUl1VWRQYmRseGxvcE1WMWZYOUY2YWI2c1ZxVUhvcDRmMG01Yk4yRGl0a2dIbllxWV9jYjdvNExqZUdTdUcyOEjSAboBQVVfeXFMTTVHdUxxaXlITkdBOXQxeFJzeVRobHh0SDFFYVktZUUtTVVvVkdKYTJJUGdvYVFCSjNDbENHUGplUWZTd09BeGwzUVctTHEyY2tFd3lfSkdyX1NObEY1bTg5SUpYUkl6cDhsMmkxYTc0NExrY25mY1V4anl3YlE3b1FTQ2RzOXhldi1hRFp6bUZhX0JWeVd6bnBKcjQ3YktwYmhtVXZLQ3paNVdwcWJUcnhuZW1tRkl1cDlR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

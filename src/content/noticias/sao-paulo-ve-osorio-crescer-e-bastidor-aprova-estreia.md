@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê Osório crescer e bastidor aprova estreia"
+description: "São Paulo vê Osório crescer e bastidor aprova estreia  Bolavip Brasil"
+pubDate: "2026-05-08T11:35:21.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxNSHJhQXVNeTNIQUM2QWpVdW9OUGZqdEo1R0JzVENTU1ludlpfQlVLWXJaZFpNY3ZibGtkWVYwX1pzeVlyclhaR05Pd0JURE55YkdKZjRpWnNfTHAzTkMxVjFjakF6ZzJOWjFFR1ZveHNXR2NQV3BqOVpHVlJHNEFqU0JLNVU0Y3VHQ0pXN1FRd9IBlAFBVV95cUxNSEUyVy05b2NXLVZfQXp2OXBDZUhPaWlXcFJVaDUyNDM3LWMtX3l3NnlDMGhyQVJxcS13MVJtTURnamlxd21Ic1pvZGR5cnZpVndlS01SdU8ySGxJVDVCS0k5WlFOWnN3WldVNTBORTdOWDQ4eWZ4d19SeHFna05ITGM2OUpXNElYazJrLVVhS05lb0N6?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxNSHJhQXVNeTNIQUM2QWpVdW9OUGZqdEo1R0JzVENTU1ludlpfQlVLWXJaZFpNY3ZibGtkWVYwX1pzeVlyclhaR05Pd0JURE55YkdKZjRpWnNfTHAzTkMxVjFjakF6ZzJOWjFFR1ZveHNXR2NQV3BqOVpHVlJHNEFqU0JLNVU0Y3VHQ0pXN1FRd9IBlAFBVV95cUxNSEUyVy05b2NXLVZfQXp2OXBDZUhPaWlXcFJVaDUyNDM3LWMtX3l3NnlDMGhyQVJxcS13MVJtTURnamlxd21Ic1pvZGR5cnZpVndlS01SdU8ySGxJVDVCS0k5WlFOWnN3WldVNTBORTdOWDQ4eWZ4d19SeHFna05ITGM2OUpXNElYazJrLVVhS05lb0N6?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
