@@ -1,0 +1,13 @@
+---
+title: "Coronel cresce no São Paulo e confia na Copa"
+description: "Coronel cresce no São Paulo e confia na Copa  Portal Hortolândia"
+pubDate: "2026-05-09T12:50:08.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQc2s0WC1zX1dkeWFHb05XSnRmSFdhY09SaTNSY2J1X3RKeHdNb0Q5dFROSXRtLW1Hb2pwNlpWNTh4QllmQUhVTmZJMVdIbmFVMWthaFgtVzJtS1p5SjExeHVidXNzdnh5LUQzaHd0bUdhSTlhdG1sYmYyV01yMmVLONIBgAFBVV95cUxQc2s0WC1zX1dkeWFHb05XSnRmSFdhY09SaTNSY2J1X3RKeHdNb0Q5dFROSXRtLW1Hb2pwNlpWNTh4QllmQUhVTmZJMVdIbmFVMWthaFgtVzJtS1p5SjExeHVidXNzdnh5LUQzaHd0bUdhSTlhdG1sYmYyV01yMmVLOA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQc2s0WC1zX1dkeWFHb05XSnRmSFdhY09SaTNSY2J1X3RKeHdNb0Q5dFROSXRtLW1Hb2pwNlpWNTh4QllmQUhVTmZJMVdIbmFVMWthaFgtVzJtS1p5SjExeHVidXNzdnh5LUQzaHd0bUdhSTlhdG1sYmYyV01yMmVLONIBgAFBVV95cUxQc2s0WC1zX1dkeWFHb05XSnRmSFdhY09SaTNSY2J1X3RKeHdNb0Q5dFROSXRtLW1Hb2pwNlpWNTh4QllmQUhVTmZJMVdIbmFVMWthaFgtVzJtS1p5SjExeHVidXNzdnh5LUQzaHd0bUdhSTlhdG1sYmYyV01yMmVLOA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

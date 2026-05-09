@@ -1,0 +1,13 @@
+---
+title: "Carlos Coronel ganha apoio no São Paulo e mira Copa pelo Paraguai"
+description: "Carlos Coronel ganha apoio no São Paulo e mira Copa pelo Paraguai  Bolavip Brasil"
+pubDate: "2026-05-09T11:35:25.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQZFgtNUtSMy1rRzJsaVdxOTI0WmlYLW5ycmZEV1JQMGRKWkZCMURXd2FiY0p0VGt6c0pjVkdxUWV0MDNvblhpYnZNQk16NHJzdzlhOUx1SUlmUVBXUHZJVnlhYWQ5d1R3NVg3TTc3M09jTXVzc0d3dGNvOFBUNzZxVHVyemM2Ri1HWEhYMnFjaktQdDJDWVE2a2RCb09HbTjSAaQBQVVfeXFMUGw4TGJpbFdXMFJuV3dyUUl2dnhDX1R1aWtWWmxlNktPSElGbjgyUWpWLW5kR3BDSURKUEN3ZmVtLXc4ZTNhTGR6ZFg3LVhPLUNxdHFhMVc4bF9JSVZlV05FdG1ib1lsVDFPc01vbXVBWnB0b3JDVGxNOFB2Ym5WNnhpMDNLVkpBUVZHVDNxVEc4OXl1V1g3b3pyV2p4dWZhM3FvRS0?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQZFgtNUtSMy1rRzJsaVdxOTI0WmlYLW5ycmZEV1JQMGRKWkZCMURXd2FiY0p0VGt6c0pjVkdxUWV0MDNvblhpYnZNQk16NHJzdzlhOUx1SUlmUVBXUHZJVnlhYWQ5d1R3NVg3TTc3M09jTXVzc0d3dGNvOFBUNzZxVHVyemM2Ri1HWEhYMnFjaktQdDJDWVE2a2RCb09HbTjSAaQBQVVfeXFMUGw4TGJpbFdXMFJuV3dyUUl2dnhDX1R1aWtWWmxlNktPSElGbjgyUWpWLW5kR3BDSURKUEN3ZmVtLXc4ZTNhTGR6ZFg3LVhPLUNxdHFhMVc4bF9JSVZlV05FdG1ib1lsVDFPc01vbXVBWnB0b3JDVGxNOFB2Ym5WNnhpMDNLVkpBUVZHVDNxVEc4OXl1V1g3b3pyV2p4dWZhM3FvRS0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Corinthians x São Paulo: Cicinho dá palpite e crava tropeço do Timão"
+description: "Corinthians x São Paulo: Cicinho dá palpite e crava tropeço do Timão  Bolavip Brasil"
+pubDate: "2026-05-09T12:11:02.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxOQm53NnVvR2VmRjd3c2RWSVc5Z0NXdkhZTEdkSUhDZmZQS1RtQVpNa1BoZ25Ld0dvTE5qTjJfRXl6UGNJZTMyLTFNcmdUcDA3RW5rU2RLTTlDT3BHc1VOeHJ4RnViM1FneU1MVVZwbmlkb1dPN05XMnllUkFyME15RktKUHFzUkFPdy1MWU81d0lMOWFLcURrbUFHSlptQkduVFdUZ9IBqgFBVV95cUxNQ3BTMldVTXhkdlNOMEpzVkdNclhuR0dCZUJvbE5Db1JhaDdremF2RWJOYVpxZ1JqUXhpTHJJU1pWeTl6VW05bTFoN1RfbDdPTmhCa20ySkVKbWtwUFJKZzZvOE5zOEVJdExGSlBTb1lFMlN1UU4xTW5ScWF4Zl9LWUxib0hfUThUY3dmaHJZLTkwX0VSaV8wYmczRk1HSi1IejVyLUtyTko5Zw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxOQm53NnVvR2VmRjd3c2RWSVc5Z0NXdkhZTEdkSUhDZmZQS1RtQVpNa1BoZ25Ld0dvTE5qTjJfRXl6UGNJZTMyLTFNcmdUcDA3RW5rU2RLTTlDT3BHc1VOeHJ4RnViM1FneU1MVVZwbmlkb1dPN05XMnllUkFyME15RktKUHFzUkFPdy1MWU81d0lMOWFLcURrbUFHSlptQkduVFdUZ9IBqgFBVV95cUxNQ3BTMldVTXhkdlNOMEpzVkdNclhuR0dCZUJvbE5Db1JhaDdremF2RWJOYVpxZ1JqUXhpTHJJU1pWeTl6VW05bTFoN1RfbDdPTmhCa20ySkVKbWtwUFJKZzZvOE5zOEVJdExGSlBTb1lFMlN1UU4xTW5ScWF4Zl9LWUxib0hfUThUY3dmaHJZLTkwX0VSaV8wYmczRk1HSi1IejVyLUtyTko5Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
