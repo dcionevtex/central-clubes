@@ -1,0 +1,13 @@
+---
+title: "São Paulo afasta Maik dos treinos"
+description: "São Paulo afasta Maik dos treinos  Portal Hortolândia"
+pubDate: "2026-05-09T19:25:12.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE8xV1RJb0w4R1pta1JfSW41ZDdfWHNVSlhOTzllODAyZDlDMHdJTjZoMVVIcENjN3RrWkJjUGJqVnoyUjNndjFQQ0Y0aUtlRElyRE9NbHFCeXpYeW5LTmg0LUVobUtzSEtGbm1maWN2R3AyazJZYWxBOVh0UU56Z1nSAX9BVV95cUxPMVdUSW9MOEdabWtSX0luNWQ3X1hzVUpYTk85ZTgwMmQ5QzB3SU42aDFVSHBDYzd0a1pCY1BialZ6MlIzZ3YxUENGNGlLZURJckRPTWxxQnl6WHluS05oNC1FaG1Lc0hLRm5tZmljdkdwMmsyWWFsQTlYdFFOemdZ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE8xV1RJb0w4R1pta1JfSW41ZDdfWHNVSlhOTzllODAyZDlDMHdJTjZoMVVIcENjN3RrWkJjUGJqVnoyUjNndjFQQ0Y0aUtlRElyRE9NbHFCeXpYeW5LTmg0LUVobUtzSEtGbm1maWN2R3AyazJZYWxBOVh0UU56Z1nSAX9BVV95cUxPMVdUSW9MOEdabWtSX0luNWQ3X1hzVUpYTk85ZTgwMmQ5QzB3SU42aDFVSHBDYzd0a1pCY1BialZ6MlIzZ3YxUENGNGlLZURJckRPTWxxQnl6WHluS05oNC1FaG1Lc0hLRm5tZmljdkdwMmsyWWFsQTlYdFFOemdZ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
