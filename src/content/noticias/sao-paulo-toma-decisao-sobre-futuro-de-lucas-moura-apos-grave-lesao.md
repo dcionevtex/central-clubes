@@ -1,0 +1,13 @@
+---
+title: "São Paulo toma decisão sobre futuro de Lucas Moura após grave lesão"
+description: "São Paulo toma decisão sobre futuro de Lucas Moura após grave lesão  Esporte News Mundo"
+pubDate: "2026-05-09T14:03:07.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxOaHIyUkN5bllLLS1JbVFoU1AzYU1uM0k2VlZ1NHZ4a0pKVi10aUxIc0l3RVoyc1hBenI2clBleVJKZVd3akM0OFNITVRReEpja2lzQkU0ZXQyX3VIVmVXQ0RTU2w5SGtKV0NEQlk2NHc0SUpnUmtpRDNRTzFsSVNydkZNUXdfU29WQ08yMmVEQjRCVm13Y3h1bjhMakt3SzVHQnfSAacBQVVfeXFMTnVhZjRaSTNXeHVwWjVhclY5N0tHZWZsM1p4NmVmWkk0NFdWY1k4TlBjZHJzdlJ1QzlHWE1sWkdpYm5heHBIRldJUnVMQUJUZXFVa0NUUzBpN1M2YzdWQzFMWWNPMkxMTEZrRVVzeGlEdVduY0pTeXpuS19aMm5kSTduSEhjakdHeGpjZm5Rc1JLdFdvbEJ6cHlqdTFSMUdaMUU0OHZmeEU?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxOaHIyUkN5bllLLS1JbVFoU1AzYU1uM0k2VlZ1NHZ4a0pKVi10aUxIc0l3RVoyc1hBenI2clBleVJKZVd3akM0OFNITVRReEpja2lzQkU0ZXQyX3VIVmVXQ0RTU2w5SGtKV0NEQlk2NHc0SUpnUmtpRDNRTzFsSVNydkZNUXdfU29WQ08yMmVEQjRCVm13Y3h1bjhMakt3SzVHQnfSAacBQVVfeXFMTnVhZjRaSTNXeHVwWjVhclY5N0tHZWZsM1p4NmVmWkk0NFdWY1k4TlBjZHJzdlJ1QzlHWE1sWkdpYm5heHBIRldJUnVMQUJUZXFVa0NUUzBpN1M2YzdWQzFMWWNPMkxMTEZrRVVzeGlEdVduY0pTeXpuS19aMm5kSTduSEhjakdHeGpjZm5Rc1JLdFdvbEJ6cHlqdTFSMUdaMUU0OHZmeEU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

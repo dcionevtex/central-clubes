@@ -1,0 +1,13 @@
+---
+title: "Roger Machado tem vantagem sobre Fernando Diniz nos confrontos diretos"
+description: "Roger Machado tem vantagem sobre Fernando Diniz nos confrontos diretos  Portal Hortolândia"
+pubDate: "2026-05-09T14:22:30.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTFBwUS05d1hlMnBoajR1bTh5MFRVcUg3SzVYVzd2ekcyRDN2WDF6VlhxYjNILUdmRDZ1cEVmaFdQQ2o4MWxIMWlJeTB2YnVXQzE4NklIOVhZWTYzcWludVJFbUVhMTd1WlY3djJoeVBYQko0LXBaOC1NM3VtWGlrd9IBfkFVX3lxTFBwUS05d1hlMnBoajR1bTh5MFRVcUg3SzVYVzd2ekcyRDN2WDF6VlhxYjNILUdmRDZ1cEVmaFdQQ2o4MWxIMWlJeTB2YnVXQzE4NklIOVhZWTYzcWludVJFbUVhMTd1WlY3djJoeVBYQko0LXBaOC1NM3VtWGlrdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTFBwUS05d1hlMnBoajR1bTh5MFRVcUg3SzVYVzd2ekcyRDN2WDF6VlhxYjNILUdmRDZ1cEVmaFdQQ2o4MWxIMWlJeTB2YnVXQzE4NklIOVhZWTYzcWludVJFbUVhMTd1WlY3djJoeVBYQko0LXBaOC1NM3VtWGlrd9IBfkFVX3lxTFBwUS05d1hlMnBoajR1bTh5MFRVcUg3SzVYVzd2ekcyRDN2WDF6VlhxYjNILUdmRDZ1cEVmaFdQQ2o4MWxIMWlJeTB2YnVXQzE4NklIOVhZWTYzcWludVJFbUVhMTd1WlY3djJoeVBYQko0LXBaOC1NM3VtWGlrdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
