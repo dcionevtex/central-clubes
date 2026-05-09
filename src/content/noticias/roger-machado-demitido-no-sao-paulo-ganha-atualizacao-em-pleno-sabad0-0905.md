@@ -1,0 +1,13 @@
+---
+title: "Roger Machado demitido no São Paulo ganha atualização em pleno sábad0 (09/05)"
+description: "Roger Machado demitido no São Paulo ganha atualização em pleno sábad0 (09/05)  TV Foco"
+pubDate: "2026-05-09T20:15:00.000Z"
+source: "TV Foco"
+link: "https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZGdxdVJvMWt3VWxoWE5ZMVNfeFpvOU9WMU1IdWt4Y1J0Wi1tYjQzeU9tZEp6Z3lEUVhRM2FrdWtEUEF2Tm9RLU5kbnpRS2JqVGJHOHJiYXIzNGROcVpwX1lrSDBrZnV2b3kxMlpYclVNT2N3SW9talgtdHNSbUYyMEcwT2VEZmgwVHpz0gGLAUFVX3lxTE9kZ3F1Um8xa3dVbGhYTlkxU194Wm85T1YxTUh1a3hjUnRaLW1iNDN5T21kSnpneURRWFEzYWt1a0RQQXZOb1EtTmRuelFLYmpUYkc4cmJhcjM0ZE5xWnBfWWtIMGtmdXZveTEyWlhyVU1PY3dJb21qWC10c1JtRjIwRzBPZURmaDBUenM?oc=5"
+---
+
+### Fonte Original: TV Foco
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwFBVV95cUxPZGdxdVJvMWt3VWxoWE5ZMVNfeFpvOU9WMU1IdWt4Y1J0Wi1tYjQzeU9tZEp6Z3lEUVhRM2FrdWtEUEF2Tm9RLU5kbnpRS2JqVGJHOHJiYXIzNGROcVpwX1lrSDBrZnV2b3kxMlpYclVNT2N3SW9talgtdHNSbUYyMEcwT2VEZmgwVHpz0gGLAUFVX3lxTE9kZ3F1Um8xa3dVbGhYTlkxU194Wm85T1YxTUh1a3hjUnRaLW1iNDN5T21kSnpneURRWFEzYWt1a0RQQXZOb1EtTmRuelFLYmpUYkc4cmJhcjM0ZE5xWnBfWWtIMGtmdXZveTEyWlhyVU1PY3dJb21qWC10c1JtRjIwRzBPZURmaDBUenM?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

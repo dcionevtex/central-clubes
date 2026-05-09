@@ -1,0 +1,13 @@
+---
+title: "São Paulo afasta jogador do elenco"
+description: "São Paulo afasta jogador do elenco  Esporte News Mundo"
+pubDate: "2026-05-09T20:16:38.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMidkFVX3lxTE53N0pqb1J3YngtV1BIQWs5T0ZGNHh6bmxuUW5qTVVsT1hkd3ZzcHFjcWgxMjQ2OVVlOE9IUkFLcjdZako4a2dKOXFCY1dCUkpEUGN0RTZNNXh6dkVJb0hBN21BNnVvazNHVEVCamZ3MVhJOThyR1HSAXtBVV95cUxQbFZzNlhqN3pSMy1HeEhST05qOThMN2FfZmpxd21hZi1oOURtUl9wcUlpUWVNR25remNxSGFkT0Yta01DRzlFQUtlVFdkSmIwV3hsejRCbm1Xc0dFenltaVlvWW1BZUk3ektjSkt6ZE9wNDIwU3UyeWJWQ3M?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMidkFVX3lxTE53N0pqb1J3YngtV1BIQWs5T0ZGNHh6bmxuUW5qTVVsT1hkd3ZzcHFjcWgxMjQ2OVVlOE9IUkFLcjdZako4a2dKOXFCY1dCUkpEUGN0RTZNNXh6dkVJb0hBN21BNnVvazNHVEVCamZ3MVhJOThyR1HSAXtBVV95cUxQbFZzNlhqN3pSMy1HeEhST05qOThMN2FfZmpxd21hZi1oOURtUl9wcUlpUWVNR25remNxSGFkT0Yta01DRzlFQUtlVFdkSmIwV3hsejRCbm1Xc0dFenltaVlvWW1BZUk3ektjSkt6ZE9wNDIwU3UyeWJWQ3M?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
