@@ -1,0 +1,13 @@
+---
+title: "São Paulo fecha preparação para enfrentar o Corinthians; veja provável escalaçaõ"
+description: "São Paulo fecha preparação para enfrentar o Corinthians; veja provável escalaçaõ  Gazeta Esportiva"
+pubDate: "2026-05-09T23:12:59.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxPcENRVlU1VUFkMHhQblV0T3IwUEpBeTNtcVYxd3l6bjEzam9Lc3dlVE1CZTB5a001My1TWlhBQXlrLVdMUjhYeFh5R1Y0SW9ELS1faXgwYUtkRFJNQkVJVFBLamhGcTh0cy1WbHRDeXlSTkdWb2YxZnBYN3pDWkFDNk0waGh6dllWNkNvbXRzNXY1OUxtTTRORzRtNGRGcGfSAZ8BQVVfeXFMT3BDUVZVNVVBZDB4UG5VdE9yMFBKQXkzbXFWMXd5em4xM2pvS3N3ZVRNQmUweWtNNTMtU1pYQUF5ay1XTFI4WHhYeUdWNElvRC0tX2l4MGFLZERSTUJFSVRQS2poRnE4dHMtVmx0Q3l5Uk5HVm9mMWZwWDd6Q1pBQzZNMGhoenZZVjZDb210czV2NTlMbU00Tkc0bTRkRnBn?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxPcENRVlU1VUFkMHhQblV0T3IwUEpBeTNtcVYxd3l6bjEzam9Lc3dlVE1CZTB5a001My1TWlhBQXlrLVdMUjhYeFh5R1Y0SW9ELS1faXgwYUtkRFJNQkVJVFBLamhGcTh0cy1WbHRDeXlSTkdWb2YxZnBYN3pDWkFDNk0waGh6dllWNkNvbXRzNXY1OUxtTTRORzRtNGRGcGfSAZ8BQVVfeXFMT3BDUVZVNVVBZDB4UG5VdE9yMFBKQXkzbXFWMXd5em4xM2pvS3N3ZVRNQmUweWtNNTMtU1pYQUF5ay1XTFI4WHhYeUdWNElvRC0tX2l4MGFLZERSTUJFSVRQS2poRnE4dHMtVmx0Q3l5Uk5HVm9mMWZwWDd6Q1pBQzZNMGhoenZZVjZDb210czV2NTlMbU00Tkc0bTRkRnBn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
