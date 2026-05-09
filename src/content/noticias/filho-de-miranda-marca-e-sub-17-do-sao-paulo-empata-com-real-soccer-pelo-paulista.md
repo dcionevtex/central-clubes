@@ -1,0 +1,13 @@
+---
+title: "Filho de Miranda marca, e sub-17 do São Paulo empata com Real Soccer pelo Paulista"
+description: "Filho de Miranda marca, e sub-17 do São Paulo empata com Real Soccer pelo Paulista  Gazeta Esportiva"
+pubDate: "2026-05-09T18:31:20.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQNXMwLUtsbVBmdjRZUFNyeTB1M2liVEZLN0ZtYzJ1amMxTkI4TjNvVkNfV3NmNmdyeF9KQ0EtLTdsUVRLaVR6dlFUakFNQm11c25HNUJlNTVLTXB2RGw1LU8wRGJxZ1JBbWZUNTdMbTNXMTN4RkQtbE1CUUJnay0xRkI2bU9UX3c2RDMtUWdlWTVFNFpCeGRicHRGNWZraFHSAZ8BQVVfeXFMUDVzMC1LbG1QZnY0WVBTcnkwdTNpYlRGSzdGbWMydWpjMU5COE4zb1ZDX1dzZjZncnhfSkNBLS03bFFUS2lUenZRVGpBTUJtdXNuRzVCZTU1S01wdkRsNS1PMERicWdSQW1mVDU3TG0zVzEzeEZELWxNQlFCZ2stMUZCNm1PVF93NkQzLVFnZVk1RTRaQnhkYnB0RjVma2hR?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQNXMwLUtsbVBmdjRZUFNyeTB1M2liVEZLN0ZtYzJ1amMxTkI4TjNvVkNfV3NmNmdyeF9KQ0EtLTdsUVRLaVR6dlFUakFNQm11c25HNUJlNTVLTXB2RGw1LU8wRGJxZ1JBbWZUNTdMbTNXMTN4RkQtbE1CUUJnay0xRkI2bU9UX3c2RDMtUWdlWTVFNFpCeGRicHRGNWZraFHSAZ8BQVVfeXFMUDVzMC1LbG1QZnY0WVBTcnkwdTNpYlRGSzdGbWMydWpjMU5COE4zb1ZDX1dzZjZncnhfSkNBLS03bFFUS2lUenZRVGpBTUJtdXNuRzVCZTU1S01wdkRsNS1PMERicWdSQW1mVDU3TG0zVzEzeEZELWxNQlFCZ2stMUZCNm1PVF93NkQzLVFnZVk1RTRaQnhkYnB0RjVma2hR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

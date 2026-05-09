@@ -1,0 +1,13 @@
+---
+title: "Roger segura Pedro Ferreira e explica cautela no São Paulo"
+description: "Roger segura Pedro Ferreira e explica cautela no São Paulo  Bolavip Brasil"
+pubDate: "2026-05-09T18:18:42.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxQMVREM1R3YThSZ0dnMTB1MXlaRTZyZHlsbkhUT20wVWlJZmpIcHYyNG9VVi1pNWpsOXNJNVFPNzVZSUFNRVl6SXN2YVhyc09kelhaN2NYOEs2Q1VvMWcwWFk2OUNDN0hsVlh4Q0tPUDFpVFI5UWpiaTU4ZGJXcjFkbUVwY1JLTUhyc1hLOGI4QVRkOS04MWfSAZsBQVVfeXFMUGxLemticFZ2ME93cnVGM3BDRDl2QlFkcWJCSjh3bDZpbnBQcDVkNVgzSWw5SjRNbUtYNE1TaEZkU083U1g0alNLQXJJUHFtaXRCWG9zc0d0LUdXWktOcXFBQXBDc1FLUTAzNlV3UENQZkpIVHdQUHhzbm92ZkF0a0tnVHFubU5TVVp3N2xqcElRM0hSbTRBQ00tRUE?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxQMVREM1R3YThSZ0dnMTB1MXlaRTZyZHlsbkhUT20wVWlJZmpIcHYyNG9VVi1pNWpsOXNJNVFPNzVZSUFNRVl6SXN2YVhyc09kelhaN2NYOEs2Q1VvMWcwWFk2OUNDN0hsVlh4Q0tPUDFpVFI5UWpiaTU4ZGJXcjFkbUVwY1JLTUhyc1hLOGI4QVRkOS04MWfSAZsBQVVfeXFMUGxLemticFZ2ME93cnVGM3BDRDl2QlFkcWJCSjh3bDZpbnBQcDVkNVgzSWw5SjRNbUtYNE1TaEZkU083U1g0alNLQXJJUHFtaXRCWG9zc0d0LUdXWktOcXFBQXBDc1FLUTAzNlV3UENQZkpIVHdQUHhzbm92ZkF0a0tnVHFubU5TVVp3N2xqcElRM0hSbTRBQ00tRUE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
