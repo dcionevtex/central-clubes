@@ -1,0 +1,13 @@
+---
+title: "No Majestoso, Roger Machado completa dois meses à frente do São Paulo; veja números"
+description: "No Majestoso, Roger Machado completa dois meses à frente do São Paulo; veja números  Gazeta Esportiva"
+pubDate: "2026-05-10T09:06:07.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxQWFFjbWdkbE54X25wOFFPU1ZDQ0doVmVucnJ4Y211RU5wTkFKTWVEY051d3hzaURJMzZGTC1RYWJ0SjJ3d1ZDMWo4VHh5WklQQUk3RU1PUDFDWUVjUUxBR1NvSjhpMHFaTFZkc1hPX05tYlpRX24xeFpwbWtHNVNUZkE1cUtxVHV3ejZUWVNUTkxkblBicFVfdUpFYXRjT3d00gGgAUFVX3lxTFBYUWNtZ2RsTnhfbnA4UU9TVkNDR2hWZW5ycnhjbXVFTnBOQUpNZURjTnV3eHNpREkzNkZMLVFhYnRKMnd3VkMxajhUeHlaSVBBSTdFTU9QMUNZRWNRTEFHU29KOGkwcVpMVmRzWE9fTm1iWlFfbjF4WnBta0c1U1RmQTVxS3FUdXd6NlRZU1ROTGRuUGJwVV91SkVhdGNPd3Q?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxQWFFjbWdkbE54X25wOFFPU1ZDQ0doVmVucnJ4Y211RU5wTkFKTWVEY051d3hzaURJMzZGTC1RYWJ0SjJ3d1ZDMWo4VHh5WklQQUk3RU1PUDFDWUVjUUxBR1NvSjhpMHFaTFZkc1hPX05tYlpRX24xeFpwbWtHNVNUZkE1cUtxVHV3ejZUWVNUTkxkblBicFVfdUpFYXRjT3d00gGgAUFVX3lxTFBYUWNtZ2RsTnhfbnA4UU9TVkNDR2hWZW5ycnhjbXVFTnBOQUpNZURjTnV3eHNpREkzNkZMLVFhYnRKMnd3VkMxajhUeHlaSVBBSTdFTU9QMUNZRWNRTEFHU29KOGkwcVpMVmRzWE9fTm1iWlFfbjF4WnBta0c1U1RmQTVxS3FUdXd6NlRZU1ROTGRuUGJwVV91SkVhdGNPd3Q?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
