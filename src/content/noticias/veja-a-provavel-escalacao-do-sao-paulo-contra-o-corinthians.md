@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo contra o Corinthians"
+description: "Veja a provável escalação do São Paulo contra o Corinthians  Portal Hortolândia"
+pubDate: "2026-05-10T14:11:20.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxPSG5PNWFQaVZCUVRXa3JMNnM2RmZXci1PdnNKTHBDZnV2UWFZY00zbDlBQVdwRUxYcFVxM08wRlFNeXJ2bGMtLVFYeGNEZHl0YUkwX3JkcThvRE5kWlJ5X0M1OXp6bVBEYU5IRVJIM0QyYlExUi1jNlBPUjVvVU1LcURB0gGCAUFVX3lxTE9Ibk81YVBpVkJRVFdrckw2czZGZldyLU92c0pMcENmdXZRYVljTTNsOUFBV3BFTFhwVXEzTzBGUU15cnZsYy0tUVh4Y0RkeXRhSTBfcmRxOG9ETmRaUnlfQzU5enptUERhTkhFUkgzRDJiUTFSLWM2UE9SNW9VTUtxREE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxPSG5PNWFQaVZCUVRXa3JMNnM2RmZXci1PdnNKTHBDZnV2UWFZY00zbDlBQVdwRUxYcFVxM08wRlFNeXJ2bGMtLVFYeGNEZHl0YUkwX3JkcThvRE5kWlJ5X0M1OXp6bVBEYU5IRVJIM0QyYlExUi1jNlBPUjVvVU1LcURB0gGCAUFVX3lxTE9Ibk81YVBpVkJRVFdrckw2czZGZldyLU92c0pMcENmdXZRYVljTTNsOUFBV3BFTFhwVXEzTzBGUU15cnZsYy0tUVh4Y0RkeXRhSTBfcmRxOG9ETmRaUnlfQzU5enptUERhTkhFUkgzRDJiUTFSLWM2UE9SNW9VTUtxREE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
