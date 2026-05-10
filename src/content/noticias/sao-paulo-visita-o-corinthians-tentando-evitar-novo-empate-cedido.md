@@ -1,0 +1,13 @@
+---
+title: "São Paulo visita o Corinthians tentando evitar novo empate cedido"
+description: "São Paulo visita o Corinthians tentando evitar novo empate cedido  Portal Hortolândia"
+pubDate: "2026-05-10T12:47:35.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE1BQUtjMVlabjdZdEltM09RaDZ5endoOEUxeTdCM0FlekliTldZUEZDYk5SSENoOXpDYllMeEh1NzN4QlBUOXd3VXFCUFJEby1aT2h5ZFhHWkJYdWtPLWJNbV9felBvem83S0ozRTlpOGV6SXI3MGRTMEln0gF6QVVfeXFMTUFBS2MxWVpuN1l0SW0zT1FoNnl6d2g4RTF5N0IzQWV6SWJOV1lQRkNiTlJIQ2g5ekNiWUx4SHU3M3hCUFQ5d3dVcUJQUkRvLVpPaHlkWEdaQlh1a08tYk1tX196UG96bzdLSjNFOWk4ZXpJcjcwZFMwSWc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE1BQUtjMVlabjdZdEltM09RaDZ5endoOEUxeTdCM0FlekliTldZUEZDYk5SSENoOXpDYllMeEh1NzN4QlBUOXd3VXFCUFJEby1aT2h5ZFhHWkJYdWtPLWJNbV9felBvem83S0ozRTlpOGV6SXI3MGRTMEln0gF6QVVfeXFMTUFBS2MxWVpuN1l0SW0zT1FoNnl6d2g4RTF5N0IzQWV6SWJOV1lQRkNiTlJIQ2g5ekNiWUx4SHU3M3hCUFQ5d3dVcUJQUkRvLVpPaHlkWEdaQlh1a08tYk1tX196UG96bzdLSjNFOWk4ZXpJcjcwZFMwSWc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
