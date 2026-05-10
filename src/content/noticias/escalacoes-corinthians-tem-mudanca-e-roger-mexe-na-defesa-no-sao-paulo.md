@@ -1,0 +1,13 @@
+---
+title: "Escalações: Corinthians tem mudança, e Roger mexe na defesa no São Paulo"
+description: "Escalações: Corinthians tem mudança, e Roger mexe na defesa no São Paulo  UOL"
+pubDate: "2026-05-10T20:38:32.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMiogJBVV95cUxOa2V4LUJOdWx0ekFqQjZrTG1BYTU0X0hyZE5UX0ZlUUI5UkhqMXYtQmNSOHpTQkR1WW1LT2g2RXppNzFWeFRDQXpGN2YtcE5DSkdFbVlMMm90VEQyYURXaXp1RHBKckYydDE2Y01oU0QyVDZDTUZpdDF5Z1lQZ09COVhFOWVvemVhenFXRkdxV25CaWk2ckRQWGlKMG1lZ3dybFBsWFNCWU85b3BUT2NZa1dSOEJ1Xzc2NF93QnYtUWRKa05RdzYxdzFsTGw0WVB1TlBrSmpTUWgwaE12Rldaa2NXWVFkdy1aNmRBUXA1Z3dNVXZTelhBN0p6ZXBtaG13QnVXb0xhSTZBU01ocDd2T2t5MFBjNURRU19MYnh5WEUtUQ?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogJBVV95cUxOa2V4LUJOdWx0ekFqQjZrTG1BYTU0X0hyZE5UX0ZlUUI5UkhqMXYtQmNSOHpTQkR1WW1LT2g2RXppNzFWeFRDQXpGN2YtcE5DSkdFbVlMMm90VEQyYURXaXp1RHBKckYydDE2Y01oU0QyVDZDTUZpdDF5Z1lQZ09COVhFOWVvemVhenFXRkdxV25CaWk2ckRQWGlKMG1lZ3dybFBsWFNCWU85b3BUT2NZa1dSOEJ1Xzc2NF93QnYtUWRKa05RdzYxdzFsTGw0WVB1TlBrSmpTUWgwaE12Rldaa2NXWVFkdy1aNmRBUXA1Z3dNVXZTelhBN0p6ZXBtaG13QnVXb0xhSTZBU01ocDd2T2t5MFBjNURRU19MYnh5WEUtUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
