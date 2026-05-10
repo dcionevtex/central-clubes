@@ -1,0 +1,13 @@
+---
+title: "Corinthians x São Paulo: saiba o horário e onde assistir ao clássico"
+description: "Corinthians x São Paulo: saiba o horário e onde assistir ao clássico  DOL"
+pubDate: "2026-05-10T15:04:09.000Z"
+source: "DOL"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxPWnF3VmFTR2ROOEQzNGZDY3pmdEkzamVmZ1lnMXVLSnV2eV82ZDNEZVhleWpDcHpqUnRKTnRwbmxjMEJWQjV4SEp3UUZJTnVxaC13UU9haF9Cc0MwNmZZMUR2SnZMSUEwM3dJZktFUVZFbnhjalZNdkZ2bUJicDZuZXNpOUYzQ1FmZ0p2YnJBQnZFeTlVNTVWVXBpT3FrRW93dVNz0gGrAUFVX3lxTFBWNG9wbEpfRS1RMXRkTWVJSXhMRi1xQU91SXRoeXdwSlg0ZGlaMDdnekpWcGdpX2c0dXY4UmdWRUV2dWVrck02V1Nscmpta2Nicm1ycWFUVGlOTFdzZEtKQmZMS3Jxc3BzZy1PLTluZTgzampQb3Y4cDhlc3ozZE1tSlRCQ3NNc293Z2syZ2VjcU1DWjZEVW5nZnNIMWFXMXVxY3dsTGZrU1lvSQ?oc=5"
+---
+
+### Fonte Original: DOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxPWnF3VmFTR2ROOEQzNGZDY3pmdEkzamVmZ1lnMXVLSnV2eV82ZDNEZVhleWpDcHpqUnRKTnRwbmxjMEJWQjV4SEp3UUZJTnVxaC13UU9haF9Cc0MwNmZZMUR2SnZMSUEwM3dJZktFUVZFbnhjalZNdkZ2bUJicDZuZXNpOUYzQ1FmZ0p2YnJBQnZFeTlVNTVWVXBpT3FrRW93dVNz0gGrAUFVX3lxTFBWNG9wbEpfRS1RMXRkTWVJSXhMRi1xQU91SXRoeXdwSlg0ZGlaMDdnekpWcGdpX2c0dXY4UmdWRUV2dWVrck02V1Nscmpta2Nicm1ycWFUVGlOTFdzZEtKQmZMS3Jxc3BzZy1PLTluZTgzampQb3Y4cDhlc3ozZE1tSlRCQ3NNc293Z2syZ2VjcU1DWjZEVW5nZnNIMWFXMXVxY3dsTGZrU1lvSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
