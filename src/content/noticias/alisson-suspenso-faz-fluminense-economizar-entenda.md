@@ -1,0 +1,13 @@
+---
+title: "Alisson, suspenso, faz Fluminense economizar; entenda"
+description: "Alisson, suspenso, faz Fluminense economizar; entenda  Jogada 10"
+pubDate: "2026-05-10T16:47:17.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxOWlh1N1h4QzNCZV9IUnhiNWx5M1VQWFNfZlBxaFRzUl9YdFNCX2VoMDdSUGphbUozTFZwR25OWUxUZmJKb25JRjBDeHQyN3RxZVo0NzdFZTlRNGl2S0U4cU44MVVWVHFUNEhqdFlSbXMtUDFOa0FLUWpKSGFXTnRFZ9IBhgFBVV95cUxPWHp6RjIxS0ZQR3JPU1VxUmFNcnVTLUJNLWZwazRZalloM2JFbkpNdE95c052Q1JQbENFMVRpdjJBbVIwRFlRYkgtcnRBLVpfYnRDTFQ1ajVrcWpEVEQzMWR3YkRoWGNMR0dhbkpXT01RaVhTY0h2ZXYwandyc2dITnBQYmNNdw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxOWlh1N1h4QzNCZV9IUnhiNWx5M1VQWFNfZlBxaFRzUl9YdFNCX2VoMDdSUGphbUozTFZwR25OWUxUZmJKb25JRjBDeHQyN3RxZVo0NzdFZTlRNGl2S0U4cU44MVVWVHFUNEhqdFlSbXMtUDFOa0FLUWpKSGFXTnRFZ9IBhgFBVV95cUxPWHp6RjIxS0ZQR3JPU1VxUmFNcnVTLUJNLWZwazRZalloM2JFbkpNdE95c052Q1JQbENFMVRpdjJBbVIwRFlRYkgtcnRBLVpfYnRDTFQ1ajVrcWpEVEQzMWR3YkRoWGNMR0dhbkpXT01RaVhTY0h2ZXYwandyc2dITnBQYmNNdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

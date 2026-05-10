@@ -1,0 +1,13 @@
+---
+title: "Corinthians x São Paulo: onde assistir ao vivo e horário do jogo pelo Brasileirão"
+description: "Corinthians x São Paulo: onde assistir ao vivo e horário do jogo pelo Brasileirão  GZH"
+pubDate: "2026-05-10T18:31:54.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMijAJBVV95cUxQbUwtT1AyTzY0V1dBOTJTYkoxSXpjdWhxcnNYX1dHTG1MUlNyLXR4UGNKRHdmSVhxWVFkZUlhUjBjZ1g4Tm5ZTUpEajljVnlUZWNqSVZkaWMxdnMtUGI5OWxfbWwxVU9YNC14LTlTdV9SRUowRHh3bnhMYm84NTM1LWZ2bUkwV0ZXM1l3RXM0aFQwSmdkblVOTDZJeEdScDk5NDhjUUFyZXZZSzNMNmVxSjJWVzh5RjgzeHNCblpGUEhZSWFwbVZVYnJmVk9TQkowUG5Sdkd0ZHdJQ1luNWljdDFmbnZRazdlVkN0c1Y0OHJpM2pzbjdZMHFiY3pNRUNlR3RWWjk2TmJWbTZl?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAJBVV95cUxQbUwtT1AyTzY0V1dBOTJTYkoxSXpjdWhxcnNYX1dHTG1MUlNyLXR4UGNKRHdmSVhxWVFkZUlhUjBjZ1g4Tm5ZTUpEajljVnlUZWNqSVZkaWMxdnMtUGI5OWxfbWwxVU9YNC14LTlTdV9SRUowRHh3bnhMYm84NTM1LWZ2bUkwV0ZXM1l3RXM0aFQwSmdkblVOTDZJeEdScDk5NDhjUUFyZXZZSzNMNmVxSjJWVzh5RjgzeHNCblpGUEhZSWFwbVZVYnJmVk9TQkowUG5Sdkd0ZHdJQ1luNWljdDFmbnZRazdlVkN0c1Y0OHJpM2pzbjdZMHFiY3pNRUNlR3RWWjk2TmJWbTZl?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
