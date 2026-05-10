@@ -1,0 +1,13 @@
+---
+title: "Calleri revê vítima preferida pelo São Paulo e busca encerrar maior seca do ano"
+description: "Calleri revê vítima preferida pelo São Paulo e busca encerrar maior seca do ano  Gazeta Esportiva"
+pubDate: "2026-05-10T10:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMikgFBVV95cUxNZld0cnNIS0tfazNXOFNvOFRfcWNjdnlLd3A0ZjlUZkdOUk96UXg5MmZsOXY0Q2hsLUdTZlN2a3JsNG5ORldBclZOQjJzWjctWFlSaV83bGhjSUEwc0lLNUU0TjduNUNWSjhPUjE1MFNGNnVuMzRvRlhJeGlrMEVQQUMzb09NY2tlejZiUWZOWGhnd9IBlwFBVV95cUxQb2cxMThDSjRXMkZVQUxIMlBnelNqanZpUFlGNUcza0ZSdmxBaWxobEtnX3lLR1F5VzZHQ3dJVzFuSzg1dkFfR1R0X1BuYXBCek5FaTZGdkpUS0ZVQk1DQjk5aHdkNDZ1Y2ZSY3V6c3doRU1CUU82R2hMUnFOUWJJZ1ZxdzN5MzVzSktzLW9JRFlySEJTTzJz?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgFBVV95cUxNZld0cnNIS0tfazNXOFNvOFRfcWNjdnlLd3A0ZjlUZkdOUk96UXg5MmZsOXY0Q2hsLUdTZlN2a3JsNG5ORldBclZOQjJzWjctWFlSaV83bGhjSUEwc0lLNUU0TjduNUNWSjhPUjE1MFNGNnVuMzRvRlhJeGlrMEVQQUMzb09NY2tlejZiUWZOWGhnd9IBlwFBVV95cUxQb2cxMThDSjRXMkZVQUxIMlBnelNqanZpUFlGNUcza0ZSdmxBaWxobEtnX3lLR1F5VzZHQ3dJVzFuSzg1dkFfR1R0X1BuYXBCek5FaTZGdkpUS0ZVQk1DQjk5aHdkNDZ1Y2ZSY3V6c3doRU1CUU82R2hMUnFOUWJJZ1ZxdzN5MzVzSktzLW9JRFlySEJTTzJz?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
