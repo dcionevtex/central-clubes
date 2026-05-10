@@ -1,0 +1,13 @@
+---
+title: "Vasco contratando zagueiro do São Paulo tem atualização confirmada hoje (10)"
+description: "Vasco contratando zagueiro do São Paulo tem atualização confirmada hoje (10)  TV Foco"
+pubDate: "2026-05-10T16:00:00.000Z"
+source: "TV Foco"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxNeTlXLUxpTkJDa1o5d0c3QjlNNHgzRlJsMi1seXBhZ1ItOUtYRFI1VDhuaVdCVHBaUjVOQVZtR2w2V0xnZGZEWlhycnp5S29DSjl1VWVCbmczWWlFTTRZRDZqNXRvRUdneFo0NGdBVHBBaUU3RjhsZmwzaXVaOGRoQlBzek3SAYQBQVVfeXFMTXk5Vy1MaU5CQ2taOXdHN0I5TTR4M0ZSbDItbHlwYWdSLTlLWERSNVQ4bmlXQlRwWlI1TkFWbUdsNldMZ2RmRFpYcnJ6eUtvQ0o5dVVlQm5nM1lpRU00WUQ2ajV0b0VHZ3haNDRnQVRwQWlFN0Y4bGZsM2l1WjhkaEJQc3pN?oc=5"
+---
+
+### Fonte Original: TV Foco
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxNeTlXLUxpTkJDa1o5d0c3QjlNNHgzRlJsMi1seXBhZ1ItOUtYRFI1VDhuaVdCVHBaUjVOQVZtR2w2V0xnZGZEWlhycnp5S29DSjl1VWVCbmczWWlFTTRZRDZqNXRvRUdneFo0NGdBVHBBaUU3RjhsZmwzaXVaOGRoQlBzek3SAYQBQVVfeXFMTXk5Vy1MaU5CQ2taOXdHN0I5TTR4M0ZSbDItbHlwYWdSLTlLWERSNVQ4bmlXQlRwWlI1TkFWbUdsNldMZ2RmRFpYcnJ6eUtvQ0o5dVVlQm5nM1lpRU00WUQ2ajV0b0VHZ3haNDRnQVRwQWlFN0Y4bGZsM2l1WjhkaEJQc3pN?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
