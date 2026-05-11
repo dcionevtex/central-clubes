@@ -1,0 +1,13 @@
+---
+title: "Gigante da Série A quer contratar lateral do São Paulo"
+description: "Gigante da Série A quer contratar lateral do São Paulo  Portal Hortolândia"
+pubDate: "2026-05-11T22:16:41.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE5tUFRpeFdWaHhQaEQwanljNHRWTjBEenVvT1VKVUJPcXpUcFIwREVSQXFhWXlNWkExMENrMDZWUDBOVUFiOS1HOWlralc4Z1lCdTBYLUhqUnFXYWdTYnRMeHRaeHlpV3ZNNnFSQlc1T1VKb0x1R056ZmZ30gF6QVVfeXFMTm1QVGl4V1ZoeFBoRDBqeWM0dFZOMER6dW9PVUpVQk9xelRwUjBERVJBcWFZeU1aQTEwQ2swNlZQME5VQWI5LUc5aWtqVzhnWUJ1MFgtSGpScVdhZ1NidEx4dFp4eWlXdk02cVJCVzVPVUpvTHVHTnpmZnc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE5tUFRpeFdWaHhQaEQwanljNHRWTjBEenVvT1VKVUJPcXpUcFIwREVSQXFhWXlNWkExMENrMDZWUDBOVUFiOS1HOWlralc4Z1lCdTBYLUhqUnFXYWdTYnRMeHRaeHlpV3ZNNnFSQlc1T1VKb0x1R056ZmZ30gF6QVVfeXFMTm1QVGl4V1ZoeFBoRDBqeWM0dFZOMER6dW9PVUpVQk9xelRwUjBERVJBcWFZeU1aQTEwQ2swNlZQME5VQWI5LUc5aWtqVzhnWUJ1MFgtSGpScVdhZ1NidEx4dFp4eWlXdk02cVJCVzVPVUpvTHVHTnpmZnc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

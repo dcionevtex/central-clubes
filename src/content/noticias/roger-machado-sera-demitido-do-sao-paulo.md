@@ -1,0 +1,13 @@
+---
+title: "Roger Machado será demitido do São Paulo?"
+description: "Roger Machado será demitido do São Paulo?  ACidade ON"
+pubDate: "2026-05-11T20:20:00.000Z"
+source: "ACidade ON"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxQMDhwU3VQaklUM2FwQ0oybHM1d1JFZ0VfbjRxVVJqUEdGQ1FyLVYyM2UtNmRPOHBiLV9iNlJvaTBMX2hobmk0a1pLQ3ItbjBoMExodTVGRHY1ai1tRG9tUlF6dGZQZkpsSVYwcWtxT0FzMlU5Z1hNem1LRkZyMU9UdUVBMVc1a3hPTjAzTWlMbm9tb1RlckVWOdIBngFBVV95cUxNSHJfRzN4RGVvYmp3dzJhd2tJdzdyQzJtd0RDeXc2T3lrcnVqVXlOejlNb1VtN1IyaXltSW9FcVhDZWxvX05KcFBsQVBNY1VPVjRBcnZiN0ZralRkMnEyem1NdFh6VVdOdm5pVGNsLThpMm81MDlMeUx4MEpMOGtTVHA3U1B6SlkzTEw5TU43RjhLdXgwMGp5T0M2MWowZw?oc=5"
+---
+
+### Fonte Original: ACidade ON
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxQMDhwU3VQaklUM2FwQ0oybHM1d1JFZ0VfbjRxVVJqUEdGQ1FyLVYyM2UtNmRPOHBiLV9iNlJvaTBMX2hobmk0a1pLQ3ItbjBoMExodTVGRHY1ai1tRG9tUlF6dGZQZkpsSVYwcWtxT0FzMlU5Z1hNem1LRkZyMU9UdUVBMVc1a3hPTjAzTWlMbm9tb1RlckVWOdIBngFBVV95cUxNSHJfRzN4RGVvYmp3dzJhd2tJdzdyQzJtd0RDeXc2T3lrcnVqVXlOejlNb1VtN1IyaXltSW9FcVhDZWxvX05KcFBsQVBNY1VPVjRBcnZiN0ZralRkMnEyem1NdFh6VVdOdm5pVGNsLThpMm81MDlMeUx4MEpMOGtTVHA3U1B6SlkzTEw5TU43RjhLdXgwMGp5T0M2MWowZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
