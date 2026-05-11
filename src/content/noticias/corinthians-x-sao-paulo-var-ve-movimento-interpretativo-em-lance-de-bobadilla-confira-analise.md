@@ -1,0 +1,13 @@
+---
+title: "Corinthians x São Paulo: VAR vê “movimento interpretativo” em lance de Bobadilla; confira análise"
+description: "Corinthians x São Paulo: VAR vê “movimento interpretativo” em lance de Bobadilla; confira análise  Gazeta Esportiva"
+pubDate: "2026-05-11T13:03:46.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxQWDFETG1MUWFXanNDTDczZGVDWjZpOU5NYW95dHJQTTJsRkE4QUNYT0xmdzNWNGZiUUNmMjJFaGJ0QkVvYUpCaTNMQWVTTzlMQUI3cXh5U2RXbUNmUkEwYmRqRjhwdndJbmJ3c21ESjR3cmQ3T2tQTk5maVdIXzJKTkVua3ZJY25MTHprOXhEV1FmVVpnQThSVmg0eUFucDDSAZ8BQVVfeXFMUFgxRExtTFFhV2pzQ0w3M2RlQ1o2aTlOTWFveXRyUE0ybEZBOEFDWE9MZnczVjRmYlFDZjIyRWhidEJFb2FKQmkzTEFlU085TEFCN3F4eVNkV21DZlJBMGJkakY4cHZ3SW5id3NtREo0d3JkN09rUE5OZmlXSF8ySk5Fbmt2SWNuTEx6azl4RFdRZlVaZ0E4UlZoNHlBbnAw?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxQWDFETG1MUWFXanNDTDczZGVDWjZpOU5NYW95dHJQTTJsRkE4QUNYT0xmdzNWNGZiUUNmMjJFaGJ0QkVvYUpCaTNMQWVTTzlMQUI3cXh5U2RXbUNmUkEwYmRqRjhwdndJbmJ3c21ESjR3cmQ3T2tQTk5maVdIXzJKTkVua3ZJY25MTHprOXhEV1FmVVpnQThSVmg0eUFucDDSAZ8BQVVfeXFMUFgxRExtTFFhV2pzQ0w3M2RlQ1o2aTlOTWFveXRyUE0ybEZBOEFDWE9MZnczVjRmYlFDZjIyRWhidEJFb2FKQmkzTEFlU085TEFCN3F4eVNkV21DZlJBMGJkakY4cHZ3SW5id3NtREo0d3JkN09rUE5OZmlXSF8ySk5Fbmt2SWNuTEx6azl4RFdRZlVaZ0E4UlZoNHlBbnAw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

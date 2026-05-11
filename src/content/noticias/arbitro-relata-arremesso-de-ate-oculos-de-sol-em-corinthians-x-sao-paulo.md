@@ -1,0 +1,13 @@
+---
+title: "Árbitro relata arremesso de até óculos de sol em Corinthians x São Paulo"
+description: "Árbitro relata arremesso de até óculos de sol em Corinthians x São Paulo  UOL"
+pubDate: "2026-05-11T12:20:56.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMimAJBVV95cUxOTXEzbWc5NDN3V1h2eVAybkVJY0RlTk4xTmp6RVEzcXlobm9kY3FKQ3pRSFFkeGx1MTM3eUNMTVN0ME9pa2pmMXFiS1lhZzFKVzFKQlgyUWNYTVFVVTFxeVJlTUdORFFRNlg0Z0ViTHRkOVd5RngwVUhXNkItTGhlQWlDVjc3bnkzcnFLMktDYkJhSmRyM0kwTzZfOVVmY0hERDhKOWQwa1Q2ZUxDbEdfR0NlWHhERGp2S3ZPTUROc2V6Q1pzcC1ZY3d5TUQ0bF82clNrTUhMVnZjQ1NfM3Y3WG4yckw1YmtUUTRza0xMNEtzS2E5T3NnQTE0YXFhZ1dIZm1iS1VWR1dzb1ZsSVdjQWhtVV9WNEFp?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAJBVV95cUxOTXEzbWc5NDN3V1h2eVAybkVJY0RlTk4xTmp6RVEzcXlobm9kY3FKQ3pRSFFkeGx1MTM3eUNMTVN0ME9pa2pmMXFiS1lhZzFKVzFKQlgyUWNYTVFVVTFxeVJlTUdORFFRNlg0Z0ViTHRkOVd5RngwVUhXNkItTGhlQWlDVjc3bnkzcnFLMktDYkJhSmRyM0kwTzZfOVVmY0hERDhKOWQwa1Q2ZUxDbEdfR0NlWHhERGp2S3ZPTUROc2V6Q1pzcC1ZY3d5TUQ0bF82clNrTUhMVnZjQ1NfM3Y3WG4yckw1YmtUUTRza0xMNEtzS2E5T3NnQTE0YXFhZ1dIZm1iS1VWR1dzb1ZsSVdjQWhtVV9WNEFp?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

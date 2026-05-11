@@ -1,0 +1,13 @@
+---
+title: "Atuações do Corinthians: veja quem foi bem e quem foi mal na vitória no Majestoso"
+description: "Atuações do Corinthians: veja quem foi bem e quem foi mal na vitória no Majestoso  Gazeta Esportiva"
+pubDate: "2026-05-11T08:02:33.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxQMjNhNEdjUk9qWE5KenplcW1RVkZKMmpRODB0OWRSYWN1R0NYRVhBNmhRbEZpYV9YY3U2aUpvOTBPZkctU0lwc0hUd2Jqb1N3MTVoOFB6YUt2c09WVGlOYWxRbEtyaHVibXZNZjREUWxBb1JxOHlCUTlJbGt6dVg2NVd1YmZaWjNEX1FBa0pQUHljM0EwS1h4UFlsWW1NdThCYm9fOWJB0gGmAUFVX3lxTFAyM2E0R2NST2pYTkp6emVxbVFWRkoyalE4MHQ5ZFJhY3VHQ1hFWEE2aFFsRmlhX1hjdTZpSm85ME9mRy1TSXBzSFR3YmpvU3cxNWg4UHphS3ZzT1ZUaU5hbFFsS3JodWJtdk1mNERRbEFvUnE4eUJROUlsa3p1WDY1V3ViZlpaM0RfUUFrSlBQeWMzQTBLWHhQWWxZbU11OEJib185YkE?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxQMjNhNEdjUk9qWE5KenplcW1RVkZKMmpRODB0OWRSYWN1R0NYRVhBNmhRbEZpYV9YY3U2aUpvOTBPZkctU0lwc0hUd2Jqb1N3MTVoOFB6YUt2c09WVGlOYWxRbEtyaHVibXZNZjREUWxBb1JxOHlCUTlJbGt6dVg2NVd1YmZaWjNEX1FBa0pQUHljM0EwS1h4UFlsWW1NdThCYm9fOWJB0gGmAUFVX3lxTFAyM2E0R2NST2pYTkp6emVxbVFWRkoyalE4MHQ5ZFJhY3VHQ1hFWEE2aFFsRmlhX1hjdTZpSm85ME9mRy1TSXBzSFR3YmpvU3cxNWg4UHphS3ZzT1ZUaU5hbFFsS3JodWJtdk1mNERRbEFvUnE4eUJROUlsa3p1WDY1V3ViZlpaM0RfUUFrSlBQeWMzQTBLWHhQWWxZbU11OEJib185YkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
