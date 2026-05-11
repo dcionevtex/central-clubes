@@ -1,0 +1,13 @@
+---
+title: "São Paulo sondou Dorival Júnior? Entenda fala do presidente em áudio vazado"
+description: "São Paulo sondou Dorival Júnior? Entenda fala do presidente em áudio vazado  Rádio Itatiaia"
+pubDate: "2026-05-11T19:41:30.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMingJBVV95cUxPVDhweGpBLWlBVWFyTHRSSG5Cd19fenkwdklRejdRQzRSQ3Y1OWVNX256bHp6RjFQbEp4MU95N0Z0c08xcnQzc1htdUZKblN6SFZnTFQ5Q25welRwVFVSeEY5WHpJd2RJeFp3YkFuMFBGSmhER0x2d1Q5bDUzcVRwaGJ5NU1BWUZjU2VaYVgzeVRoOEVKRDZ0NVdqWkN4WExVR0x4ODBVMnk0NWttanpNMFFZaDVLbU9JZkFUYUJMcnJTeUlfMXVNNmxCZVpKV3MtU3FWaU80c3ByMXg2WUhydlRNMHNyNTlzTkV5V0pYZnN5ci1TSTgweDU2bnBHdm01S2dITm5FMk94VTA2RC1hSHlrdGdhbUl6N0R6Z2V3?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingJBVV95cUxPVDhweGpBLWlBVWFyTHRSSG5Cd19fenkwdklRejdRQzRSQ3Y1OWVNX256bHp6RjFQbEp4MU95N0Z0c08xcnQzc1htdUZKblN6SFZnTFQ5Q25welRwVFVSeEY5WHpJd2RJeFp3YkFuMFBGSmhER0x2d1Q5bDUzcVRwaGJ5NU1BWUZjU2VaYVgzeVRoOEVKRDZ0NVdqWkN4WExVR0x4ODBVMnk0NWttanpNMFFZaDVLbU9JZkFUYUJMcnJTeUlfMXVNNmxCZVpKV3MtU3FWaU80c3ByMXg2WUhydlRNMHNyNTlzTkV5V0pYZnN5ci1TSTgweDU2bnBHdm01S2dITm5FMk94VTA2RC1hSHlrdGdhbUl6N0R6Z2V3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
