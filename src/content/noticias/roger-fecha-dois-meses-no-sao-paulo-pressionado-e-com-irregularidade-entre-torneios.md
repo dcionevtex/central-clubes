@@ -1,0 +1,13 @@
+---
+title: "Roger fecha dois meses no São Paulo pressionado e com irregularidade entre torneios"
+description: "Roger fecha dois meses no São Paulo pressionado e com irregularidade entre torneios  Rádio Itatiaia"
+pubDate: "2026-05-11T09:00:49.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMipwJBVV95cUxOVzhVVkJWOUpvbjJrV3Q4U0xjTENFRUxnMG1lUW5FclhiRFpTcHZia2xWdDJMU3lsem5uM1AxXzRZbjU5OWU5ODlwU09RN09EanQwa1VYWEZpUWZucy03cUU0TVo1UWQwRUNGMUp4ak1RT0NkS3RZUmZwMm1zcGlkTU8wWHZvVGdJTThKNFVOeHdhb2UyMVdySGtWbTZKSjFwNDFZUjAyTjRKSV9NZ0VfS1hERTQ1dWhnQl9veXV1ZEVISnJQUjZFclgyM0JMaFE5dURFMTBObzVpUkhydHZ6MURGQVFONEQtU1NUWVpkS09NcF9RZUZaVmxlZmU1ZTB3bjJhVTZtNXlCZGRjck1sU29mUEI3b091bGtyMGkzOXp4bGNjYXpB?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipwJBVV95cUxOVzhVVkJWOUpvbjJrV3Q4U0xjTENFRUxnMG1lUW5FclhiRFpTcHZia2xWdDJMU3lsem5uM1AxXzRZbjU5OWU5ODlwU09RN09EanQwa1VYWEZpUWZucy03cUU0TVo1UWQwRUNGMUp4ak1RT0NkS3RZUmZwMm1zcGlkTU8wWHZvVGdJTThKNFVOeHdhb2UyMVdySGtWbTZKSjFwNDFZUjAyTjRKSV9NZ0VfS1hERTQ1dWhnQl9veXV1ZEVISnJQUjZFclgyM0JMaFE5dURFMTBObzVpUkhydHZ6MURGQVFONEQtU1NUWVpkS09NcF9RZUZaVmxlZmU1ZTB3bjJhVTZtNXlCZGRjck1sU29mUEI3b091bGtyMGkzOXp4bGNjYXpB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
