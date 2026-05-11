@@ -1,0 +1,13 @@
+---
+title: "Garro celebra reação do Corinthians no clássico: “Demonstramos a força do grupo”"
+description: "Garro celebra reação do Corinthians no clássico: “Demonstramos a força do grupo”  Jogada 10"
+pubDate: "2026-05-11T00:23:48.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxPN2Jpb0pkMUk1b1FGYlN6Ny1VX085aElWbDk0VEVHVFR4bUkzUWk0U1otUVpvalB3TlMtYTJjQUlUay1zZ0FaMFk5aDhCRHRrcG1Vd2xCb2p2Y01DRlNjZjJST1BueE5BbFBYVTVTQXIxdlVaU1RuMTNmUXZBTHVnaGJ4UmM3bk1xbzM1bnFmWlFTbS1TR19Sa01tVVhBZWtXZUNZSdIBqgFBVV95cUxPTnczam85R3ZZMEZJLUMtY24zT3RGMGdUZUlENnlMRmdneUpjeWRHdGJUcC1qbE9Yb0VjSmMtMkNDTVpxOVUyZXJzdFdodk45TmY5cW1ERllucE1xSzd5VVZ4NlU1bFV3TFR5SnZsYzdZaXVHN2FReldFTmZLUU5xQ0dvQ0dQOXA5RFkxaEduMVdzZGFYYlkzUU5wOFdpMG5XZmpvZ2xLY1ppZw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxPN2Jpb0pkMUk1b1FGYlN6Ny1VX085aElWbDk0VEVHVFR4bUkzUWk0U1otUVpvalB3TlMtYTJjQUlUay1zZ0FaMFk5aDhCRHRrcG1Vd2xCb2p2Y01DRlNjZjJST1BueE5BbFBYVTVTQXIxdlVaU1RuMTNmUXZBTHVnaGJ4UmM3bk1xbzM1bnFmWlFTbS1TR19Sa01tVVhBZWtXZUNZSdIBqgFBVV95cUxPTnczam85R3ZZMEZJLUMtY24zT3RGMGdUZUlENnlMRmdneUpjeWRHdGJUcC1qbE9Yb0VjSmMtMkNDTVpxOVUyZXJzdFdodk45TmY5cW1ERllucE1xSzd5VVZ4NlU1bFV3TFR5SnZsYzdZaXVHN2FReldFTmZLUU5xQ0dvQ0dQOXA5RFkxaEduMVdzZGFYYlkzUU5wOFdpMG5XZmpvZ2xLY1ppZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

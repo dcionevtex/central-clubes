@@ -1,0 +1,13 @@
+---
+title: "Corinthians x São Paulo: Lateral comenta não expulsão de Bobadilla por gesto obsceno"
+description: "Corinthians x São Paulo: Lateral comenta não expulsão de Bobadilla por gesto obsceno  Rádio Itatiaia"
+pubDate: "2026-05-11T01:54:46.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMihgJBVV95cUxQcGNhR01tZEczS3dRNVBBd0hhNk5BeDRrcGZZeWROcVdiNmtGSk8wTzZvbWo3VU9wUWlHUC1wQVdfUkV1cXYtWlllbDVwc0d4b3ptQV95ang3RWszbFZ5YnRQYUVOLTREVGFMQ1dtQzBlRDdoVnNDdWZERUI5ckF3TU5LdTlhaWlFSjB1STRKYll1Si1iRUJNVnhicDBaalVMZGZReXhIQnIxN21yYW56WXFKb0hsUy1FdWxHTUNsT0x5VUFsRlpjTy05Y1diR1lTTnpaQzdsRktrQk95aVBlT0tvZjR4ZTF3RER4d3I2ZXlxbTFnTmZuWHNka3lIM1ZWYzhVSmxn?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgJBVV95cUxQcGNhR01tZEczS3dRNVBBd0hhNk5BeDRrcGZZeWROcVdiNmtGSk8wTzZvbWo3VU9wUWlHUC1wQVdfUkV1cXYtWlllbDVwc0d4b3ptQV95ang3RWszbFZ5YnRQYUVOLTREVGFMQ1dtQzBlRDdoVnNDdWZERUI5ckF3TU5LdTlhaWlFSjB1STRKYll1Si1iRUJNVnhicDBaalVMZGZReXhIQnIxN21yYW56WXFKb0hsUy1FdWxHTUNsT0x5VUFsRlpjTy05Y1diR1lTTnpaQzdsRktrQk95aVBlT0tvZjR4ZTF3RER4d3I2ZXlxbTFnTmZuWHNka3lIM1ZWYzhVSmxn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

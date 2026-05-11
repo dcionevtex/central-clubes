@@ -1,0 +1,13 @@
+---
+title: "Roger não descarta volta de Arboleda no São Paulo: “Quem sabe pode nos ajudar”"
+description: "Roger não descarta volta de Arboleda no São Paulo: “Quem sabe pode nos ajudar”  Jogada 10"
+pubDate: "2026-05-11T01:26:06.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxPWDlHMS1VbDlwVERSZVlXNlVTRUtNMlRWTGhldGFuVDUtSTFLeHdGNHQyS3VOSkRuSVZ3QUNkTDk1VWdHNjlLdkJ5R1ZUajU4SnE1R2cwMHhMQW9YdUh0MEx6WGRuWUhBQXc3aEd3UmVaOTZiN2NUUEJUSTdmSm16b2NPaXpkNkE1MzdyS2wwd2VaMlQ4ZGVYZmstTW5RdmY4T3fSAacBQVVfeXFMTkpDd2xIdUNFZ2pDd3M2NG9IQ3VhTGZ4Zm91NjlYUlBpdkdoNThzcjlxVDgxaUFqc0dPRm1pOC1yM3prM3dza1RkRlFlOUdLSVFaUDhQOVl3dnU2eENqa3R4U0dORDIxME9HejVHZWE0YUlTNXo1aWMwNm8tRVFPRFF5bU9LX2lUUVliSlF0dlBZQUx5THF6MFFqdFhOVC1EM3p6cVBmc00?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxPWDlHMS1VbDlwVERSZVlXNlVTRUtNMlRWTGhldGFuVDUtSTFLeHdGNHQyS3VOSkRuSVZ3QUNkTDk1VWdHNjlLdkJ5R1ZUajU4SnE1R2cwMHhMQW9YdUh0MEx6WGRuWUhBQXc3aEd3UmVaOTZiN2NUUEJUSTdmSm16b2NPaXpkNkE1MzdyS2wwd2VaMlQ4ZGVYZmstTW5RdmY4T3fSAacBQVVfeXFMTkpDd2xIdUNFZ2pDd3M2NG9IQ3VhTGZ4Zm91NjlYUlBpdkdoNThzcjlxVDgxaUFqc0dPRm1pOC1yM3prM3dza1RkRlFlOUdLSVFaUDhQOVl3dnU2eENqa3R4U0dORDIxME9HejVHZWE0YUlTNXo1aWMwNm8tRVFPRFF5bU9LX2lUUVliSlF0dlBZQUx5THF6MFFqdFhOVC1EM3p6cVBmc00?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Corinthians bate o São Paulo em clássico bem jogado em Itaquera, mas segue na luta contra o Z-4"
+description: "Corinthians bate o São Paulo em clássico bem jogado em Itaquera, mas segue na luta contra o Z-4  Estadão"
+pubDate: "2026-05-10T23:46:00.000Z"
+source: "Estadão"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxPb29va19nRVozbzI0cU9EV1dNalFGV205NjhSZDA5UklJWlYyUVcycDFyLUkzQkFRaW5IYXotT1BhcUlhR0lZYVZuZk5fTkdNaFY4QUpUcV9BQlQzc1BxZVJienlJYXpwQ0FjVEY0VjlIRjRnYjlWU2w2bHN5NEg0MkY1NnpVOWpxenpRWUoyOERDV29abWpqWkpFbF94dVnSAaQBQVVfeXFMTTM2elFvSENPcnFJY2JJZU5KNldmYkNjeFBlaERxMFlocEx5dHN1Q0RpZDRHZzBudk1VMjliR1dVOEhLSHh0eU5BeEQ5UU9aUmJTMFdzWjNsbEtaS0VOR2otQWd6MVRNV0N6azNWZ1dIMHc4R0czZ0M4QTlQYTBIRnFHY2hTZUtrNlRlZFExNlNDMjFHRlBRMlR1Y1NMMHhLZVRIMDY?oc=5"
+---
+
+### Fonte Original: Estadão
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxPb29va19nRVozbzI0cU9EV1dNalFGV205NjhSZDA5UklJWlYyUVcycDFyLUkzQkFRaW5IYXotT1BhcUlhR0lZYVZuZk5fTkdNaFY4QUpUcV9BQlQzc1BxZVJienlJYXpwQ0FjVEY0VjlIRjRnYjlWU2w2bHN5NEg0MkY1NnpVOWpxenpRWUoyOERDV29abWpqWkpFbF94dVnSAaQBQVVfeXFMTTM2elFvSENPcnFJY2JJZU5KNldmYkNjeFBlaERxMFlocEx5dHN1Q0RpZDRHZzBudk1VMjliR1dVOEhLSHh0eU5BeEQ5UU9aUmJTMFdzWjNsbEtaS0VOR2otQWd6MVRNV0N6azNWZ1dIMHc4R0czZ0M4QTlQYTBIRnFHY2hTZUtrNlRlZFExNlNDMjFHRlBRMlR1Y1NMMHhLZVRIMDY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

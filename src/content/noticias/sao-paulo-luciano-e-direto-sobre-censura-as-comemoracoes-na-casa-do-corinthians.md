@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Luciano é direto sobre 'censura' às comemorações na casa do Corinthians"
+description: "São Paulo: Luciano é direto sobre 'censura' às comemorações na casa do Corinthians  Rádio Itatiaia"
+pubDate: "2026-05-11T01:23:45.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMipAJBVV95cUxOc0xCckJMVjFfTF8yTE8xVzluOU1yQ3lBcm5tVk9UZXUtRWxjQnk5blllNndnWjhLZm8tQ3Ftc3g2T3J2YXZNdzh0NDJUY0RwbFJfY3ZXUWtuVEJCeFBVcFZQemRTLUdfSjh4ZFM5ZFhvYkRLT05sbDgtQ3dQemFxT3NYc0piamQ5VzdoWGJvR1RzVE0ydTd5QVJidzFrcTliOXE3WWlqZHVHbjlDTXp3OGZPVEJFUlV3UWNzOC1NYko5TzUyNTFIZGwzN240V0QxcnNOMy1GaHc1el95Y1N3bVBzeUdDbTRpSWp3VEpIMWVvV2s4eHhhRHJpc182RGV2UTc0Y2ZzR0FKTndpUEIxNWRqVUhWV01HN2haRnd6SmVwVHBW?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAJBVV95cUxOc0xCckJMVjFfTF8yTE8xVzluOU1yQ3lBcm5tVk9UZXUtRWxjQnk5blllNndnWjhLZm8tQ3Ftc3g2T3J2YXZNdzh0NDJUY0RwbFJfY3ZXUWtuVEJCeFBVcFZQemRTLUdfSjh4ZFM5ZFhvYkRLT05sbDgtQ3dQemFxT3NYc0piamQ5VzdoWGJvR1RzVE0ydTd5QVJidzFrcTliOXE3WWlqZHVHbjlDTXp3OGZPVEJFUlV3UWNzOC1NYko5TzUyNTFIZGwzN240V0QxcnNOMy1GaHc1el95Y1N3bVBzeUdDbTRpSWp3VEpIMWVvV2s4eHhhRHJpc182RGV2UTc0Y2ZzR0FKTndpUEIxNWRqVUhWV01HN2haRnd6SmVwVHBW?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
