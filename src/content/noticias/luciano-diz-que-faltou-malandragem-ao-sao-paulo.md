@@ -1,0 +1,13 @@
+---
+title: "Luciano diz que faltou \"malandragem\" ao São Paulo"
+description: "Luciano diz que faltou \"malandragem\" ao São Paulo  ABCD Jornal"
+pubDate: "2026-05-11T16:00:52.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxOS3BLeERQY2UzdGxkSGh6b2MwVmdZVXdLeWF3bU1ieVllYzVpRVQ0Y21CdG1DeTlqU0NOdmVHRWZkUVZqUmFMTnlpVGpfdThnNm1INl9FeUpsM3dIS0VqRFJ3enVEcWhOb1JnR3BrUnh0dk9VWmw1S1lfS2ZVWTNxcjBUd1VTNmNhRjk5VktWbzhYV1Fkbk1kNm1GU0NLaW1kNmdR0gGoAUFVX3lxTE0zQlFKVlo5a0hwdVVOaVpmVTJsWldXWnJSNHJXVEdiZ3ByYzRidWw5c2JodHNEbWNNM0FjNFFaTkxfd1FSMUtMRkluZ0pLZUhkOHZKekNlRFZfWEh0c0M5QTJCVXRWTVZIOHV2cHgwbHNNNnNTaDk0RWZ0c2I2aDJXMEdORDRfZUtCbVM1ZnFMbjVZSDllVGJId1dkYU9IQmR0TXFBdzdhbw?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxOS3BLeERQY2UzdGxkSGh6b2MwVmdZVXdLeWF3bU1ieVllYzVpRVQ0Y21CdG1DeTlqU0NOdmVHRWZkUVZqUmFMTnlpVGpfdThnNm1INl9FeUpsM3dIS0VqRFJ3enVEcWhOb1JnR3BrUnh0dk9VWmw1S1lfS2ZVWTNxcjBUd1VTNmNhRjk5VktWbzhYV1Fkbk1kNm1GU0NLaW1kNmdR0gGoAUFVX3lxTE0zQlFKVlo5a0hwdVVOaVpmVTJsWldXWnJSNHJXVEdiZ3ByYzRidWw5c2JodHNEbWNNM0FjNFFaTkxfd1FSMUtMRkluZ0pLZUhkOHZKekNlRFZfWEh0c0M5QTJCVXRWTVZIOHV2cHgwbHNNNnNTaDk0RWZ0c2I2aDJXMEdORDRfZUtCbVM1ZnFMbjVZSDllVGJId1dkYU9IQmR0TXFBdzdhbw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

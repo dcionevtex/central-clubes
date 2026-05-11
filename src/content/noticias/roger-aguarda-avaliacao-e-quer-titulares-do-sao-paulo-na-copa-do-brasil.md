@@ -1,0 +1,13 @@
+---
+title: "Roger aguarda avaliação e quer titulares do São Paulo na Copa do Brasil"
+description: "Roger aguarda avaliação e quer titulares do São Paulo na Copa do Brasil  Jogada 10"
+pubDate: "2026-05-11T14:47:41.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxNUllCMFZ1N2NqR2M3aFFPaGZvVklVWEhhS2tmaC10QWY3UlFiN1BPWnJjX2hiOXAyZVZ5OEo1LTlfR2NCbnVZTUd5VmppU3lweWI2bHlOZWlvVDloaTIxRHNLcWU5MHluV05xOGZOd2djQ3drVmNMWlUydV9UY1dkck94azEzNFF2ZEFyTlljZi1pWFM2WEhsdFFDRnjSAaIBQVVfeXFMTnFnLUdfT2l0R2FUblIyQ0dJalpvNW1GZ3Q1TUlMUlBLZmZ3ZFhfYkVEbVRPTkRXV0pqYTlRenVvVTI0R2Q3UzlPeXZ0WGxsalhUblJ4MjhNMUNyS19hMlR6Rl9xYzlhWl82aHZ3UmFlWjk2RmFmRGduT1VuRTJVdVhxTkNhY1FFQzZiUDZyVEd6TnpiRDQwMTdyc1FpSlM1Rmp3?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxNUllCMFZ1N2NqR2M3aFFPaGZvVklVWEhhS2tmaC10QWY3UlFiN1BPWnJjX2hiOXAyZVZ5OEo1LTlfR2NCbnVZTUd5VmppU3lweWI2bHlOZWlvVDloaTIxRHNLcWU5MHluV05xOGZOd2djQ3drVmNMWlUydV9UY1dkck94azEzNFF2ZEFyTlljZi1pWFM2WEhsdFFDRnjSAaIBQVVfeXFMTnFnLUdfT2l0R2FUblIyQ0dJalpvNW1GZ3Q1TUlMUlBLZmZ3ZFhfYkVEbVRPTkRXV0pqYTlRenVvVTI0R2Q3UzlPeXZ0WGxsalhUblJ4MjhNMUNyS19hMlR6Rl9xYzlhWl82aHZ3UmFlWjk2RmFmRGduT1VuRTJVdVhxTkNhY1FFQzZiUDZyVEd6TnpiRDQwMTdyc1FpSlM1Rmp3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
