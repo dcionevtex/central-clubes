@@ -1,0 +1,13 @@
+---
+title: "São Paulo banca Roger Machado mesmo sob forte pressão"
+description: "São Paulo banca Roger Machado mesmo sob forte pressão  Bolavip Brasil"
+pubDate: "2026-05-11T17:02:33.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxQTFFadEVJNk04ZG1uXzdrOFk2NE4zVlMxNHM4cW1DaDN0allLb3lOTC1IS3Rfd3FSWkhhRDNOSzRkYUtWNmExQTZPcUs0U1duYV9WRHFjVkl3dGJJVWRSYXhtQ0xUSWxjVTZ5Mk05enNuRHQtZzF4MElROWxmTU8xdVpBcHdyeVppQ1drZTlFb9IBlAFBVV95cUxPcHRtZG96RUFKTm5uTU5QN2w2aXBEd3d3TXVMcDBvYThMR2hfalp6U2dKLXZPeFJ3NDJnblZmZ0R3akhrX0lwZTlGU2dQQTUtM2E0T3B4Y2YteEZ6Sl9Oc3NfQWhuSWxPU2ZzNUhOWUltTmtMLVV1RmhIOFdFNUVUa0ZVajhoYVpJV3BhM1d0UVJ3QWkw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxQTFFadEVJNk04ZG1uXzdrOFk2NE4zVlMxNHM4cW1DaDN0allLb3lOTC1IS3Rfd3FSWkhhRDNOSzRkYUtWNmExQTZPcUs0U1duYV9WRHFjVkl3dGJJVWRSYXhtQ0xUSWxjVTZ5Mk05enNuRHQtZzF4MElROWxmTU8xdVpBcHdyeVppQ1drZTlFb9IBlAFBVV95cUxPcHRtZG96RUFKTm5uTU5QN2w2aXBEd3d3TXVMcDBvYThMR2hfalp6U2dKLXZPeFJ3NDJnblZmZ0R3akhrX0lwZTlGU2dQQTUtM2E0T3B4Y2YteEZ6Sl9Oc3NfQWhuSWxPU2ZzNUhOWUltTmtMLVV1RmhIOFdFNUVUa0ZVajhoYVpJV3BhM1d0UVJ3QWkw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

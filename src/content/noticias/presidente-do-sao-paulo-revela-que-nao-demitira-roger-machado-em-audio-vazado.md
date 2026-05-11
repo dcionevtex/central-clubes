@@ -1,0 +1,13 @@
+---
+title: "Presidente do São Paulo revela que não demitirá Roger Machado em áudio vazado"
+description: "Presidente do São Paulo revela que não demitirá Roger Machado em áudio vazado  Rádio Itatiaia"
+pubDate: "2026-05-11T18:26:45.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiogJBVV95cUxQYVo4Q0czVjNDSlU3ZTBKdlZoLS1LVnpSYjdsVWJGQjg5WjNWdlVFanp0VE9MS01ENlphWXZJNjRsQmREN04xWFROQklmX293MVRDR3BVcFlzQVA1Z2tiaUFyVWlLM2ZuZW8zTXJLVE81TENlR09CQzhIdldSMFBLcFN1UUp1SThxWVdlNzRyZ0wxdGwwWWdxSWJFbndSS3Y0M0tTREFaS3hiam1HdkFqMVNObnZsdWxYdEZEMDFXRmx3SGowWmFNUWJXZjZvRFpwc3NHUlI0aE04YjBTNkpXMGFyVTdEbFpLS0V4Z2JGeU1kZXFQM2ZMU1g4TkxITnpQSXN0NzBKd19wM3ZIdEs4elB5X0M5QWNfNUdrejhkcnlsdw?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogJBVV95cUxQYVo4Q0czVjNDSlU3ZTBKdlZoLS1LVnpSYjdsVWJGQjg5WjNWdlVFanp0VE9MS01ENlphWXZJNjRsQmREN04xWFROQklmX293MVRDR3BVcFlzQVA1Z2tiaUFyVWlLM2ZuZW8zTXJLVE81TENlR09CQzhIdldSMFBLcFN1UUp1SThxWVdlNzRyZ0wxdGwwWWdxSWJFbndSS3Y0M0tTREFaS3hiam1HdkFqMVNObnZsdWxYdEZEMDFXRmx3SGowWmFNUWJXZjZvRFpwc3NHUlI0aE04YjBTNkpXMGFyVTdEbFpLS0V4Z2JGeU1kZXFQM2ZMU1g4TkxITnpQSXN0NzBKd19wM3ZIdEs4elB5X0M5QWNfNUdrejhkcnlsdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

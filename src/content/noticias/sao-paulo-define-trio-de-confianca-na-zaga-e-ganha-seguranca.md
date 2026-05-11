@@ -1,0 +1,13 @@
+---
+title: "São Paulo define trio de confiança na zaga e ganha segurança"
+description: "São Paulo define trio de confiança na zaga e ganha segurança  Bolavip Brasil"
+pubDate: "2026-05-11T16:33:21.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxOM24zX29uM0Z0b3lyX3BQRmNjaEJ3TERNUkd1R09DTWphdXNGOXQwWHJjS0tGRkdhRFphNXZrMk1VU0RUTXI5QzJOWm94YmR2M3BWUmQ3WGdOT0lsaGV4VG5vT3gyb0VPWVEwSnBOelpmTW04OGRhM00zS2JKLXlKbFU2cnlISl80bE04YkFHWHpDNWluZDRpT9IBngFBVV95cUxOWHcwZW4wUVNzNHdGWkF5dGZ5eDgtTmVXbjNieTlUVXhjNEVwU0VmNFktUktXa2x1eTQ1VDJZVlhnX1ZzdmZMSW9Vb0dTdWNYZmM4dlRNUGpWZVNoR21UT2NyXy16TFpyc01Ra2YzdmY5dUZPUUpUamVmZ2dRMVVTb25ublotTlUtU2FNY1VOcVIwNU05TjNfUHo1Z2tJdw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxOM24zX29uM0Z0b3lyX3BQRmNjaEJ3TERNUkd1R09DTWphdXNGOXQwWHJjS0tGRkdhRFphNXZrMk1VU0RUTXI5QzJOWm94YmR2M3BWUmQ3WGdOT0lsaGV4VG5vT3gyb0VPWVEwSnBOelpmTW04OGRhM00zS2JKLXlKbFU2cnlISl80bE04YkFHWHpDNWluZDRpT9IBngFBVV95cUxOWHcwZW4wUVNzNHdGWkF5dGZ5eDgtTmVXbjNieTlUVXhjNEVwU0VmNFktUktXa2x1eTQ1VDJZVlhnX1ZzdmZMSW9Vb0dTdWNYZmM4dlRNUGpWZVNoR21UT2NyXy16TFpyc01Ra2YzdmY5dUZPUUpUamVmZ2dRMVVTb25ublotTlUtU2FNY1VOcVIwNU05TjNfUHo1Z2tJdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
