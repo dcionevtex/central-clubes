@@ -1,0 +1,13 @@
+---
+title: "STJD denuncia o Corinthians em três artigos por problemas contra o São Paulo"
+description: "STJD denuncia o Corinthians em três artigos por problemas contra o São Paulo  Jogada 10"
+pubDate: "2026-05-12T17:36:39.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxQNWNROWZFM3l3ZGNBNnFtRXFLUHVfQlVKd2ltY2ZCUFpncUlObXRCQ3dXclpmYUhISUJxdnNYeTZmMzBXOFJwb3FaVmZOVkNZRXloVzU0NE5kalJPX0lpN3BvanBWVWJ4UUpFQU52VVBIbFBGMTZuTHIyQkFRRVVtSXowN0VjelZVT1M1b01ORDFQWU90eGlBbDhFR0ZZWEYtVUx30gGoAUFVX3lxTE5FUUU3NGEwYVFUZHpqX2Y4ZExtUTNxbE9lS1RwdDY0WjBnWTh5ZjgwaXNIN1YxaGFxeF9leUZOQW9YMDVOTTRJalpoRVBWXzlRekpLdjdPWFdCTHhyNThxXzZxVTJJazhHM0o4c0dQdTczYnFYNTJ2c1FYcVhrZzRDejJmVGVBc2pMQ2hvZDVmWGhKbFdIcTY5ZHp0NGNMMUsxQUVtRUNDSg?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxQNWNROWZFM3l3ZGNBNnFtRXFLUHVfQlVKd2ltY2ZCUFpncUlObXRCQ3dXclpmYUhISUJxdnNYeTZmMzBXOFJwb3FaVmZOVkNZRXloVzU0NE5kalJPX0lpN3BvanBWVWJ4UUpFQU52VVBIbFBGMTZuTHIyQkFRRVVtSXowN0VjelZVT1M1b01ORDFQWU90eGlBbDhFR0ZZWEYtVUx30gGoAUFVX3lxTE5FUUU3NGEwYVFUZHpqX2Y4ZExtUTNxbE9lS1RwdDY0WjBnWTh5ZjgwaXNIN1YxaGFxeF9leUZOQW9YMDVOTTRJalpoRVBWXzlRekpLdjdPWFdCTHhyNThxXzZxVTJJazhHM0o4c0dQdTczYnFYNTJ2c1FYcVhrZzRDejJmVGVBc2pMQ2hvZDVmWGhKbFdIcTY5ZHp0NGNMMUsxQUVtRUNDSg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
