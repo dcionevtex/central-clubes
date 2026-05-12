@@ -1,0 +1,13 @@
+---
+title: "São Paulo não descarta vender Wendell e quer receber R$ 8,6 milhões"
+description: "São Paulo não descarta vender Wendell e quer receber R$ 8,6 milhões  Bolavip Brasil"
+pubDate: "2026-05-12T12:12:31.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxOY1JkemFvMUp1R2VGSUxSVmFGVFMyOWt2TmZzYk5wRmtkN25jcnZCRWdkcFp6aUhNdGsySEM1WDZHeVY5dkJqaDVQWHlGZ3c4R1kwQk90QTczbGNCaFBKcGpRS18temRUcnhWc2NiMFZDeE9zY2N1YWVSZWNLY29hQ2h0ZE05N3VIYVFEUnA5MkJWY1E0N1ZVb3Zvb0hHbHPSAaQBQVVfeXFMT1JEM1RUeURQcG96c2JoenBEZUo4X3BETnA2OFc4amtPNUg4d29WejZuRjhhR0hseEYxb09FdHhXMDZGRzNZd2djZ3I4ak5ZOV90QzdEQi05Z3ZJcFZRcmJ1WjdwazR5UFg2b0Q5Y2hUWHVzQzExN0dLcVEwdVBqNE0xcTZtU1NzTGVJZnR3bjVaZUduTWNOYjJVT2hqWEVNTVFLeUY?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxOY1JkemFvMUp1R2VGSUxSVmFGVFMyOWt2TmZzYk5wRmtkN25jcnZCRWdkcFp6aUhNdGsySEM1WDZHeVY5dkJqaDVQWHlGZ3c4R1kwQk90QTczbGNCaFBKcGpRS18temRUcnhWc2NiMFZDeE9zY2N1YWVSZWNLY29hQ2h0ZE05N3VIYVFEUnA5MkJWY1E0N1ZVb3Zvb0hHbHPSAaQBQVVfeXFMT1JEM1RUeURQcG96c2JoenBEZUo4X3BETnA2OFc4amtPNUg4d29WejZuRjhhR0hseEYxb09FdHhXMDZGRzNZd2djZ3I4ak5ZOV90QzdEQi05Z3ZJcFZRcmJ1WjdwazR5UFg2b0Q5Y2hUWHVzQzExN0dLcVEwdVBqNE0xcTZtU1NzTGVJZnR3bjVaZUduTWNOYjJVT2hqWEVNTVFLeUY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

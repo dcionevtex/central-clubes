@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Cruzeiro (Sub-20): onde assistir, escalações e arbitragem"
+description: "São Paulo x Cruzeiro (Sub-20): onde assistir, escalações e arbitragem  Jogada 10"
+pubDate: "2026-05-12T14:59:59.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxNQjNfVHZ6WEJsdjF4d2pOV0xHanFyVnJJRGFIY0luNzE1Q0J3Ukd3Tjdycmc1aENqZFlHRng1RzZweGhEY3FaM2l1ZDNqMjlMTWhYejJfQXZqM2tDNUJScmk0VGd4SHp5QVc4Wm9aRGRnTUlFbGNQV2RfeDhBMEZ4N2pLN2FJdFlsdlRDblhFTUdKLVNU0gGaAUFVX3lxTE9fS05QUmdPWE84Wkp4bWhaNjM5TVpGbE42TnFQeklWWWR6Y3ZrellqcUZ3MThRQ0hfM1hlZjhhOVFCQlBRNWY3SFlxQUlXeHlET2w5WE0tLU5sbUo3eXhnek5JYVVpSE1iX3JMOUswdHFieUtUQjJOT3drc0tYRVNjbEg3NVpkeDM0cEpyTWpzMGppQVhRMWNib0E?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxNQjNfVHZ6WEJsdjF4d2pOV0xHanFyVnJJRGFIY0luNzE1Q0J3Ukd3Tjdycmc1aENqZFlHRng1RzZweGhEY3FaM2l1ZDNqMjlMTWhYejJfQXZqM2tDNUJScmk0VGd4SHp5QVc4Wm9aRGRnTUlFbGNQV2RfeDhBMEZ4N2pLN2FJdFlsdlRDblhFTUdKLVNU0gGaAUFVX3lxTE9fS05QUmdPWE84Wkp4bWhaNjM5TVpGbE42TnFQeklWWWR6Y3ZrellqcUZ3MThRQ0hfM1hlZjhhOVFCQlBRNWY3SFlxQUlXeHlET2w5WE0tLU5sbUo3eXhnek5JYVVpSE1iX3JMOUswdHFieUtUQjJOT3drc0tYRVNjbEg3NVpkeDM0cEpyTWpzMGppQVhRMWNib0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
