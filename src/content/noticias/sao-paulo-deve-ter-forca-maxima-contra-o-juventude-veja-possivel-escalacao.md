@@ -1,0 +1,13 @@
+---
+title: "São Paulo deve ter força máxima contra o Juventude; veja possível escalação"
+description: "São Paulo deve ter força máxima contra o Juventude; veja possível escalação  Terra"
+pubDate: "2026-05-12T20:24:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiiAJBVV95cUxNVVprVlVEemQ3Snlmb1FvX2VVU2M3Q1k3b2gzc2ZUdGw0SDVzZ2FhelRTRmJWWTI3cVU0RUk1M2IyMkUxQnRHS3VkcHJEVWxHYmFnS2hJQWVzZHM4alR0SWNMblc0bVlsSkN1VEFkVktpV1ZkanVxVWJ2XzZRY2RSOE9rMGtzT3h0Qmh1ZUVyYWFsT0tsZEstZml6dkpaSFpnN3hjcG5IeGtUN25Nc0xNUG5LeG40NXloTkxFbHpSTWpoVmZMTkNwSE9HUl9Lb2t3SExETHBYVm5jV0x6Q2FrZUlOZTVqeFp4QWVtWGNsOWlyXzNEbVpYV1ZzZDVHUzdyek40Wmo1c2w?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiAJBVV95cUxNVVprVlVEemQ3Snlmb1FvX2VVU2M3Q1k3b2gzc2ZUdGw0SDVzZ2FhelRTRmJWWTI3cVU0RUk1M2IyMkUxQnRHS3VkcHJEVWxHYmFnS2hJQWVzZHM4alR0SWNMblc0bVlsSkN1VEFkVktpV1ZkanVxVWJ2XzZRY2RSOE9rMGtzT3h0Qmh1ZUVyYWFsT0tsZEstZml6dkpaSFpnN3hjcG5IeGtUN25Nc0xNUG5LeG40NXloTkxFbHpSTWpoVmZMTkNwSE9HUl9Lb2t3SExETHBYVm5jV0x6Q2FrZUlOZTVqeFp4QWVtWGNsOWlyXzNEbVpYV1ZzZDVHUzdyek40Wmo1c2w?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

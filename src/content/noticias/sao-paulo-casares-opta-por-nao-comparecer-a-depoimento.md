@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Casares opta por não comparecer a depoimento"
+description: "São Paulo: Casares opta por não comparecer a depoimento  Portal Hortolândia"
+pubDate: "2026-05-12T21:32:09.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxNa3U3cFZ3M2cxZ09yejVvMlV2Z0NxY0tnOGJiaG9TMVJidndpZ09JaVo2dmVkSEF4M1NHQ1BFNXhMUlhDNXRfMEZJSGNYd0pib0hwN3M5cV9HY3lfVTFySkhOTm1qdlBZM0Q1YUNGRFhKV180U0tfbm14WFVtS2d2OHBVTdIBgwFBVV95cUxNa3U3cFZ3M2cxZ09yejVvMlV2Z0NxY0tnOGJiaG9TMVJidndpZ09JaVo2dmVkSEF4M1NHQ1BFNXhMUlhDNXRfMEZJSGNYd0pib0hwN3M5cV9HY3lfVTFySkhOTm1qdlBZM0Q1YUNGRFhKV180U0tfbm14WFVtS2d2OHBVTQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxNa3U3cFZ3M2cxZ09yejVvMlV2Z0NxY0tnOGJiaG9TMVJidndpZ09JaVo2dmVkSEF4M1NHQ1BFNXhMUlhDNXRfMEZJSGNYd0pib0hwN3M5cV9HY3lfVTFySkhOTm1qdlBZM0Q1YUNGRFhKV180U0tfbm14WFVtS2d2OHBVTdIBgwFBVV95cUxNa3U3cFZ3M2cxZ09yejVvMlV2Z0NxY0tnOGJiaG9TMVJidndpZ09JaVo2dmVkSEF4M1NHQ1BFNXhMUlhDNXRfMEZJSGNYd0pib0hwN3M5cV9HY3lfVTFySkhOTm1qdlBZM0Q1YUNGRFhKV180U0tfbm14WFVtS2d2OHBVTQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
