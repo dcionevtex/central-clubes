@@ -1,0 +1,13 @@
+---
+title: "Flu x São Paulo passa por alteração da CBF"
+description: "Flu x São Paulo passa por alteração da CBF  ABCD Jornal"
+pubDate: "2026-05-12T00:38:54.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxPT08wT2Jsa0tzYkZyUXhLd0pwV2dTOGs1MXhLR185R3hoY2ZlWVgwa3Z1ZHNuSm1FWlZfcnV3VEVCTnJTUzY2VlJjMTQzRFljRVJ4Wlp4bmpGTGtFN1R0aHpJcXQxYWhTZFJxVFZLbHJrVEw4ZEh4bmtNVEl0MlZ3T19yTVZHc0llcF9JS2kxYUxfNkxUWEozVGIzVzEyM3JMY0HSAaIBQVVfeXFMT09PME9ibGtLc2JGclF4S3dKcFdnUzhrNTF4S0dfOUd4aGNmZVlYMGt2dWRzbkptRVpWX3J1d1RFQk5yU1M2NlZSYzE0M0RZY0VSeFpaeG5qRkxrRTdUdGh6SXF0MWFoU2RScVRWS2xya1RMOGRIeG5rTVRJdDJWd09fck1WR3NJZXBfSUtpMWFMXzZMVFhKM1RiM1cxMjNyTGNB?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxPT08wT2Jsa0tzYkZyUXhLd0pwV2dTOGs1MXhLR185R3hoY2ZlWVgwa3Z1ZHNuSm1FWlZfcnV3VEVCTnJTUzY2VlJjMTQzRFljRVJ4Wlp4bmpGTGtFN1R0aHpJcXQxYWhTZFJxVFZLbHJrVEw4ZEh4bmtNVEl0MlZ3T19yTVZHc0llcF9JS2kxYUxfNkxUWEozVGIzVzEyM3JMY0HSAaIBQVVfeXFMT09PME9ibGtLc2JGclF4S3dKcFdnUzhrNTF4S0dfOUd4aGNmZVlYMGt2dWRzbkptRVpWX3J1d1RFQk5yU1M2NlZSYzE0M0RZY0VSeFpaeG5qRkxrRTdUdGh6SXF0MWFoU2RScVRWS2xya1RMOGRIeG5rTVRJdDJWd09fck1WR3NJZXBfSUtpMWFMXzZMVFhKM1RiM1cxMjNyTGNB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
