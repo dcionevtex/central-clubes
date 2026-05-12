@@ -1,0 +1,13 @@
+---
+title: "Escalação do São Paulo: veja provável time para jogo contra o Juventude"
+description: "Escalação do São Paulo: veja provável time para jogo contra o Juventude  Rádio Itatiaia"
+pubDate: "2026-05-12T19:09:35.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMimAJBVV95cUxPMFB5dzdGTjczX3FSY3ZNLTY1bE1NY2ZsdUFuZ19NY0NZbmJ0QTBpaDktV3ctV2ZTbmxaMXJtb0JFWlVrZkhfNUdUbV9VMm5iRU1VMy1BRlNQdzdCNFpiUDcxWERNTkZjRzBmandWRk1hOGgyb29jSmJFa0FvVmE2bElWS0QwUVh2U1hma0lHRm8zS0tCWlBZbjIxelAtVi0ydW9qY0tqZm5IeTRXeGlYWlZLVXVBVTIzWGV0ajhJU1dJNWkwS3pRVG45R3BnV3pOYkpUMWJsazdwTWZOZmFad3YxU3VySDdXQl9fS1k3dWM3V1IwU2RlclZDUzF6bmpfSkdIMWdNdzBXVk9oSXhQZGJCTXU1Ri1n?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAJBVV95cUxPMFB5dzdGTjczX3FSY3ZNLTY1bE1NY2ZsdUFuZ19NY0NZbmJ0QTBpaDktV3ctV2ZTbmxaMXJtb0JFWlVrZkhfNUdUbV9VMm5iRU1VMy1BRlNQdzdCNFpiUDcxWERNTkZjRzBmandWRk1hOGgyb29jSmJFa0FvVmE2bElWS0QwUVh2U1hma0lHRm8zS0tCWlBZbjIxelAtVi0ydW9qY0tqZm5IeTRXeGlYWlZLVXVBVTIzWGV0ajhJU1dJNWkwS3pRVG45R3BnV3pOYkpUMWJsazdwTWZOZmFad3YxU3VySDdXQl9fS1k3dWM3V1IwU2RlclZDUzF6bmpfSkdIMWdNdzBXVk9oSXhQZGJCTXU1Ri1n?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
