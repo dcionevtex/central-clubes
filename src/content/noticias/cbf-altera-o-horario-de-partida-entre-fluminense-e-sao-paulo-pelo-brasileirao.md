@@ -1,0 +1,13 @@
+---
+title: "CBF altera o horário de partida entre Fluminense e São Paulo pelo Brasileirão"
+description: "CBF altera o horário de partida entre Fluminense e São Paulo pelo Brasileirão  Gazeta Esportiva"
+pubDate: "2026-05-11T23:34:40.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxNR1FWYXcxSjVLSnl1XzNMVWczbDhQWVFySGFacHdMWkFNZGk2YThESjNQdlRHQkxVNFp4NndHaHZ3VWktTWYwWHJFUmtkd01uNThpVWozZHFlbWNQUzhUSUE0d2pWTlRRcGQtZDBScWpXTXY1ckNDMlljNTh6U0x4czVJYW5rNWdzTnNnTmlOZ2tjeElBcDJJeUpRZEczeHI5UjhEbtIBpAFBVV95cUxNR1FWYXcxSjVLSnl1XzNMVWczbDhQWVFySGFacHdMWkFNZGk2YThESjNQdlRHQkxVNFp4NndHaHZ3VWktTWYwWHJFUmtkd01uNThpVWozZHFlbWNQUzhUSUE0d2pWTlRRcGQtZDBScWpXTXY1ckNDMlljNTh6U0x4czVJYW5rNWdzTnNnTmlOZ2tjeElBcDJJeUpRZEczeHI5UjhEbg?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxNR1FWYXcxSjVLSnl1XzNMVWczbDhQWVFySGFacHdMWkFNZGk2YThESjNQdlRHQkxVNFp4NndHaHZ3VWktTWYwWHJFUmtkd01uNThpVWozZHFlbWNQUzhUSUE0d2pWTlRRcGQtZDBScWpXTXY1ckNDMlljNTh6U0x4czVJYW5rNWdzTnNnTmlOZ2tjeElBcDJJeUpRZEczeHI5UjhEbtIBpAFBVV95cUxNR1FWYXcxSjVLSnl1XzNMVWczbDhQWVFySGFacHdMWkFNZGk2YThESjNQdlRHQkxVNFp4NndHaHZ3VWktTWYwWHJFUmtkd01uNThpVWozZHFlbWNQUzhUSUE0d2pWTlRRcGQtZDBScWpXTXY1ckNDMlljNTh6U0x4czVJYW5rNWdzTnNnTmlOZ2tjeElBcDJJeUpRZEczeHI5UjhEbg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

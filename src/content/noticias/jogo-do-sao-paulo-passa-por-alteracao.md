@@ -1,0 +1,13 @@
+---
+title: "Jogo do São Paulo passa por alteração"
+description: "Jogo do São Paulo passa por alteração  Portal Hortolândia"
+pubDate: "2026-05-12T00:28:52.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE96R2FnX3NGYXVJdTFrNzY2OWs1MjdXUXV5WEhpdEpscmFNLUc3aThUUVg3NGZvd2E5cTNjdXd0RjVtRGhPS1I2Umx6ellaWENIOTU4Q2FodllKMGxxczJEWVNValhKdTFuWVU4SjgxTzhlRTh3NjVjaGFtVzJlRHfSAX9BVV95cUxPekdhZ19zRmF1SXUxazc2NjlrNTI3V1F1eVhIaXRKbHJhTS1HN2k4VFFYNzRmb3dhOXEzY3V3dEY1bURoT0tSNlJsenpZWlhDSDk1OENhaHZZSjBscXMyRFlTVWpYSnUxbllVOEo4MU84ZUU4dzY1Y2hhbVcyZUR3?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE96R2FnX3NGYXVJdTFrNzY2OWs1MjdXUXV5WEhpdEpscmFNLUc3aThUUVg3NGZvd2E5cTNjdXd0RjVtRGhPS1I2Umx6ellaWENIOTU4Q2FodllKMGxxczJEWVNValhKdTFuWVU4SjgxTzhlRTh3NjVjaGFtVzJlRHfSAX9BVV95cUxPekdhZ19zRmF1SXUxazc2NjlrNTI3V1F1eVhIaXRKbHJhTS1HN2k4VFFYNzRmb3dhOXEzY3V3dEY1bURoT0tSNlJsenpZWlhDSDk1OENhaHZZSjBscXMyRFlTVWpYSnUxbllVOEo4MU84ZUU4dzY1Y2hhbVcyZUR3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
