@@ -1,0 +1,13 @@
+---
+title: "SÃO PAULO COM FORÇA MÁXIMA NA COPA DO BRASIL | MINUTO DO SÃO PAULO"
+description: "SÃO PAULO COM FORÇA MÁXIMA NA COPA DO BRASIL | MINUTO DO SÃO PAULO  Lance!"
+pubDate: "2026-05-13T02:10:25.000Z"
+source: "Lance!"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxNd0ZvblRSQVdEV0d1SGFSQmlIdm5DMGd5bXRlWDl0T3VzQ0RXUk0wQ3RlbmJKRHdSbVBWTHJaN0N3MUFjTG5nbTVVakFRS2FaeC1sWWZTOUwzZ2NXaDFKbFFVLXAtQ2R1TkRpUEsyU2JTdDZvVGVZZDFEZU9XRVNJTVRweG1kN1I4TW8tS2hsVnRWY2NiLUNFVFhJRzU?oc=5"
+---
+
+### Fonte Original: Lance!
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxNd0ZvblRSQVdEV0d1SGFSQmlIdm5DMGd5bXRlWDl0T3VzQ0RXUk0wQ3RlbmJKRHdSbVBWTHJaN0N3MUFjTG5nbTVVakFRS2FaeC1sWWZTOUwzZ2NXaDFKbFFVLXAtQ2R1TkRpUEsyU2JTdDZvVGVZZDFEZU9XRVNJTVRweG1kN1I4TW8tS2hsVnRWY2NiLUNFVFhJRzU?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
