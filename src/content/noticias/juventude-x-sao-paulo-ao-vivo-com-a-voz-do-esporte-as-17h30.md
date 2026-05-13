@@ -1,0 +1,13 @@
+---
+title: "Juventude x São Paulo, AO VIVO, com a Voz do Esporte, às 17h30"
+description: "Juventude x São Paulo, AO VIVO, com a Voz do Esporte, às 17h30  Jogada 10"
+pubDate: "2026-05-13T16:25:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMilAFBVV95cUxNT01yYm1ETEJDcjU1aDRMeEZkcjJnd0FCd2hnUUpNckduWU1aZWtGQ3RMd21uYlRBQXM2M3k3X1JVbUpoTnFEVVdWdEpOQlpIUHowZ2NMVjFEUmQ0ZUZaM0NoQXlWZHlCTkQydFZrSmdJVjZNdjRWdE5hSVZOUVpkN1JpblRjaUhoN1BOX2ZaelYtMFJo0gGUAUFVX3lxTE1PTXJibURMQkNyNTVoNEx4RmRyMmd3QUJ3aGdRSk1yR25ZTVpla0ZDdEx3bW5iVEFBczYzeTdfUlVtSmhOcURVV1Z0Sk5CWkhQejBnY0xWMURSZDRlRlozQ2hBeVZkeUJORDJ0VmtKZ0lWNk12NFZ0TmFJVk5RWmQ3UmluVGNpSGg3UE5fZlp6Vi0wUmg?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilAFBVV95cUxNT01yYm1ETEJDcjU1aDRMeEZkcjJnd0FCd2hnUUpNckduWU1aZWtGQ3RMd21uYlRBQXM2M3k3X1JVbUpoTnFEVVdWdEpOQlpIUHowZ2NMVjFEUmQ0ZUZaM0NoQXlWZHlCTkQydFZrSmdJVjZNdjRWdE5hSVZOUVpkN1JpblRjaUhoN1BOX2ZaelYtMFJo0gGUAUFVX3lxTE1PTXJibURMQkNyNTVoNEx4RmRyMmd3QUJ3aGdRSk1yR25ZTVpla0ZDdEx3bW5iVEFBczYzeTdfUlVtSmhOcURVV1Z0Sk5CWkhQejBnY0xWMURSZDRlRlozQ2hBeVZkeUJORDJ0VmtKZ0lWNk12NFZ0TmFJVk5RWmQ3UmluVGNpSGg3UE5fZlp6Vi0wUmg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

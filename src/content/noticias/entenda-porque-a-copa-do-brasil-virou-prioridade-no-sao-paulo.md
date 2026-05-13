@@ -1,0 +1,13 @@
+---
+title: "Entenda porque a Copa do Brasil virou prioridade no São Paulo"
+description: "Entenda porque a Copa do Brasil virou prioridade no São Paulo  Jogada 10"
+pubDate: "2026-05-13T14:54:03.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMijwFBVV95cUxNVU1RMFFITlBHTUw2SnFEa3RYOXpaQ2h1dnNQdHFZQlBQTEIzNGJ5a2FoZGNiSldQRGVIZWYwOUFLMDlWU0FWOFFlQWR0MHpjR0ptODliSFRCem9Mc2RMamxKbGRtMTJ1cmlFdExudjFpWGtxUEY4Mi1iUEJkZi1Mc2dudlc0QU9xX2c2WkxaRdIBlAFBVV95cUxOeXJ0VUFna3ZPM0Vrd2F1NGh2OWxEazR2NFlWVUNMNVhuakNNZnl5dzF3YmNDRkVPcmtPN2IwamxOTW9ONG55WUs3LWFDV0g5VHhicUhBVUlCZWdOOWNrSnVsSkZ0bDBKdGdlV19jWnpReU1aQ3JTWV9PVXVmbUQzSjFsajIyRFZUakQwdlZUeFVTbFJk?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwFBVV95cUxNVU1RMFFITlBHTUw2SnFEa3RYOXpaQ2h1dnNQdHFZQlBQTEIzNGJ5a2FoZGNiSldQRGVIZWYwOUFLMDlWU0FWOFFlQWR0MHpjR0ptODliSFRCem9Mc2RMamxKbGRtMTJ1cmlFdExudjFpWGtxUEY4Mi1iUEJkZi1Mc2dudlc0QU9xX2c2WkxaRdIBlAFBVV95cUxOeXJ0VUFna3ZPM0Vrd2F1NGh2OWxEazR2NFlWVUNMNVhuakNNZnl5dzF3YmNDRkVPcmtPN2IwamxOTW9ONG55WUs3LWFDV0g5VHhicUhBVUlCZWdOOWNrSnVsSkZ0bDBKdGdlV19jWnpReU1aQ3JTWV9PVXVmbUQzSjFsajIyRFZUakQwdlZUeFVTbFJk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
