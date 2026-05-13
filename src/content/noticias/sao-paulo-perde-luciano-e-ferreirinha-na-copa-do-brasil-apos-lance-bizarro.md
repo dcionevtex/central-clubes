@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde Luciano e Ferreirinha na Copa do Brasil após lance bizarro"
+description: "São Paulo perde Luciano e Ferreirinha na Copa do Brasil após lance bizarro  Portal Hortolândia"
+pubDate: "2026-05-13T23:06:32.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxQLVhNVWZjU0JERnU2dEJzbUJDTmFWMFhtWk9ZZ2E0bE1kdUFtWE04cEZEdGZ6NnVTSERHdER5V3pqVU5nSmR0UlF3a1ZXelc0eEh6NzJ2MmI4M25iUWx6Y0gzSXQ3QTU0UmFoWF9JYjJKWllJdmtGcWxsNnJXWlRzaUliMNIBgwFBVV95cUxQLVhNVWZjU0JERnU2dEJzbUJDTmFWMFhtWk9ZZ2E0bE1kdUFtWE04cEZEdGZ6NnVTSERHdER5V3pqVU5nSmR0UlF3a1ZXelc0eEh6NzJ2MmI4M25iUWx6Y0gzSXQ3QTU0UmFoWF9JYjJKWllJdmtGcWxsNnJXWlRzaUliMA?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxQLVhNVWZjU0JERnU2dEJzbUJDTmFWMFhtWk9ZZ2E0bE1kdUFtWE04cEZEdGZ6NnVTSERHdER5V3pqVU5nSmR0UlF3a1ZXelc0eEh6NzJ2MmI4M25iUWx6Y0gzSXQ3QTU0UmFoWF9JYjJKWllJdmtGcWxsNnJXWlRzaUliMNIBgwFBVV95cUxQLVhNVWZjU0JERnU2dEJzbUJDTmFWMFhtWk9ZZ2E0bE1kdUFtWE04cEZEdGZ6NnVTSERHdER5V3pqVU5nSmR0UlF3a1ZXelc0eEh6NzJ2MmI4M25iUWx6Y0gzSXQ3QTU0UmFoWF9JYjJKWllJdmtGcWxsNnJXWlRzaUliMA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

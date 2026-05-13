@@ -1,0 +1,13 @@
+---
+title: "Luciano deixa jogo no primeiro tempo e aumenta preocupação no São Paulo"
+description: "Luciano deixa jogo no primeiro tempo e aumenta preocupação no São Paulo  Jogada 10"
+pubDate: "2026-05-13T23:14:13.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxQaGs4TmJHQk4wMm1HZXBoMGtTVXFoWngtM3Z2d1RCZUlyTUhQbmwzTlpMSWFzRm1oM09EMHBMcnk1Q1NQTWVjcjU1d3h0MENyVTAzZUVvRU9tOXd1VE5ocko5THl3azZUeDFnblBuTFBzRmhaaUgyeHBQSlFoX21LZ2tscUVnd3NNaVI3TmNkbHlQU2Y1OWRjNi1UeEHSAaIBQVVfeXFMTk5mZ29MSEJRRldPSWZNLWhCUzBTMExac0NDWHIyY0FhU3RhOS1MeHRnSGh6cnhhcS1TNDBXMjhYTHZvRjExX21za0ZkZ0pJUDRxdjNmTFE0bDFvRVlyMHRwOFhkdmVLc25RSzVLYVI3bVdPX1IwdHJjbkh0eS1GT1g3cnN0ZzFzbE5KUktqVnZJb1JrRWdqekxSbWVBMmpoTGNn?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxQaGs4TmJHQk4wMm1HZXBoMGtTVXFoWngtM3Z2d1RCZUlyTUhQbmwzTlpMSWFzRm1oM09EMHBMcnk1Q1NQTWVjcjU1d3h0MENyVTAzZUVvRU9tOXd1VE5ocko5THl3azZUeDFnblBuTFBzRmhaaUgyeHBQSlFoX21LZ2tscUVnd3NNaVI3TmNkbHlQU2Y1OWRjNi1UeEHSAaIBQVVfeXFMTk5mZ29MSEJRRldPSWZNLWhCUzBTMExac0NDWHIyY0FhU3RhOS1MeHRnSGh6cnhhcS1TNDBXMjhYTHZvRjExX21za0ZkZ0pJUDRxdjNmTFE0bDFvRVlyMHRwOFhkdmVLc25RSzVLYVI3bVdPX1IwdHJjbkh0eS1GT1g3cnN0ZzFzbE5KUktqVnZJb1JrRWdqekxSbWVBMmpoTGNn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

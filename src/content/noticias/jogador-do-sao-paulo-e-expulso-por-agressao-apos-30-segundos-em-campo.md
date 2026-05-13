@@ -1,0 +1,13 @@
+---
+title: "Jogador do São Paulo é expulso por agressão após 30 segundos em campo"
+description: "Jogador do São Paulo é expulso por agressão após 30 segundos em campo  Rádio Itatiaia"
+pubDate: "2026-05-13T22:56:57.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMilwJBVV95cUxQb0xEb19EcVV3bWtiTDNtTVZObDNMeHhSWWdJRHJhdF9XcFozdkFqWEU3SnE3MXB6SkEteVF3QVJSQUhVZDNybm8zOFVSaEVWQklfZ1ZpZzQ2MGtYZUFUMGlPRDhvdDYteUZ6OWEwdFJWdDdHX3lhUExwMGl3czFqV1pZM3dTbWYxRGdIbDU3MTlQc2VxMUJvaW1WeXNkWldkRGNVWWp5TXhjVkpDQUdNZVJmRDJvNUx2TnBmVHJMYXdfcjhVSzM2NFctRS01RnI0ODRpMW41aEQtcHA4enhKclVSSDNRUldIMl84U0RqR250a2hzcXRIcDItUFlWRlVabS1vWTVLYTlqX3NpVmtZZVdFMWg5OFE?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwJBVV95cUxQb0xEb19EcVV3bWtiTDNtTVZObDNMeHhSWWdJRHJhdF9XcFozdkFqWEU3SnE3MXB6SkEteVF3QVJSQUhVZDNybm8zOFVSaEVWQklfZ1ZpZzQ2MGtYZUFUMGlPRDhvdDYteUZ6OWEwdFJWdDdHX3lhUExwMGl3czFqV1pZM3dTbWYxRGdIbDU3MTlQc2VxMUJvaW1WeXNkWldkRGNVWWp5TXhjVkpDQUdNZVJmRDJvNUx2TnBmVHJMYXdfcjhVSzM2NFctRS01RnI0ODRpMW41aEQtcHA4enhKclVSSDNRUldIMl84U0RqR250a2hzcXRIcDItUFlWRlVabS1vWTVLYTlqX3NpVmtZZVdFMWg5OFE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
