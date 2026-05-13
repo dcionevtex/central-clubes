@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Juan deseja voltar e avalia saída"
+description: "São Paulo: Juan deseja voltar e avalia saída  ABCD Jornal"
+pubDate: "2026-05-13T17:08:33.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxNajhoUXNRN1dyRTB1WHExTUlMajdjV1RSbktSaFk0OWpBaEdNelZBZjQ1ckJ3cUZQb2lQV2lpQVAwVXJ1NFl0TlJRMVpKeURQRXQtTThIX2lwSm1wUzh1dHdENS1mdzY3b0dDZHA0YU9WOXNnNkE5eGZhR0JDaFlWYmwzSGFpVE1fbGJ6RDNkV2hZLWcyb2ZnQ1o1TEFXOHVD0gGmAUFVX3lxTE5DSE1ZWGlyZVRZcktzM0ZxZzBtdFVPYWRSMXU0WHVNaFZWOXhjcW4zeXVUbnpjdUFVNnRrMnUtR0g0anZLMnZzdVZJMHR6UGUxSUZ5eV9GN2lZZVZQZnRaOWZ6ZUprNUg2bkJtcWF4blRhRl9iNDRNR2IzbjI5RDNkUlg2aHlwa1NRLVVCZlY4MmZFWXNCcTdZN0c2RnJ0VHoxUXpZQUE?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxNajhoUXNRN1dyRTB1WHExTUlMajdjV1RSbktSaFk0OWpBaEdNelZBZjQ1ckJ3cUZQb2lQV2lpQVAwVXJ1NFl0TlJRMVpKeURQRXQtTThIX2lwSm1wUzh1dHdENS1mdzY3b0dDZHA0YU9WOXNnNkE5eGZhR0JDaFlWYmwzSGFpVE1fbGJ6RDNkV2hZLWcyb2ZnQ1o1TEFXOHVD0gGmAUFVX3lxTE5DSE1ZWGlyZVRZcktzM0ZxZzBtdFVPYWRSMXU0WHVNaFZWOXhjcW4zeXVUbnpjdUFVNnRrMnUtR0g0anZLMnZzdVZJMHR6UGUxSUZ5eV9GN2lZZVZQZnRaOWZ6ZUprNUg2bkJtcWF4blRhRl9iNDRNR2IzbjI5RDNkUlg2aHlwa1NRLVVCZlY4MmZFWXNCcTdZN0c2RnJ0VHoxUXpZQUE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
