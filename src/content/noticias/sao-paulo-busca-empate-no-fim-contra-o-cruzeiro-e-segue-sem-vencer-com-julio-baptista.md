@@ -1,0 +1,13 @@
+---
+title: "São Paulo busca empate no fim contra o Cruzeiro e segue sem vencer com Júlio Baptista"
+description: "São Paulo busca empate no fim contra o Cruzeiro e segue sem vencer com Júlio Baptista  Gazeta Esportiva"
+pubDate: "2026-05-13T22:21:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNeXd3eHIzdE5IVWViZWRyNW1ZbFNnajhVMU84akJjRnQ1U2RVYmtoN2pjS052clctOXZqank5SkcyTmlXTkdVRzZxQ2ZXNm1sbWVWUkd5U2tuSGhWaHdINGY5S0tMaW1YZktwQWZwRmxwTEQteU1hWjJjU01yVXF6UTlKYWxXMWx1UG1ya29fWUpzT195RWZHanZqWnpYZmJqQjZsYjlRamhDQdIBrwFBVV95cUxOZGtBczZ6MlZWM1QzTFlHdXdQLTV3eEVucFR1ZWxpdmdCRnZ1Zlp4V082RVNYdVJEbm1UaUJCOC1sMlhINFd3cFdCR05sSmlXQnFKaDNQdzVxX0NVRVplR3Z3WDNOMVVKQW1mUjJXX2lUVTZrc25YMVBXaDg5RVhHdm1FUy1tTjVHUERxT0tGbE9TM0o2MUZNRzA3Nk10MzFZOExDWGREVmdVMHhEekVJ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNeXd3eHIzdE5IVWViZWRyNW1ZbFNnajhVMU84akJjRnQ1U2RVYmtoN2pjS052clctOXZqank5SkcyTmlXTkdVRzZxQ2ZXNm1sbWVWUkd5U2tuSGhWaHdINGY5S0tMaW1YZktwQWZwRmxwTEQteU1hWjJjU01yVXF6UTlKYWxXMWx1UG1ya29fWUpzT195RWZHanZqWnpYZmJqQjZsYjlRamhDQdIBrwFBVV95cUxOZGtBczZ6MlZWM1QzTFlHdXdQLTV3eEVucFR1ZWxpdmdCRnZ1Zlp4V082RVNYdVJEbm1UaUJCOC1sMlhINFd3cFdCR05sSmlXQnFKaDNQdzVxX0NVRVplR3Z3WDNOMVVKQW1mUjJXX2lUVTZrc25YMVBXaDg5RVhHdm1FUy1tTjVHUERxT0tGbE9TM0o2MUZNRzA3Nk10MzFZOExDWGREVmdVMHhEekVJ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
