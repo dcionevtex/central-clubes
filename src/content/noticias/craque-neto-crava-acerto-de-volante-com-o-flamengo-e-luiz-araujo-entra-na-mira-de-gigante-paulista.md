@@ -1,0 +1,13 @@
+---
+title: "Craque Neto crava acerto de volante com o Flamengo e Luiz Araújo entra na mira de gigante paulista"
+description: "Craque Neto crava acerto de volante com o Flamengo e Luiz Araújo entra na mira de gigante paulista  Terra"
+pubDate: "2026-05-12T21:27:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMiqgJBVV95cUxOVnAzc3k4ZjJvTUZBTkoyazhXUFgxRnhjaU9MTDNscElKLVBzNkNaSjRLU0FaSDdPbko5YjQwVnRwdlNCcE40Tmlnd2ZqS2xubGlRQmhsTG1RYU1YWGUwckV2QmJ2d1JWcERtdmxoRjlwTW5lMVAzLU5IcVFvcWcyNnpqYmRyOUhtZmE2cFJHZXJJdkFMdFYwQlJIOVRyRUZJbEdmY3RwUnMwbHFMTzV3dm5LSTBqVjBRMFpMZ2VLRERMUXZlcTdDZnBFNHljWUU2bFJKZlI4XzRCa2x5Q1AtQ1lNNkdwZFdtY1hjWEsxeU5mWkdfUmFHYUc5cDlfQ0kydHhnTjZHMy00OUNDaXZoUDlyWm5HcnN4d2VFMmRUTmVIVmtFdnl5X19n?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgJBVV95cUxOVnAzc3k4ZjJvTUZBTkoyazhXUFgxRnhjaU9MTDNscElKLVBzNkNaSjRLU0FaSDdPbko5YjQwVnRwdlNCcE40Tmlnd2ZqS2xubGlRQmhsTG1RYU1YWGUwckV2QmJ2d1JWcERtdmxoRjlwTW5lMVAzLU5IcVFvcWcyNnpqYmRyOUhtZmE2cFJHZXJJdkFMdFYwQlJIOVRyRUZJbEdmY3RwUnMwbHFMTzV3dm5LSTBqVjBRMFpMZ2VLRERMUXZlcTdDZnBFNHljWUU2bFJKZlI4XzRCa2x5Q1AtQ1lNNkdwZFdtY1hjWEsxeU5mWkdfUmFHYUc5cDlfQ0kydHhnTjZHMy00OUNDaXZoUDlyWm5HcnN4d2VFMmRUTmVIVmtFdnl5X19n?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
