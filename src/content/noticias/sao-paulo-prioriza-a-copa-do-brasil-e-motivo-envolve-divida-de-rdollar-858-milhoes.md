@@ -1,0 +1,13 @@
+---
+title: "São Paulo prioriza a Copa do Brasil e motivo envolve dívida de R$ 858 milhões"
+description: "São Paulo prioriza a Copa do Brasil e motivo envolve dívida de R$ 858 milhões  Bolavip Brasil"
+pubDate: "2026-05-13T13:27:31.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMirgFBVV95cUxPWW12dFVUMGQzTkRFUlJLaEhWX21NbkJNdDNzNHIxU1RrT1Qxbm5WQjN6NVJ4Tm5wSllLekRpV2NGQl9Sa1I5aW81a2o4M01rVThYZXo5UUxIbkZodjNoZkU4eWRfSW5Rb1FCTnBIbldzTHVBZnRtZXVZQWdJNGJBdHdPRjB1dFNPWW5vNGlUcUxvWF9PRXZ5OTVudkwxQllyMUhTRHljQTdYS2YteGfSAbMBQVVfeXFMTm9NRjlZdW42OV9DY2tLalREM1RVOGlDaFcycEtnd0dkTXhBSURXbTlWN3VqWl9aYXpJVzV4RzZsOE5SYmdZOUFPNGJvMkNBZmhwUEozenBJd1FFS0c4OHc2NWE1UTQzUi13TXhQMjBHWFJSWGtvcmJDUmdxeXcwN0U1TEM4emJBSXJaNTNReXI2QktmRm0tajFfUnUyMy1zNXpUQ0l3VDB4YktWLUYzdEIyTDg?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirgFBVV95cUxPWW12dFVUMGQzTkRFUlJLaEhWX21NbkJNdDNzNHIxU1RrT1Qxbm5WQjN6NVJ4Tm5wSllLekRpV2NGQl9Sa1I5aW81a2o4M01rVThYZXo5UUxIbkZodjNoZkU4eWRfSW5Rb1FCTnBIbldzTHVBZnRtZXVZQWdJNGJBdHdPRjB1dFNPWW5vNGlUcUxvWF9PRXZ5OTVudkwxQllyMUhTRHljQTdYS2YteGfSAbMBQVVfeXFMTm9NRjlZdW42OV9DY2tLalREM1RVOGlDaFcycEtnd0dkTXhBSURXbTlWN3VqWl9aYXpJVzV4RzZsOE5SYmdZOUFPNGJvMkNBZmhwUEozenBJd1FFS0c4OHc2NWE1UTQzUi13TXhQMjBHWFJSWGtvcmJDUmdxeXcwN0U1TEM4emJBSXJaNTNReXI2QktmRm0tajFfUnUyMy1zNXpUQ0l3VDB4YktWLUYzdEIyTDg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

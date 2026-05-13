@@ -1,0 +1,13 @@
+---
+title: "São Paulo e BYD querem o MorumBYD mas negócio depende de novo diretor"
+description: "São Paulo e BYD querem o MorumBYD mas negócio depende de novo diretor  Bolavip Brasil"
+pubDate: "2026-05-13T12:35:47.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxQSzRXRjNSUXJ3ZHROS0ZQZlluX1pHV2Z2UTdseTlJZjZCYXAtYVdoLXo5cEktak5Pc0JFaDV5QnJSS055MDhnTFUyRVpWSTRWN2VXQjk5bG9rZGtta1FsOERaQ3RwNXY5TVI0UWxydDgxNUhLLURudjNJZzJGQmZVTU9tZWVWS05NSTJ6SUdDdVZtNk5GZloxcVdJYVI5WFMzc1lCMdIBqgFBVV95cUxPbnlfWU8tWF9Mam5CenF0cHNiWnNGNUhFdHNVNmcwbUw4c3JUWnBWUlVrVEQ4OHpuMW51a3lReGtTa3k5WG1KS2l4dmNVTlFKUTdLRFU0SG1uZXFKdVVPQmdRZlR1WkJmRW51SWREWVZzaTRtWFZMUWtWb0JaUnNjamh3ZDZvZ3UzODItR1FQSVFXUGFzel9oLV9kdFVwNWgzWnBtdXZVSDU1Zw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxQSzRXRjNSUXJ3ZHROS0ZQZlluX1pHV2Z2UTdseTlJZjZCYXAtYVdoLXo5cEktak5Pc0JFaDV5QnJSS055MDhnTFUyRVpWSTRWN2VXQjk5bG9rZGtta1FsOERaQ3RwNXY5TVI0UWxydDgxNUhLLURudjNJZzJGQmZVTU9tZWVWS05NSTJ6SUdDdVZtNk5GZloxcVdJYVI5WFMzc1lCMdIBqgFBVV95cUxPbnlfWU8tWF9Mam5CenF0cHNiWnNGNUhFdHNVNmcwbUw4c3JUWnBWUlVrVEQ4OHpuMW51a3lReGtTa3k5WG1KS2l4dmNVTlFKUTdLRFU0SG1uZXFKdVVPQmdRZlR1WkJmRW51SWREWVZzaTRtWFZMUWtWb0JaUnNjamh3ZDZvZ3UzODItR1FQSVFXUGFzel9oLV9kdFVwNWgzWnBtdXZVSDU1Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

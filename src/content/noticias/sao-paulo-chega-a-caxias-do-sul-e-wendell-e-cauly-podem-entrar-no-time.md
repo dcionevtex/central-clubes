@@ -1,0 +1,13 @@
+---
+title: "São Paulo chega a Caxias do Sul e Wendell e Cauly podem entrar no time"
+description: "São Paulo chega a Caxias do Sul e Wendell e Cauly podem entrar no time  Bolavip Brasil"
+pubDate: "2026-05-13T11:51:07.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxQY0ZWa1JRVlRlcHpUT2RSVng2X1RZZDZwTmJTRHl1c3ZYUmw0eG9xMG9aMjlOdFhNUVN4Q2VzdmpTVVZLMGZuT2RKbWxVM0xyT0R2SzZFMkhtYUdWR3hXNjllUkNKeDMycEJfaEJoRjN1UU8xdk0zOWgybVljTWFFMmlJUGtwNHN1eU45ZTNEM3FFaTZDWk5sTmJOZTJtY0hDODBYbG5R0gGrAUFVX3lxTFB5b3FQN28zcGo1M0h6MUwxclVYMU9VTFpYS00zc0hMSVY1OTZxZU1reXduZVFvMkk5X0xvb3ZjUERjS2FBVWhRZHJieGt1NmdPVTEtWTRRTE4wTERfeHZDc1pEZjBmVXExVXpRaGt4TTc1amp5bUphUXpLdDJPSmVoRldDYktrNEZWcWVoLXRBQnVaWldDYjJxa2tBTWhOT1UzWm8ydVNTanVJQQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxQY0ZWa1JRVlRlcHpUT2RSVng2X1RZZDZwTmJTRHl1c3ZYUmw0eG9xMG9aMjlOdFhNUVN4Q2VzdmpTVVZLMGZuT2RKbWxVM0xyT0R2SzZFMkhtYUdWR3hXNjllUkNKeDMycEJfaEJoRjN1UU8xdk0zOWgybVljTWFFMmlJUGtwNHN1eU45ZTNEM3FFaTZDWk5sTmJOZTJtY0hDODBYbG5R0gGrAUFVX3lxTFB5b3FQN28zcGo1M0h6MUwxclVYMU9VTFpYS00zc0hMSVY1OTZxZU1reXduZVFvMkk5X0xvb3ZjUERjS2FBVWhRZHJieGt1NmdPVTEtWTRRTE4wTERfeHZDc1pEZjBmVXExVXpRaGt4TTc1amp5bUphUXpLdDJPSmVoRldDYktrNEZWcWVoLXRBQnVaWldDYjJxa2tBTWhOT1UzWm8ydVNTanVJQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
