@@ -1,0 +1,13 @@
+---
+title: "São Paulo arranca empate do Cruzeiro nos acréscimos pelo Brasileirão sub-20"
+description: "São Paulo arranca empate do Cruzeiro nos acréscimos pelo Brasileirão sub-20  Terra"
+pubDate: "2026-05-13T20:42:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi9wFBVV95cUxQQmdGRXY5V1BQeS1YRTJXWGhyOUc4Mk40SzhKT0Z1eTBGS2FER1B3dDlFUHUzM1ZHYlNRR0VncHlUbDZERVF5ZGZMSlpsdnJEVkE0OXZSSUlDWTZsR0VabVg1SVowdi03LUMyTUJ4MFhvVTBBQ2JGSWRiYXlkYlZhSElBMVBkeE1tdFZYTGNab0k2c2pBXy1ENVdwU0JJV2hZVWljZGlZSjRVZkZvWG9rMkE2MldacThlazFEMVpuWEhQUkRRLU83YUNJVGxMNG1IUWJZWkRSaFkzd2FwZl9xenVIaVNvM3ZHd0llRE54YkZRbE12SmY0?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9wFBVV95cUxQQmdGRXY5V1BQeS1YRTJXWGhyOUc4Mk40SzhKT0Z1eTBGS2FER1B3dDlFUHUzM1ZHYlNRR0VncHlUbDZERVF5ZGZMSlpsdnJEVkE0OXZSSUlDWTZsR0VabVg1SVowdi03LUMyTUJ4MFhvVTBBQ2JGSWRiYXlkYlZhSElBMVBkeE1tdFZYTGNab0k2c2pBXy1ENVdwU0JJV2hZVWljZGlZSjRVZkZvWG9rMkE2MldacThlazFEMVpuWEhQUkRRLU83YUNJVGxMNG1IUWJZWkRSaFkzd2FwZl9xenVIaVNvM3ZHd0llRE54YkZRbE12SmY0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
