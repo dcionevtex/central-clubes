@@ -1,0 +1,13 @@
+---
+title: "Dorival dá sinal verde, e diretores do São Paulo viajam para negociar salário"
+description: "Dorival dá sinal verde, e diretores do São Paulo viajam para negociar salário  Jogada 10"
+pubDate: "2026-05-14T20:20:52.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxQbDVDSV8xVlJoMkJLSXZnZjFEcGtSTVBqYm91ZkdpTlZodVp3VjVqNThZNmNsRENVTWNzeG5rS3ZNSFRUeFl5VVVFQUhERXpweXlHNTM5eURVS3RxVWFCeFVROWtfWUpjSUFrekJMVHpwVUlxNFVCc1RrUU80cWdLRGUyV2x2TjJjdWRtRkRGNjJ5YjE4VzZTcUJ2VEFadW1ZS0I40gGoAUFVX3lxTE5EWEVpMllRLTkyQmZ5UmFzMjVQRXVmUENEbGxTMGIxd3ZYZHZ3QmNJSE5UOUhQNlI1VVBBZzlYSjNxa1pvakFkTVBETjl6RWs2eTlMTTQ1Y19fUkpqOXAzR0RxLWJzTVlIRE9ReUt4VEFXZFJIb0lObHFmdTNOTlRId3EwQVNQSGY4anYzZUxaSzV6TkdaUk54bERGLUU5OW1vWjhRQzl6Mw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxQbDVDSV8xVlJoMkJLSXZnZjFEcGtSTVBqYm91ZkdpTlZodVp3VjVqNThZNmNsRENVTWNzeG5rS3ZNSFRUeFl5VVVFQUhERXpweXlHNTM5eURVS3RxVWFCeFVROWtfWUpjSUFrekJMVHpwVUlxNFVCc1RrUU80cWdLRGUyV2x2TjJjdWRtRkRGNjJ5YjE4VzZTcUJ2VEFadW1ZS0I40gGoAUFVX3lxTE5EWEVpMllRLTkyQmZ5UmFzMjVQRXVmUENEbGxTMGIxd3ZYZHZ3QmNJSE5UOUhQNlI1VVBBZzlYSjNxa1pvakFkTVBETjl6RWs2eTlMTTQ1Y19fUkpqOXAzR0RxLWJzTVlIRE9ReUt4VEFXZFJIb0lObHFmdTNOTlRId3EwQVNQSGY4anYzZUxaSzV6TkdaUk54bERGLUU5OW1vWjhRQzl6Mw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

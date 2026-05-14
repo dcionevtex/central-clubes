@@ -1,0 +1,13 @@
+---
+title: "Corinthians é multado pelo STJD após incidentes no clássico contra o São Paulo"
+description: "Corinthians é multado pelo STJD após incidentes no clássico contra o São Paulo  Gazeta Esportiva"
+pubDate: "2026-05-14T20:07:35.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMinwFBVV95cUxPbVZFUUxRUXNtc3dsTUU2Vy1EWmZ3R3RlYnFKM0h2bnduTWRzUHFoYzN1WXVKNzlNc0JVVU8tMUtiOXh2Rmo1d1V1aVFYVTFCcEFfM1JRT2FLeHhIN0xINDJHdTlBc0ktRnVKRFFENVB1alBLNldXZ3ZqRUd3RGtYckFPaS1XSDdLcHNJWk41LU9fR0VFT3hzalA3a2h6bVXSAZ8BQVVfeXFMT21WRVFMUVFzbXN3bE1FNlctRFpmd0d0ZWJxSjNIdm53bk1kc1BxaGMzdVl1Sjc5TXNCVVVPLTFLYjl4dkZqNXdVdWlRWFUxQnBBXzNSUU9hS3h4SDdMSDQyR3U5QXNJLUZ1SkRRRDVQdWpQSzZXV2d2akVHd0RrWHJBT2ktV0g3S3BzSVpONS1PX0dFRU94c2pQN2toem1V?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinwFBVV95cUxPbVZFUUxRUXNtc3dsTUU2Vy1EWmZ3R3RlYnFKM0h2bnduTWRzUHFoYzN1WXVKNzlNc0JVVU8tMUtiOXh2Rmo1d1V1aVFYVTFCcEFfM1JRT2FLeHhIN0xINDJHdTlBc0ktRnVKRFFENVB1alBLNldXZ3ZqRUd3RGtYckFPaS1XSDdLcHNJWk41LU9fR0VFT3hzalA3a2h6bVXSAZ8BQVVfeXFMT21WRVFMUVFzbXN3bE1FNlctRFpmd0d0ZWJxSjNIdm53bk1kc1BxaGMzdVl1Sjc5TXNCVVVPLTFLYjl4dkZqNXdVdWlRWFUxQnBBXzNSUU9hS3h4SDdMSDQyR3U5QXNJLUZ1SkRRRDVQdWpQSzZXV2d2akVHd0RrWHJBT2ktV0g3S3BzSVpONS1PX0dFRU94c2pQN2toem1V?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
