@@ -1,0 +1,13 @@
+---
+title: "São Paulo pagará multa milionária a Roger Machado"
+description: "São Paulo pagará multa milionária a Roger Machado  Portal Hortolândia"
+pubDate: "2026-05-14T17:48:05.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTFBCX2lzcnhyTHhLZXFETVJfZVB5aE1Ea2ZjbUE1LVhrREFJLUVobHdiSFRXWDQ1bjRKMGo1cG05QkVia1dmaEVrb3ZXNGswcHhUR3RNdDBCS3JXX1NGd0p1bXF0WUF4cWg4U0VOaFJ5NHljallKRkc3Qm5B0gF6QVVfeXFMUEJfaXNyeHJMeEtlcURNUl9lUHloTURrZmNtQTUtWGtEQUktRWhsd2JIVFdYNDVuNEowajVwbTlCRWJrV2ZoRWtvdlc0azBweFRHdE10MEJLcldfU0Z3SnVtcXRZQXhxaDhTRU5oUnk0eWNqWUpGRzdCbkE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTFBCX2lzcnhyTHhLZXFETVJfZVB5aE1Ea2ZjbUE1LVhrREFJLUVobHdiSFRXWDQ1bjRKMGo1cG05QkVia1dmaEVrb3ZXNGswcHhUR3RNdDBCS3JXX1NGd0p1bXF0WUF4cWg4U0VOaFJ5NHljallKRkc3Qm5B0gF6QVVfeXFMUEJfaXNyeHJMeEtlcURNUl9lUHloTURrZmNtQTUtWGtEQUktRWhsd2JIVFdYNDVuNEowajVwbTlCRWJrV2ZoRWtvdlc0azBweFRHdE10MEJLcldfU0Z3SnVtcXRZQXhxaDhTRU5oUnk0eWNqWUpGRzdCbkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
