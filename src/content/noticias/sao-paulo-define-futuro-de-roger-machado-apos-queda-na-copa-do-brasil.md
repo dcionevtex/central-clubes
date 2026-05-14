@@ -1,0 +1,13 @@
+---
+title: "São Paulo define futuro de Roger Machado após queda na Copa do Brasil"
+description: "São Paulo define futuro de Roger Machado após queda na Copa do Brasil  Esporte News Mundo"
+pubDate: "2026-05-14T02:13:30.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxNeDl1bmZvaHdIYU9jcjBycHh1N080YjFVRGVLOHZfRHdjek5oY0oyTXROQTlqbXdQbUkzZS1CTFA0OUFhc1g4TG5rdzZkUVJyV2FXY2p5cmt2QVBXWWNDdS1reUZiMEt3b05jeUZIWlVBdGpFazdmMXFUYjhPVk5xU2U3N0JmbnAzU2tSc0FZTlI4bG13OWQ3SVVhNVVoajgzc2UtUlhYSWFUQdIBqgFBVV95cUxNeDl1bmZvaHdIYU9jcjBycHh1N080YjFVRGVLOHZfRHdjek5oY0oyTXROQTlqbXdQbUkzZS1CTFA0OUFhc1g4TG5rdzZkUVJyV2FXY2p5cmt2QVBXWWNDdS1reUZiMEt3b05jeUZIWlVBdGpFazdmMXFUYjhPVk5xU2U3N0JmbnAzU2tSc0FZTlI4bG13OWQ3SVVhNVVoajgzc2UtUlhYSWFUQQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxNeDl1bmZvaHdIYU9jcjBycHh1N080YjFVRGVLOHZfRHdjek5oY0oyTXROQTlqbXdQbUkzZS1CTFA0OUFhc1g4TG5rdzZkUVJyV2FXY2p5cmt2QVBXWWNDdS1reUZiMEt3b05jeUZIWlVBdGpFazdmMXFUYjhPVk5xU2U3N0JmbnAzU2tSc0FZTlI4bG13OWQ3SVVhNVVoajgzc2UtUlhYSWFUQdIBqgFBVV95cUxNeDl1bmZvaHdIYU9jcjBycHh1N080YjFVRGVLOHZfRHdjek5oY0oyTXROQTlqbXdQbUkzZS1CTFA0OUFhc1g4TG5rdzZkUVJyV2FXY2p5cmt2QVBXWWNDdS1reUZiMEt3b05jeUZIWlVBdGpFazdmMXFUYjhPVk5xU2U3N0JmbnAzU2tSc0FZTlI4bG13OWQ3SVVhNVVoajgzc2UtUlhYSWFUQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
