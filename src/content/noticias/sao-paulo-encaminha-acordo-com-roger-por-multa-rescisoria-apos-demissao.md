@@ -1,0 +1,13 @@
+---
+title: "São Paulo encaminha acordo com Roger por multa rescisória após demissão"
+description: "São Paulo encaminha acordo com Roger por multa rescisória após demissão  Terra"
+pubDate: "2026-05-14T15:54:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi8wFBVV95cUxQd0l3QkpaZ0dSV3p2amlxUVlyNFgtekpCcjEwU0NmMFQ0cFRtalcyRUp6bkl2N0hSdm1hMzJwdU51a0Jha0l6NU85S1pOQUlzZWJ6SExULVpHaEl5TGNIOXMtWW4wYUhHbmZCN3pTSTZZQnFWRVpDRWoyYTFrcHQzam9uMGYyZjRzT2lySnctLTRrOGpNdjFKVVljal96M0NEZ3RfQVJwSjBLZEJBT1ltSUVWd3dsN0dhb1hwRDcxOGQySjVwLTVNX1daNlhWYVBJdTNrVkM1dWxaeDRzSjZRTUdzWnpUZ1YyRXMzblBRNmdMdnM?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi8wFBVV95cUxQd0l3QkpaZ0dSV3p2amlxUVlyNFgtekpCcjEwU0NmMFQ0cFRtalcyRUp6bkl2N0hSdm1hMzJwdU51a0Jha0l6NU85S1pOQUlzZWJ6SExULVpHaEl5TGNIOXMtWW4wYUhHbmZCN3pTSTZZQnFWRVpDRWoyYTFrcHQzam9uMGYyZjRzT2lySnctLTRrOGpNdjFKVVljal96M0NEZ3RfQVJwSjBLZEJBT1ltSUVWd3dsN0dhb1hwRDcxOGQySjVwLTVNX1daNlhWYVBJdTNrVkM1dWxaeDRzSjZRTUdzWnpUZ1YyRXMzblBRNmdMdnM?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

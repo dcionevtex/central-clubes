@@ -1,0 +1,13 @@
+---
+title: "Bastidores quentes marcaram queda de Roger Machado no São Paulo"
+description: "Bastidores quentes marcaram queda de Roger Machado no São Paulo  Bolavip Brasil"
+pubDate: "2026-05-14T15:06:30.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMinAFBVV95cUxNa3ZnU3R3TGZiUGhkd1ZaTVZjbXdEUXptS3VoN3d4Um9pdEJuNkN4X1k4V3dIek5oOU1FQTRlVmhwV3FvQWpQal9NRENiSElpb3JkQkh2aHhNSjZMSVQ1N25NekR6MVZmbGFhR0owN05sT2pqaDNDNTlJU1pBOXZ5SloxMUVhOTRibl9ZUHVUNU05MWNtSXF4aldmTmHSAaIBQVVfeXFMTkQ4MlZaeE4tTXUwVlc3LWl0ZHlvTDhiRmVKb0FGejJNc1Q3UndCQzVldWp2SFpHUDloY2xJWk9tN2dzcVNENXRya05hcnFlY2VobW1GV0RYSVJja2pXdWpyVUlrUm16dG1nSVMxUzJBeTFDUk9FSVBaeDNzX1pfSWVJRDRPZHJ5cmVDOFVrTEsyU2tOWVpHOTNYSFpVU2JOTmJ3?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMinAFBVV95cUxNa3ZnU3R3TGZiUGhkd1ZaTVZjbXdEUXptS3VoN3d4Um9pdEJuNkN4X1k4V3dIek5oOU1FQTRlVmhwV3FvQWpQal9NRENiSElpb3JkQkh2aHhNSjZMSVQ1N25NekR6MVZmbGFhR0owN05sT2pqaDNDNTlJU1pBOXZ5SloxMUVhOTRibl9ZUHVUNU05MWNtSXF4aldmTmHSAaIBQVVfeXFMTkQ4MlZaeE4tTXUwVlc3LWl0ZHlvTDhiRmVKb0FGejJNc1Q3UndCQzVldWp2SFpHUDloY2xJWk9tN2dzcVNENXRya05hcnFlY2VobW1GV0RYSVJja2pXdWpyVUlrUm16dG1nSVMxUzJBeTFDUk9FSVBaeDNzX1pfSWVJRDRPZHJ5cmVDOFVrTEsyU2tOWVpHOTNYSFpVU2JOTmJ3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

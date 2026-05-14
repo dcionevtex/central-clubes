@@ -1,0 +1,13 @@
+---
+title: "Quem vem para substituir Roger? São Paulo avalia nomes"
+description: "Quem vem para substituir Roger? São Paulo avalia nomes  Portal Hortolândia"
+pubDate: "2026-05-14T13:30:21.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQT2RlUUpxYWpBRDZ4RWd4N25iZXVmd25vZnAzMU40QWx4Uk5CTUo4VUpHSy0tdDdHOHp5SXZUT3FwdjA2eWY1Yi1RSWV4LS0yQVdNejN1amI1MHJoZ2szWW50d3NPNXE5N3BJUFVqZ3h1RGR6LVdCV00zMTVzbE91VdIBgAFBVV95cUxQT2RlUUpxYWpBRDZ4RWd4N25iZXVmd25vZnAzMU40QWx4Uk5CTUo4VUpHSy0tdDdHOHp5SXZUT3FwdjA2eWY1Yi1RSWV4LS0yQVdNejN1amI1MHJoZ2szWW50d3NPNXE5N3BJUFVqZ3h1RGR6LVdCV00zMTVzbE91VQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQT2RlUUpxYWpBRDZ4RWd4N25iZXVmd25vZnAzMU40QWx4Uk5CTUo4VUpHSy0tdDdHOHp5SXZUT3FwdjA2eWY1Yi1RSWV4LS0yQVdNejN1amI1MHJoZ2szWW50d3NPNXE5N3BJUFVqZ3h1RGR6LVdCV00zMTVzbE91VdIBgAFBVV95cUxQT2RlUUpxYWpBRDZ4RWd4N25iZXVmd25vZnAzMU40QWx4Uk5CTUo4VUpHSy0tdDdHOHp5SXZUT3FwdjA2eWY1Yi1RSWV4LS0yQVdNejN1amI1MHJoZ2szWW50d3NPNXE5N3BJUFVqZ3h1RGR6LVdCV00zMTVzbE91VQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
