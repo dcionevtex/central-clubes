@@ -1,0 +1,13 @@
+---
+title: "Qual é o técnico ideal para comandar o São Paulo? Vote!"
+description: "Qual é o técnico ideal para comandar o São Paulo? Vote!  Gazeta Esportiva"
+pubDate: "2026-05-14T11:39:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxNUUxYY0VndVJYaDJ1YUF0NUJHY21xZEtkU25YTDM2WEY2MGJZQ2RNbnVtV1F5Y0FzWFZORHpkTEJpejFBaDRqdWxZR19OVmxmYXhVQUh3ZXlVSUxEczVFNkFKVFg4aGV2VEMtcGFycGVpc1Zia2gzRUNvSFlOWi1xZVRRS2dpZDEtS0NBbFAtOURGSko1MlhrZnZXWXBhVHkzUnhDVNIBqgFBVV95cUxOWUk2TWZVMnJEcklmM0pqSnBSSWxjUVU2S2lQT0JjdHZ6TG1NcVN5ZTRsYmZvZFpManNqQkJoa20yTmdlRnJTVkJOSEpsUDFpNlZyNTRBZ0o0b1MzeVloU2NXTElDUjNfbUl0RnFPUEhWbE1sazJtWlctb0daSG5rekZUNDRlR1ExekJMZ0ZQQ25QX3FTUmhxeE14cUVNck1qLUItNUdobVRFUQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUUxYY0VndVJYaDJ1YUF0NUJHY21xZEtkU25YTDM2WEY2MGJZQ2RNbnVtV1F5Y0FzWFZORHpkTEJpejFBaDRqdWxZR19OVmxmYXhVQUh3ZXlVSUxEczVFNkFKVFg4aGV2VEMtcGFycGVpc1Zia2gzRUNvSFlOWi1xZVRRS2dpZDEtS0NBbFAtOURGSko1MlhrZnZXWXBhVHkzUnhDVNIBqgFBVV95cUxOWUk2TWZVMnJEcklmM0pqSnBSSWxjUVU2S2lQT0JjdHZ6TG1NcVN5ZTRsYmZvZFpManNqQkJoa20yTmdlRnJTVkJOSEpsUDFpNlZyNTRBZ0o0b1MzeVloU2NXTElDUjNfbUl0RnFPUEhWbE1sazJtWlctb0daSG5rekZUNDRlR1ExekJMZ0ZQQ25QX3FTUmhxeE14cUVNck1qLUItNUdobVRFUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

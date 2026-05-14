@@ -1,0 +1,13 @@
+---
+title: "São Paulo acelera busca por novo técnico e avalia retorno de Dorival"
+description: "São Paulo acelera busca por novo técnico e avalia retorno de Dorival  Jogada 10"
+pubDate: "2026-05-14T12:54:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxQTlhKSE45Mi1rY3U2SzVVdk1VYVZhc2J4b0JRMEVFaWIwcjJlcmJFbVlFMEdPOURrYnBSRTEybGFmVGNoeWZJY1hJbDVvM29JUEUzdE9pZXJMS1Q0dmNkNURtRmR5a3ZuWDIxUmVkNmtoQU5Od2RLa3VjTkdWNl9VcEo2bE9Ram55aFlCRHpRckVOTEpDNk5DREFwZFduUdIBngFBVV95cUxQTlhKSE45Mi1rY3U2SzVVdk1VYVZhc2J4b0JRMEVFaWIwcjJlcmJFbVlFMEdPOURrYnBSRTEybGFmVGNoeWZJY1hJbDVvM29JUEUzdE9pZXJMS1Q0dmNkNURtRmR5a3ZuWDIxUmVkNmtoQU5Od2RLa3VjTkdWNl9VcEo2bE9Ram55aFlCRHpRckVOTEpDNk5DREFwZFduUQ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxQTlhKSE45Mi1rY3U2SzVVdk1VYVZhc2J4b0JRMEVFaWIwcjJlcmJFbVlFMEdPOURrYnBSRTEybGFmVGNoeWZJY1hJbDVvM29JUEUzdE9pZXJMS1Q0dmNkNURtRmR5a3ZuWDIxUmVkNmtoQU5Od2RLa3VjTkdWNl9VcEo2bE9Ram55aFlCRHpRckVOTEpDNk5DREFwZFduUdIBngFBVV95cUxQTlhKSE45Mi1rY3U2SzVVdk1VYVZhc2J4b0JRMEVFaWIwcjJlcmJFbVlFMEdPOURrYnBSRTEybGFmVGNoeWZJY1hJbDVvM29JUEUzdE9pZXJMS1Q0dmNkNURtRmR5a3ZuWDIxUmVkNmtoQU5Od2RLa3VjTkdWNl9VcEo2bE9Ram55aFlCRHpRckVOTEpDNk5DREFwZFduUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
