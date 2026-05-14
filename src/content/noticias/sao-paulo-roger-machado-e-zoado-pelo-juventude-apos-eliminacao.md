@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Roger Machado é zoado pelo Juventude após eliminação"
+description: "São Paulo: Roger Machado é zoado pelo Juventude após eliminação  iG Esportes"
+pubDate: "2026-05-14T00:59:00.000Z"
+source: "iG Esportes"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxOc0dBdkxxRWFBM0hFQmFPR21fZFRWMk04Y0QzQ1ZjZ0RZTTMwMjJTOXNxalRiMkppN2xwZ19HLU9XS28tVjBZclpsMDNsVzNnOElibE9tY2kyT3FnMFVld0pWMkY5QVR5bVZ5RHRKLUE1QjNUam91cDM4dUppNkFVSktJbEppTVVfR3J6cTRyaUZPYjjSAZgBQVVfeXFMT3ZjcGNwVXNrNWNfdkN5TlJINnJiRWRMd3JzdEpaWkFTaU9vTGVydlBzQWIzOFdKcXFzY1NmMHhEd1RxTmxfc3NpT2t1bkFlSWxhSU9hRm1uT1NwUDNoaEJWLTRDUXVKRUZQMEJpWldtdERmREo2Sl9vMEZMSWw3LThPbnd5dWNiOFhMZ3lJc0xHSUZaWnZOT2s?oc=5"
+---
+
+### Fonte Original: iG Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxOc0dBdkxxRWFBM0hFQmFPR21fZFRWMk04Y0QzQ1ZjZ0RZTTMwMjJTOXNxalRiMkppN2xwZ19HLU9XS28tVjBZclpsMDNsVzNnOElibE9tY2kyT3FnMFVld0pWMkY5QVR5bVZ5RHRKLUE1QjNUam91cDM4dUppNkFVSktJbEppTVVfR3J6cTRyaUZPYjjSAZgBQVVfeXFMT3ZjcGNwVXNrNWNfdkN5TlJINnJiRWRMd3JzdEpaWkFTaU9vTGVydlBzQWIzOFdKcXFzY1NmMHhEd1RxTmxfc3NpT2t1bkFlSWxhSU9hRm1uT1NwUDNoaEJWLTRDUXVKRUZQMEJpWldtdERmREo2Sl9vMEZMSWw3LThPbnd5dWNiOFhMZ3lJc0xHSUZaWnZOT2s?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Algoz do São Paulo na Copa do Brasil, Mandaca celebra gol da classificação do Juventude"
+description: "Algoz do São Paulo na Copa do Brasil, Mandaca celebra gol da classificação do Juventude  Gazeta Esportiva"
+pubDate: "2026-05-14T00:59:19.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxQMW1QcGF2WHhGLUtUX2NFNG5SQkRXakFpMVBoeFdmYmhxVEFWWWQxbVVuUHJvTFNQYXRVanRzWWtMZk5EOUtpRHFzNDhpMFlQU21jbHM3NjduRl9kRlpLWUljLTVFQUZ3eXVPUlVsVlNWem9IOGJQTHlCdUdGVVRrRmlkNV9LQWNxNVVFNFEweDFoWXRHelNod1ZsUdIBmwFBVV95cUxQMW1QcGF2WHhGLUtUX2NFNG5SQkRXakFpMVBoeFdmYmhxVEFWWWQxbVVuUHJvTFNQYXRVanRzWWtMZk5EOUtpRHFzNDhpMFlQU21jbHM3NjduRl9kRlpLWUljLTVFQUZ3eXVPUlVsVlNWem9IOGJQTHlCdUdGVVRrRmlkNV9LQWNxNVVFNFEweDFoWXRHelNod1ZsUQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxQMW1QcGF2WHhGLUtUX2NFNG5SQkRXakFpMVBoeFdmYmhxVEFWWWQxbVVuUHJvTFNQYXRVanRzWWtMZk5EOUtpRHFzNDhpMFlQU21jbHM3NjduRl9kRlpLWUljLTVFQUZ3eXVPUlVsVlNWem9IOGJQTHlCdUdGVVRrRmlkNV9LQWNxNVVFNFEweDFoWXRHelNod1ZsUdIBmwFBVV95cUxQMW1QcGF2WHhGLUtUX2NFNG5SQkRXakFpMVBoeFdmYmhxVEFWWWQxbVVuUHJvTFNQYXRVanRzWWtMZk5EOUtpRHFzNDhpMFlQU21jbHM3NjduRl9kRlpLWUljLTVFQUZ3eXVPUlVsVlNWem9IOGJQTHlCdUdGVVRrRmlkNV9LQWNxNVVFNFEweDFoWXRHelNod1ZsUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

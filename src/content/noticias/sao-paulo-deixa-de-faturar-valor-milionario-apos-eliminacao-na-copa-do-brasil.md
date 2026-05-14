@@ -1,0 +1,13 @@
+---
+title: "São Paulo deixa de faturar valor milionário após eliminação na Copa do Brasil"
+description: "São Paulo deixa de faturar valor milionário após eliminação na Copa do Brasil  Rádio Itatiaia"
+pubDate: "2026-05-14T00:25:45.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi_wFBVV95cUxQa0N3US01SmtfNmNOYjRvMXNzdFdHcm1RN0s0NW9oN0tVdW5LdkF5RTFFdUZTR2NqRkRMNkkwb29kYUZHcjN5WFlPMlZLMXBtelhod2oyOEhSc1hUSW1OZEF5aUlwRFZXLU9YRjJaYTdJeEk0SU5oZlNnUHZjbjBWWTBkSTl3MnFtRnpOWWxkbmlqX2xaS1ZxazhkbDJmN3dOLVZlVFk1a1JWTENnX1dSNzU4aW4wbTNPT09reXhma19JS1YwY1pTVnJTQlZrYkxCUmpNS0NFaUh3VG5GOUY5VTVqSzBreU0xUTlQVW9RdF9VNjNNeHhZX1o5S29SRkk?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_wFBVV95cUxQa0N3US01SmtfNmNOYjRvMXNzdFdHcm1RN0s0NW9oN0tVdW5LdkF5RTFFdUZTR2NqRkRMNkkwb29kYUZHcjN5WFlPMlZLMXBtelhod2oyOEhSc1hUSW1OZEF5aUlwRFZXLU9YRjJaYTdJeEk0SU5oZlNnUHZjbjBWWTBkSTl3MnFtRnpOWWxkbmlqX2xaS1ZxazhkbDJmN3dOLVZlVFk1a1JWTENnX1dSNzU4aW4wbTNPT09reXhma19JS1YwY1pTVnJTQlZrYkxCUmpNS0NFaUh3VG5GOUY5VTVqSzBreU0xUTlQVW9RdF9VNjNNeHhZX1o5S29SRkk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

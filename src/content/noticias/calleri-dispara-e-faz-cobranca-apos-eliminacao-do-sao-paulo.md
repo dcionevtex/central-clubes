@@ -1,0 +1,13 @@
+---
+title: "Calleri dispara e faz cobrança após eliminação do São Paulo"
+description: "Calleri dispara e faz cobrança após eliminação do São Paulo  Terra"
+pubDate: "2026-05-14T01:15:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi9AFBVV95cUxOdXB0NDVQaThHNFd0V1FzcEFZX2RaWGNUN0twLXNkNXZMbFN5eUI3Z0NQYWl3TFZ3b1ZZQ1lLUkNSYm5VOTZmcTNjRktpdERZb2tnMm51eTNoYUN2ODdzZ183cE80WG5nNVRHVHFZS0hhQlFROG1Sb1lPOWhOX2dPb1Q2VkRBZGRYLVdHNENCYWFNTXBzQWQ1VmtwdjV6eWZvamtWSWc4b2hYeFJtcTJtaHhnUU5wLVVKdXJyNnhkT2dSTXdrYWI4YzJPWTdaWURXaUhCR1MxM3NncEk4bmpJeUJydEtNbVNaVFVwMjViaklCcW05?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9AFBVV95cUxOdXB0NDVQaThHNFd0V1FzcEFZX2RaWGNUN0twLXNkNXZMbFN5eUI3Z0NQYWl3TFZ3b1ZZQ1lLUkNSYm5VOTZmcTNjRktpdERZb2tnMm51eTNoYUN2ODdzZ183cE80WG5nNVRHVHFZS0hhQlFROG1Sb1lPOWhOX2dPb1Q2VkRBZGRYLVdHNENCYWFNTXBzQWQ1VmtwdjV6eWZvamtWSWc4b2hYeFJtcTJtaHhnUU5wLVVKdXJyNnhkT2dSTXdrYWI4YzJPWTdaWURXaUhCR1MxM3NncEk4bmpJeUJydEtNbVNaVFVwMjViaklCcW05?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

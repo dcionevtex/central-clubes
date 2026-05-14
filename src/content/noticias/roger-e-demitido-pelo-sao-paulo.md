@@ -1,0 +1,13 @@
+---
+title: "Roger é demitido pelo São Paulo"
+description: "Roger é demitido pelo São Paulo  ABCD Jornal"
+pubDate: "2026-05-14T01:46:37.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMijgFBVV95cUxQRXVlS1BuTDFzREJLN040Ty13bkg4VzNMV3NxUUFoTUpFUjk1V09sYXB3enBuVDh2SUtSYTFoSDFvVUlQSnVDeEVWS0VQV0lhUF82NmFnSmxMUFJrYlMwdjltNjhYellYeFRmSXFIbmQxSG1uZDRmanhXQ3hVcGhRZ3RCcUpWYTc5N2tZTDlR0gGTAUFVX3lxTE5GZzZpTEQtWWlLcHFiUktmLUgzMkdQeEY1eVd0dEdyOXIzaDZYZGUxNGtTcGtUV1BVZ190amhLNzMtOFliTTZPLXhxRkRIVkZUaEZXVDFOOUZtdEdSMzRQcWJNYWJmcUhXWURjdlh4UHQwX3I1akUwUEJKWmdXUXNDaTg2RkNaczdvZ1RRX3BPYU9CWQ?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijgFBVV95cUxQRXVlS1BuTDFzREJLN040Ty13bkg4VzNMV3NxUUFoTUpFUjk1V09sYXB3enBuVDh2SUtSYTFoSDFvVUlQSnVDeEVWS0VQV0lhUF82NmFnSmxMUFJrYlMwdjltNjhYellYeFRmSXFIbmQxSG1uZDRmanhXQ3hVcGhRZ3RCcUpWYTc5N2tZTDlR0gGTAUFVX3lxTE5GZzZpTEQtWWlLcHFiUktmLUgzMkdQeEY1eVd0dEdyOXIzaDZYZGUxNGtTcGtUV1BVZ190amhLNzMtOFliTTZPLXhxRkRIVkZUaEZXVDFOOUZtdEdSMzRQcWJNYWJmcUhXWURjdlh4UHQwX3I1akUwUEJKWmdXUXNDaTg2RkNaczdvZ1RRX3BPYU9CWQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
