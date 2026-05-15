@@ -1,0 +1,13 @@
+---
+title: "Quem será o novo técnico do São Paulo? Veja os cotados e vote no seu favorito"
+description: "Quem será o novo técnico do São Paulo? Veja os cotados e vote no seu favorito  DPF » De torcedor para torcedor"
+pubDate: "2026-05-15T02:40:52.000Z"
+source: "DPF » De torcedor para torcedor"
+link: "https://news.google.com/rss/articles/CBMirwFBVV95cUxPeFNLWEJNbm5KbXdBUUttQTVRTnVsRzU4dkUxaWxXQVpIYWFZYlF1NmpXOFBMZW1SS3k0cHk0Z1h4UzBzRWdGajRsblhIU1pYaXYxOUNGc2pxUlhXZmRydlhWUWlYaTBQSlFtSjY4RV9EdE9YaUxVaWxTREJ1X05kRXRsVThxbW9rS2pMN1p4ZDEydDNaQ2RDNEFvNTNqNm9LRnJkc2JGS09MNzY2em440gG3AUFVX3lxTE93WjF3TGJreWdjeG5JYlYyQVNRQ1J3LUkxZTlpa1RYMkI4TVlHRmlNekdudWJ4bFZ3cmh1NzB3RnZQMXlrWnRJcnoxckhVVEpmTkhfdlN6QTl4V1VZaUxzUFJyQl92a1VnQWY4S2xKaExkbk9Ta3pkd1BZZ00xcEZEU05VTU83T3FkNHhrdWRyOEwxa0VuV181eTlqc1RJbDhsQV9lV01oeHJrZnQxRGRVVW04NWdEWQ?oc=5"
+---
+
+### Fonte Original: DPF » De torcedor para torcedor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMirwFBVV95cUxPeFNLWEJNbm5KbXdBUUttQTVRTnVsRzU4dkUxaWxXQVpIYWFZYlF1NmpXOFBMZW1SS3k0cHk0Z1h4UzBzRWdGajRsblhIU1pYaXYxOUNGc2pxUlhXZmRydlhWUWlYaTBQSlFtSjY4RV9EdE9YaUxVaWxTREJ1X05kRXRsVThxbW9rS2pMN1p4ZDEydDNaQ2RDNEFvNTNqNm9LRnJkc2JGS09MNzY2em440gG3AUFVX3lxTE93WjF3TGJreWdjeG5JYlYyQVNRQ1J3LUkxZTlpa1RYMkI4TVlHRmlNekdudWJ4bFZ3cmh1NzB3RnZQMXlrWnRJcnoxckhVVEpmTkhfdlN6QTl4V1VZaUxzUFJyQl92a1VnQWY4S2xKaExkbk9Ta3pkd1BZZ00xcEZEU05VTU83T3FkNHhrdWRyOEwxa0VuV181eTlqc1RJbDhsQV9lV01oeHJrZnQxRGRVVW04NWdEWQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
