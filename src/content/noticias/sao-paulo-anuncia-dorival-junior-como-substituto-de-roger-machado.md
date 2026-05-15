@@ -1,0 +1,13 @@
+---
+title: "São Paulo anuncia Dorival Júnior como substituto de Roger Machado"
+description: "São Paulo anuncia Dorival Júnior como substituto de Roger Machado  Terra"
+pubDate: "2026-05-15T15:03:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi-gFBVV95cUxQNzB6SW1pY0tscUttQS1WZjktaWViRXNXUGZUTEFIcEkwb0pPLUJsX0lUVm45amtaaHlZVnBGX3JaeTdrMlBJbXByV3dkUng3cDBTYmRpbUtMZEgxNjN5QjFockJNV2hCSGNuR3c2enpoekRuRlM2aWxRRDdwbW5lMWs0LW1sRXlhZjhHVU1YODBUY1NEWU1CeExZWE5GZURFOGNNOXY5MUZEYk1yY19La3RaUUNWbW16WUZUT1RKa1BCZ3AxRGlvT0ZnNHQ5YTA2M3NkN2tIY2NPSEp2NEplQUtOWVRvODZ2R056ajBkVjlMdjVaZGx3N0dB?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi-gFBVV95cUxQNzB6SW1pY0tscUttQS1WZjktaWViRXNXUGZUTEFIcEkwb0pPLUJsX0lUVm45amtaaHlZVnBGX3JaeTdrMlBJbXByV3dkUng3cDBTYmRpbUtMZEgxNjN5QjFockJNV2hCSGNuR3c2enpoekRuRlM2aWxRRDdwbW5lMWs0LW1sRXlhZjhHVU1YODBUY1NEWU1CeExZWE5GZURFOGNNOXY5MUZEYk1yY19La3RaUUNWbW16WUZUT1RKa1BCZ3AxRGlvT0ZnNHQ5YTA2M3NkN2tIY2NPSEp2NEplQUtOWVRvODZ2R056ajBkVjlMdjVaZGx3N0dB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
