@@ -1,0 +1,13 @@
+---
+title: "São Paulo é amassado pelo Atlético Nacional, mas empata na Libertadores"
+description: "São Paulo é amassado pelo Atlético Nacional, mas empata na Libertadores  TribalFootball"
+pubDate: "2026-05-15T09:50:30.000Z"
+source: "TribalFootball"
+link: "https://news.google.com/rss/articles/CBMilgJBVV95cUxPVVRJX0xhZ0lBNWVQajN4SWZCdU5iVEtLRDlJWVFEWWVhWXhMOXpPbkdhNXlTR3ZHRmJXZnZkT2pfR3d6a0VCUmZqYUZ5YXBodGQyN3lxeWxHRGJyc2RBSWtqSjhiSEdrdk9xczVmaDJudWxtNTE5TFJ3ejR4VDQyLU1fLWNLcjIxUEZjN1hRREdZMHZoRXJOdmtfbVktQ0gtc0ttaHh4bnBYVzY0OGJoMmVKb1RfZWt4XzZ6dlIyR3hXdUs5N2FMX3BHNVBTNVNVamk4OUNEZFlGSVAzVUU3MjFCMzZCZi1OeGRLb3VuQU85dnhoYUJna3gtMVRuOHJSd2l4cXc2b0hVNDAyZ3JjTHRmdTBWZw?oc=5"
+---
+
+### Fonte Original: TribalFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgJBVV95cUxPVVRJX0xhZ0lBNWVQajN4SWZCdU5iVEtLRDlJWVFEWWVhWXhMOXpPbkdhNXlTR3ZHRmJXZnZkT2pfR3d6a0VCUmZqYUZ5YXBodGQyN3lxeWxHRGJyc2RBSWtqSjhiSEdrdk9xczVmaDJudWxtNTE5TFJ3ejR4VDQyLU1fLWNLcjIxUEZjN1hRREdZMHZoRXJOdmtfbVktQ0gtc0ttaHh4bnBYVzY0OGJoMmVKb1RfZWt4XzZ6dlIyR3hXdUs5N2FMX3BHNVBTNVNVamk4OUNEZFlGSVAzVUU3MjFCMzZCZi1OeGRLb3VuQU85dnhoYUJna3gtMVRuOHJSd2l4cXc2b0hVNDAyZ3JjTHRmdTBWZw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo acerta venda de William Gomes ao Porto e encaminha chegada de Wendell"
+description: "São Paulo acerta venda de William Gomes ao Porto e encaminha chegada de Wendell  TribalFootball"
+pubDate: "2026-05-15T09:07:45.000Z"
+source: "TribalFootball"
+link: "https://news.google.com/rss/articles/CBMiggJBVV95cUxORVpGcXZhMHZXb2NBSmo1dDVxOFZUbFItRll6c2RmR01SenBsc2NXUXF3TmZNenF2bGxnRlhLbXJ4U2xUQU5uS3lYT0hCZDJBRXpxQVRDczJETVZka3dvWGFFd0wxZlFOZU1RUVFfbU90OHlzVFAtSmRJYTFvbVlUcG03MlNoS2tGTGdyckYwWW5UU01Pekx6V2pRUlVGOVpXZTJfdDhla2szeVV6QzV6OHJVUnBGdGhncDh0V2F0WktZUjZKXzlnUFhIOXFNVWtlWDAxZ1ZBY1RKLVd5OEd5UEZ6T0tOM0dfejhyOWpZeFdIdFNkbDd2MjV5T2xybFMzWnc?oc=5"
+---
+
+### Fonte Original: TribalFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggJBVV95cUxORVpGcXZhMHZXb2NBSmo1dDVxOFZUbFItRll6c2RmR01SenBsc2NXUXF3TmZNenF2bGxnRlhLbXJ4U2xUQU5uS3lYT0hCZDJBRXpxQVRDczJETVZka3dvWGFFd0wxZlFOZU1RUVFfbU90OHlzVFAtSmRJYTFvbVlUcG03MlNoS2tGTGdyckYwWW5UU01Pekx6V2pRUlVGOVpXZTJfdDhla2szeVV6QzV6OHJVUnBGdGhncDh0V2F0WktZUjZKXzlnUFhIOXFNVWtlWDAxZ1ZBY1RKLVd5OEd5UEZ6T0tOM0dfejhyOWpZeFdIdFNkbDd2MjV5T2xybFMzWnc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
