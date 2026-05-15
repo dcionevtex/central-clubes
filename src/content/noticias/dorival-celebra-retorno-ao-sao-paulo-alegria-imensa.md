@@ -1,0 +1,13 @@
+---
+title: "Dorival celebra retorno ao São Paulo: “Alegria imensa”"
+description: "Dorival celebra retorno ao São Paulo: “Alegria imensa”  Gazeta Esportiva"
+pubDate: "2026-05-15T19:46:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxQZ3FBZWtpdy1wR3J0V29QU0EyUk4xZ1VTMnFhZEJIQUc4ekw3NVpYNlFRYVpSRF9md3dENGphbUpNai1mZUxYODlIMDRYSnY5ZTN4Ymo2UnJpdlcwLW1YUEd3MDRlX2VlQWppaWZmVDhQU09KRG1nOW5VTlBRRFRKNndpZ3VQU3dYTW5ZTXhmR0E3YVZMcXozMVFEU3pjNENwX3fSAacBQVVfeXFMTm96X1lLMmZSdDMyZkFJQVJ5U1dsdDFOem9hRFNrdXlWNVJrcFVESTBfZHRUNVhGNWdzVkhhNjdtdEFmYWFlUkVHekhwLVdMODl1el9EZEF5cnNXS3pMcGFhMUV0WlYzMjlWSmNxUkxiMVlvckxQNHI3NFZNekZoaXFHNUR2WDZxVWJ6ZklxY25zRzY1NHRxNkREeXBEYlprX0RiMGRLLXM?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxQZ3FBZWtpdy1wR3J0V29QU0EyUk4xZ1VTMnFhZEJIQUc4ekw3NVpYNlFRYVpSRF9md3dENGphbUpNai1mZUxYODlIMDRYSnY5ZTN4Ymo2UnJpdlcwLW1YUEd3MDRlX2VlQWppaWZmVDhQU09KRG1nOW5VTlBRRFRKNndpZ3VQU3dYTW5ZTXhmR0E3YVZMcXozMVFEU3pjNENwX3fSAacBQVVfeXFMTm96X1lLMmZSdDMyZkFJQVJ5U1dsdDFOem9hRFNrdXlWNVJrcFVESTBfZHRUNVhGNWdzVkhhNjdtdEFmYWFlUkVHekhwLVdMODl1el9EZEF5cnNXS3pMcGFhMUV0WlYzMjlWSmNxUkxiMVlvckxQNHI3NFZNekZoaXFHNUR2WDZxVWJ6ZklxY25zRzY1NHRxNkREeXBEYlprX0RiMGRLLXM?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

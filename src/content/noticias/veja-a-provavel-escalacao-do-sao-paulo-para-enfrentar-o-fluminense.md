@@ -1,0 +1,13 @@
+---
+title: "Veja a provável escalação do São Paulo para enfrentar o Fluminense"
+description: "Veja a provável escalação do São Paulo para enfrentar o Fluminense  Portal Hortolândia"
+pubDate: "2026-05-15T19:35:23.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE9wa1p1VFlUa0xKWGY3c3laTHptUU1EVnNDNV9ic19uTVJ0M3RkT3g1MFFjRnB1M0FIX3NKOS1QdVBoOEExZGRBTGR6MnRpQl9PWFRfc01acHgwbmwyZ1ZSRE1aMXpVMm1qMUQxdGo5VGJkX001S1JmMldn0gF6QVVfeXFMT3BrWnVUWVRrTEpYZjdzeVpMem1RTURWc0M1X2JzX25NUnQzdGRPeDUwUWNGcHUzQUhfc0o5LVB1UGg4QTFkZEFMZHoydGlCX09YVF9zTVpweDBubDJnVlJETVoxelUybWoxRDF0ajlUYmRfTTVLUmYyV2c?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE9wa1p1VFlUa0xKWGY3c3laTHptUU1EVnNDNV9ic19uTVJ0M3RkT3g1MFFjRnB1M0FIX3NKOS1QdVBoOEExZGRBTGR6MnRpQl9PWFRfc01acHgwbmwyZ1ZSRE1aMXpVMm1qMUQxdGo5VGJkX001S1JmMldn0gF6QVVfeXFMT3BrWnVUWVRrTEpYZjdzeVpMem1RTURWc0M1X2JzX25NUnQzdGRPeDUwUWNGcHUzQUhfc0o5LVB1UGg4QTFkZEFMZHoydGlCX09YVF9zTVpweDBubDJnVlJETVoxelUybWoxRDF0ajlUYmRfTTVLUmYyV2c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Ex-Bahia é alvo de protestos da torcida do São Paulo: \"Verme\""
+description: "Ex-Bahia é alvo de protestos da torcida do São Paulo: \"Verme\"  A TARDE"
+pubDate: "2026-05-15T18:44:54.000Z"
+source: "A TARDE"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxOQWdNMUszQUhQcTZDOFFUUW9kNVA5dmJQNTJBanhubDJnLV9ONFdsNWlva0I0QlhyVmNIQ2ducm1rZTF2VUVOeUZSWm8tb2JObXBGYVpMTnk1TkdzZV92eU9sZEVGUGJwQ0NJd2VnNklvUF9KU1djdlJFUVdPY2syTnhHUEM3eTFQVVFEV0NFc3BMR3Y3Sm1FQmQ1MUNRYUtIcThmT1NwRVDSAbABQVVfeXFMT0paWldPYzk0RHVRbld1VXp1ZjFSMl9ndVpWQTdUR3k5VmdfQmVPMGcwUVdUOWZxR2RBWndUZ2p5U196dnQ3R2I4cVUwQWtvVXJaWGdFcTdrQ1hvNWd5dDZpSFpjQnRkcGhfWlhUNGRzd19CTEt1cG8xbm9vYU5wVDZPRHpwOFB5VE9INzJ2Q2ZWWUNMY0Vpd0hLOHluRXFOYkFuOG1ZT3FQbkFzcGxwd1o?oc=5"
+---
+
+### Fonte Original: A TARDE
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxOQWdNMUszQUhQcTZDOFFUUW9kNVA5dmJQNTJBanhubDJnLV9ONFdsNWlva0I0QlhyVmNIQ2ducm1rZTF2VUVOeUZSWm8tb2JObXBGYVpMTnk1TkdzZV92eU9sZEVGUGJwQ0NJd2VnNklvUF9KU1djdlJFUVdPY2syTnhHUEM3eTFQVVFEV0NFc3BMR3Y3Sm1FQmQ1MUNRYUtIcThmT1NwRVDSAbABQVVfeXFMT0paWldPYzk0RHVRbld1VXp1ZjFSMl9ndVpWQTdUR3k5VmdfQmVPMGcwUVdUOWZxR2RBWndUZ2p5U196dnQ3R2I4cVUwQWtvVXJaWGdFcTdrQ1hvNWd5dDZpSFpjQnRkcGhfWlhUNGRzd19CTEt1cG8xbm9vYU5wVDZPRHpwOFB5VE9INzJ2Q2ZWWUNMY0Vpd0hLOHluRXFOYkFuOG1ZT3FQbkFzcGxwd1o?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
