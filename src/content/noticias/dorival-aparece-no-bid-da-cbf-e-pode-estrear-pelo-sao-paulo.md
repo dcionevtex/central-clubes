@@ -1,0 +1,13 @@
+---
+title: "Dorival aparece no BID da CBF e pode estrear pelo São Paulo"
+description: "Dorival aparece no BID da CBF e pode estrear pelo São Paulo  Gazeta Esportiva"
+pubDate: "2026-05-15T22:59:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMikwFBVV95cUxQNlRnZHFpUU90dExFNjhrb0R1T0I3WnNZZTNoMWFMczYwTEFPTTVVazNOcWxzTzZ0aVlfTEYweDJPX3lGbHR1c3J1OHFBY1BHZUxMN3VyZTVDNy1GLV9pYWhBbnBISVNrYVRJYnpkN0lUT0VfVkVNZ3JpOTN2blZUWVZMN3hHeGdFOFg3dVZSRXhCdU3SAZMBQVVfeXFMUDZUZ2RxaVFPdHRMRTY4a29EdU9CN1pzWWUzaDFhTHM2MExBT001VWszTnFsc082dGlZX0xGMHgyT195Rmx0dXNydThxQWNQR2VMTDd1cmU1QzctRi1faWFoQW5wSElTa2FUSWJ6ZDdJVE9FX1ZFTWdyaTkzdm5WVFlWTDd4R3hnRThYN3VWUkV4QnVN?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikwFBVV95cUxQNlRnZHFpUU90dExFNjhrb0R1T0I3WnNZZTNoMWFMczYwTEFPTTVVazNOcWxzTzZ0aVlfTEYweDJPX3lGbHR1c3J1OHFBY1BHZUxMN3VyZTVDNy1GLV9pYWhBbnBISVNrYVRJYnpkN0lUT0VfVkVNZ3JpOTN2blZUWVZMN3hHeGdFOFg3dVZSRXhCdU3SAZMBQVVfeXFMUDZUZ2RxaVFPdHRMRTY4a29EdU9CN1pzWWUzaDFhTHM2MExBT001VWszTnFsc082dGlZX0xGMHgyT195Rmx0dXNydThxQWNQR2VMTDd1cmU1QzctRi1faWFoQW5wSElTa2FUSWJ6ZDdJVE9FX1ZFTWdyaTkzdm5WVFlWTDd4R3hnRThYN3VWUkV4QnVN?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

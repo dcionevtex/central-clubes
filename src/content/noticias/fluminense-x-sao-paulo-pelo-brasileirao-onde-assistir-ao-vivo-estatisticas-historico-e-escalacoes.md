@@ -1,0 +1,13 @@
+---
+title: "Fluminense x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações"
+description: "Fluminense x São Paulo pelo Brasileirão: onde assistir ao vivo, estatísticas, histórico e escalações  Gazeta Esportiva"
+pubDate: "2026-05-15T23:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMiigFBVV95cUxQRTdTcXIxcEJIYXRidS1RT093LXEzT3FXZ01xRTQ5LUdpSS1PeHBlSDh2VlI1S0FxVzd6U3R1VXIzNTQ1OHRPbVBYakF4eXlPS2RVaEhWSWQ0WjVmaVRWRFcxT0pPWHUwTC11bk10QnFVS005VTVXT0FqV0t4dGUzWkYyU3ZLRnEyYnfSAY8BQVVfeXFMUDFZdUpFQ2J2b2F5LU93enpBaXMtZzJSUXpHa2RWVlVGWmlIT2JwM01ReHRVYTF1ZHpNbTljZEE5emdKSkItc1RMQ2lwT05vbDdiMkpTZS1pUFpjQ1cxQXdtNlo5dU1WM1pZaGVPNzBmeElsQkNXRGxTY3Qzd2themN4dVp5THMzcEJRdG1jdTA?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigFBVV95cUxQRTdTcXIxcEJIYXRidS1RT093LXEzT3FXZ01xRTQ5LUdpSS1PeHBlSDh2VlI1S0FxVzd6U3R1VXIzNTQ1OHRPbVBYakF4eXlPS2RVaEhWSWQ0WjVmaVRWRFcxT0pPWHUwTC11bk10QnFVS005VTVXT0FqV0t4dGUzWkYyU3ZLRnEyYnfSAY8BQVVfeXFMUDFZdUpFQ2J2b2F5LU93enpBaXMtZzJSUXpHa2RWVlVGWmlIT2JwM01ReHRVYTF1ZHpNbTljZEE5emdKSkItc1RMQ2lwT05vbDdiMkpTZS1pUFpjQ1cxQXdtNlo5dU1WM1pZaGVPNzBmeElsQkNXRGxTY3Qzd2themN4dVp5THMzcEJRdG1jdTA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
