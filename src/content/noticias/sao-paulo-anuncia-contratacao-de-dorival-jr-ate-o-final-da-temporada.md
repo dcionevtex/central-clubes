@@ -1,0 +1,13 @@
+---
+title: "São Paulo anuncia contratação de Dorival Jr até o final da temporada"
+description: "São Paulo anuncia contratação de Dorival Jr até o final da temporada  InMagazine"
+pubDate: "2026-05-15T19:04:47.000Z"
+source: "InMagazine"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxQOWFMSW5sMDNpN0ZLNmExaWYtZzFPMWpEUkp4OFctMU9fTkNjdGh3aXRYaG9PdnVLVC00ckVOOEt1VFV6LXJkYzJDSUFZQnh5TlktQ3RWYVVHNFVLbWZDVGFCSnZyVHgtTnJDMDJxeTB1MVBhOFVDWThHU0F3ZzR0ZTdtRXLSAYoBQVVfeXFMT29WSVB1THV2STRRd2N3QVVtM09wSFM3T3l3a1kwb2Zzck1PWXB6bGV1ZTl4QlNqYzhLT2lfbkdmQnlrR2RvQUdwLWtpZUh6aWV6YzJPWktZWXh6clljNWtVY21nYnN1SWhXQ3VsOGJ2a3pvMWFRcGo4bV9PZlRJN1NZcjd1cU93OTN3?oc=5"
+---
+
+### Fonte Original: InMagazine
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxQOWFMSW5sMDNpN0ZLNmExaWYtZzFPMWpEUkp4OFctMU9fTkNjdGh3aXRYaG9PdnVLVC00ckVOOEt1VFV6LXJkYzJDSUFZQnh5TlktQ3RWYVVHNFVLbWZDVGFCSnZyVHgtTnJDMDJxeTB1MVBhOFVDWThHU0F3ZzR0ZTdtRXLSAYoBQVVfeXFMT29WSVB1THV2STRRd2N3QVVtM09wSFM3T3l3a1kwb2Zzck1PWXB6bGV1ZTl4QlNqYzhLT2lfbkdmQnlrR2RvQUdwLWtpZUh6aWV6YzJPWktZWXh6clljNWtVY21nYnN1SWhXQ3VsOGJ2a3pvMWFRcGo4bV9PZlRJN1NZcjd1cU93OTN3?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
