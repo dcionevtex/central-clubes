@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Torcida faz protesto em frente ao CT e conversam com jogadores"
+description: "São Paulo: Torcida faz protesto em frente ao CT e conversam com jogadores  Portal Hortolândia"
+pubDate: "2026-05-14T23:39:20.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxQbzBPVnlWeWtCZ3c0N1V6cFJWODRKNFpjc3I0cmdhRDBFc0dMdURoTXUtOHJqd3htclRub0xoSzh1WndtdnB0X2ZjZVU5c3ZsQVRjSFAxLWZTVkFxUnFhRkcxbTZaWDAyTEZHQkl4d09DYlNjdWJJR09mSTh2QmEtZtIBgAFBVV95cUxQbzBPVnlWeWtCZ3c0N1V6cFJWODRKNFpjc3I0cmdhRDBFc0dMdURoTXUtOHJqd3htclRub0xoSzh1WndtdnB0X2ZjZVU5c3ZsQVRjSFAxLWZTVkFxUnFhRkcxbTZaWDAyTEZHQkl4d09DYlNjdWJJR09mSTh2QmEtZg?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxQbzBPVnlWeWtCZ3c0N1V6cFJWODRKNFpjc3I0cmdhRDBFc0dMdURoTXUtOHJqd3htclRub0xoSzh1WndtdnB0X2ZjZVU5c3ZsQVRjSFAxLWZTVkFxUnFhRkcxbTZaWDAyTEZHQkl4d09DYlNjdWJJR09mSTh2QmEtZtIBgAFBVV95cUxQbzBPVnlWeWtCZ3c0N1V6cFJWODRKNFpjc3I0cmdhRDBFc0dMdURoTXUtOHJqd3htclRub0xoSzh1WndtdnB0X2ZjZVU5c3ZsQVRjSFAxLWZTVkFxUnFhRkcxbTZaWDAyTEZHQkl4d09DYlNjdWJJR09mSTh2QmEtZg?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
