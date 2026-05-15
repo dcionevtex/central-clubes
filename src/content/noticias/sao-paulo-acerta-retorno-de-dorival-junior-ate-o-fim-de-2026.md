@@ -1,0 +1,13 @@
+---
+title: "São Paulo acerta retorno de Dorival Júnior até o fim de 2026"
+description: "São Paulo acerta retorno de Dorival Júnior até o fim de 2026  Bolavip Brasil"
+pubDate: "2026-05-15T14:53:51.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxQVVBBcXprRmVkM05LMEQzWmc0REMyZHVlVjZMVEFnS2d0SVdHLVN0M3AyVkxBQ2FxeXF2SEktOW5pdE1zb0dfVWM4TGpHcWg0UWtTblZwY1NfZ3EyXzJhei1pYnZvZFZ1M1dWeXVFZ0UtZ1VPS1ZURUhqVEdkSDY1UmxMb01waHR2UlhiRjR2R3lJU29RLTcxQtIBngFBVV95cUxPdXdLd0xNSnFkMVhvbTVXU2kyaE0yNHdqdlJzSUZnd2ZxVlRsNktIN1Z6NjNYYzNEczFMNU9scXp6cWp3X2RUang3T240NGszazhlczROVnp3T1F1UTBJME5aOEV3dzRrdzdPQllnX1FtS1daVzVyZlU0SVk0VEhSTTNPQ1BqR0NtRFMwRlhzQlg5N2liREUwQmI0RHJ6Zw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxQVVBBcXprRmVkM05LMEQzWmc0REMyZHVlVjZMVEFnS2d0SVdHLVN0M3AyVkxBQ2FxeXF2SEktOW5pdE1zb0dfVWM4TGpHcWg0UWtTblZwY1NfZ3EyXzJhei1pYnZvZFZ1M1dWeXVFZ0UtZ1VPS1ZURUhqVEdkSDY1UmxMb01waHR2UlhiRjR2R3lJU29RLTcxQtIBngFBVV95cUxPdXdLd0xNSnFkMVhvbTVXU2kyaE0yNHdqdlJzSUZnd2ZxVlRsNktIN1Z6NjNYYzNEczFMNU9scXp6cWp3X2RUang3T240NGszazhlczROVnp3T1F1UTBJME5aOEV3dzRrdzdPQllnX1FtS1daVzVyZlU0SVk0VEhSTTNPQ1BqR0NtRFMwRlhzQlg5N2liREUwQmI0RHJ6Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

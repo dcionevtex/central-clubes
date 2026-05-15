@@ -1,0 +1,13 @@
+---
+title: "São Paulo acerta a contratação de técnico após saída de Roger Machado"
+description: "São Paulo acerta a contratação de técnico após saída de Roger Machado  Esporte News Mundo"
+pubDate: "2026-05-15T15:05:08.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxNUnAyNG13b01ucUdkNW9keE4xTFJKT3IybUxMb2xESnZaUklaYlpqS3JJSXJwZGtPalkxY2hKMVZrMGtoRHZCV01uN2pBLWc3RE5EazNFS1IyUGRhMWp0M3FvYVluLTJ2aUZUVlE0SDRWNklBdHVIQWljNmJGWkI0bWp4VGVtTXVpcnB5SlVuYTNpTTBrWlhsTXhIUWg2ajBIekxLVdIBqgFBVV95cUxQbEMwTkg1MHZoMGRMRUVVX2Y5MWl1aUVyX3JTaGNlamRfTGVYb1J3bktjUkVRQUxucHk3c3JwWmR6NWF0OWJDdE1CTXRTVkpyMWF0RDFkSEZjZDYycElWZzRBamc5c0ZsbDJSSmpWa3R4V3p3bEVYemFWMkZZNjktRlNYQk9PZkZyNGthTGc0ZjMyLW8tSHhUeTRtekNTRlRlMW5vVFNRUmttUQ?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxNUnAyNG13b01ucUdkNW9keE4xTFJKT3IybUxMb2xESnZaUklaYlpqS3JJSXJwZGtPalkxY2hKMVZrMGtoRHZCV01uN2pBLWc3RE5EazNFS1IyUGRhMWp0M3FvYVluLTJ2aUZUVlE0SDRWNklBdHVIQWljNmJGWkI0bWp4VGVtTXVpcnB5SlVuYTNpTTBrWlhsTXhIUWg2ajBIekxLVdIBqgFBVV95cUxQbEMwTkg1MHZoMGRMRUVVX2Y5MWl1aUVyX3JTaGNlamRfTGVYb1J3bktjUkVRQUxucHk3c3JwWmR6NWF0OWJDdE1CTXRTVkpyMWF0RDFkSEZjZDYycElWZzRBamc5c0ZsbDJSSmpWa3R4V3p3bEVYemFWMkZZNjktRlNYQk9PZkZyNGthTGc0ZjMyLW8tSHhUeTRtekNTRlRlMW5vVFNRUmttUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

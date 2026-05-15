@@ -1,0 +1,13 @@
+---
+title: "São Paulo age rápido e anuncia retorno do técnico Dorival Júnior; veja detalhes"
+description: "São Paulo age rápido e anuncia retorno do técnico Dorival Júnior; veja detalhes  Rádio Itatiaia"
+pubDate: "2026-05-15T15:27:38.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMiowJBVV95cUxQMVpoQ2RuZjYzamw5Q0Y4bmZwblp6VXJQRC16aWZ2NGJHaXhIOEtMR3JjbHNmTGxvM0hQMUszS0FqanczNWZJRkdqUFVmUHBTdG5ScmxhLWV0SElxaEtKTlc0QUlzZ25ic1F6VENDVjhZeFBCZldzYWtZdmZLeGF1SE9IZjdOQWhEMEFMaU5RV25wVHlXWVNqbzRlRjJhZkJCdlBzYjBZczdLbjRJdDhTNDJSbi1FdzNyYjlud0gxb1lORlRiZ3hiRTVwY3NDUFdUU3UyNDh1MHdnMEFuRlFzWW9kTUxhS3hNM0swSTJPdGZxVktLQ0NrNGpoQ0lVbVRNTGF5ODQ5NWhyVkJaeUh5OVI3RGNROVY3Qzdka3RjY01hNm8?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowJBVV95cUxQMVpoQ2RuZjYzamw5Q0Y4bmZwblp6VXJQRC16aWZ2NGJHaXhIOEtMR3JjbHNmTGxvM0hQMUszS0FqanczNWZJRkdqUFVmUHBTdG5ScmxhLWV0SElxaEtKTlc0QUlzZ25ic1F6VENDVjhZeFBCZldzYWtZdmZLeGF1SE9IZjdOQWhEMEFMaU5RV25wVHlXWVNqbzRlRjJhZkJCdlBzYjBZczdLbjRJdDhTNDJSbi1FdzNyYjlud0gxb1lORlRiZ3hiRTVwY3NDUFdUU3UyNDh1MHdnMEFuRlFzWW9kTUxhS3hNM0swSTJPdGZxVktLQ0NrNGpoQ0lVbVRNTGF5ODQ5NWhyVkJaeUh5OVI3RGNROVY3Qzdka3RjY01hNm8?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

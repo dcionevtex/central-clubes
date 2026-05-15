@@ -1,0 +1,13 @@
+---
+title: "Dorival aceita treinar o São Paulo, mas exige garantia de reforços para assinar contrato"
+description: "Dorival aceita treinar o São Paulo, mas exige garantia de reforços para assinar contrato  Antenados no Futebol"
+pubDate: "2026-05-15T13:42:32.000Z"
+source: "Antenados no Futebol"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNZ3RIRTJqNXdYVlVxVnJhZEVGQzVaOXpiWUJaV2VoMzc3dWt6T0wwZ0RjbjRyeVdwa0pLRU40MTNWVDl6enU4YkRiVEF4SGI3NEl0cTdWUUp5cFBmRHpCNlZ4dkVlQnhSbHV6TzdFZTZMYlprVmNaTDNsRDJNcngwaFllR1ZhUEcwalhXM3RPUGhnbjE2UjlINjBB0gGfAUFVX3lxTE4tSENvODlxdjFqT3BwV09vWUhiY2Y1VTU0VXNZejVxUmVrWHVYejNHTEItdnJjV242Y3BSMmczMWtva1JmRHlwR0xhTXpVaFZpcW1BQWNWbUJOaGxjT0ExR2tJamdjcW5CeGdPQlpQaGNybF9KSjhCNWw3VUFfcU9VbzN0ZEhIM3RaVXcwSEIzWmVmeGJYWGxFeXNobXNEOA?oc=5"
+---
+
+### Fonte Original: Antenados no Futebol
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNZ3RIRTJqNXdYVlVxVnJhZEVGQzVaOXpiWUJaV2VoMzc3dWt6T0wwZ0RjbjRyeVdwa0pLRU40MTNWVDl6enU4YkRiVEF4SGI3NEl0cTdWUUp5cFBmRHpCNlZ4dkVlQnhSbHV6TzdFZTZMYlprVmNaTDNsRDJNcngwaFllR1ZhUEcwalhXM3RPUGhnbjE2UjlINjBB0gGfAUFVX3lxTE4tSENvODlxdjFqT3BwV09vWUhiY2Y1VTU0VXNZejVxUmVrWHVYejNHTEItdnJjV242Y3BSMmczMWtva1JmRHlwR0xhTXpVaFZpcW1BQWNWbUJOaGxjT0ExR2tJamdjcW5CeGdPQlpQaGNybF9KSjhCNWw3VUFfcU9VbzN0ZEhIM3RaVXcwSEIzWmVmeGJYWGxFeXNobXNEOA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

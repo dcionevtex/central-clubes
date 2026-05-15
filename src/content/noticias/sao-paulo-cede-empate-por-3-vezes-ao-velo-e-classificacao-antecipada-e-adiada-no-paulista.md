@@ -1,0 +1,13 @@
+---
+title: "São Paulo cede empate por 3 vezes ao Velo e classificação antecipada é adiada no Paulista"
+description: "São Paulo cede empate por 3 vezes ao Velo e classificação antecipada é adiada no Paulista  TribalFootball"
+pubDate: "2026-05-15T12:08:21.000Z"
+source: "TribalFootball"
+link: "https://news.google.com/rss/articles/CBMijwJBVV95cUxPYVkzMFUyWl9TeVI0MzJuSU1DN2VScDJnSkRWSmZQYjR3R2RPeWxfSVNMb0dIc2VRWUdtVjlxOWNFWDFaWTkyQW1IMXRJdTNhMld6VXJ4VlBtazAzU3ZYQnphMTF4WDhUUVJ6U19Kd0pzeWNHanFMWElMc0hXWHJxdzlBX3pXRmFEOTRnV1dOWVh6VHdOT0xOSzdaNlNBLWVCTE9hNXFWRTlLYlhQaXF0VW1wQkw3dzJuWUttLXhzZzRsSkRDVUJPWnA0QkdaMVExTHVPSHVHMzNzV3dIU3RzLWc0aFVoZWxNc2dwYjFURFU1X0YyUzlVVnJ5Vk5OWVhJRTVub0NhX0NMWklrWVc4?oc=5"
+---
+
+### Fonte Original: TribalFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijwJBVV95cUxPYVkzMFUyWl9TeVI0MzJuSU1DN2VScDJnSkRWSmZQYjR3R2RPeWxfSVNMb0dIc2VRWUdtVjlxOWNFWDFaWTkyQW1IMXRJdTNhMld6VXJ4VlBtazAzU3ZYQnphMTF4WDhUUVJ6U19Kd0pzeWNHanFMWElMc0hXWHJxdzlBX3pXRmFEOTRnV1dOWVh6VHdOT0xOSzdaNlNBLWVCTE9hNXFWRTlLYlhQaXF0VW1wQkw3dzJuWUttLXhzZzRsSkRDVUJPWnA0QkdaMVExTHVPSHVHMzNzV3dIU3RzLWc0aFVoZWxNc2dwYjFURFU1X0YyUzlVVnJ5Vk5OWVhJRTVub0NhX0NMWklrWVc4?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "São Paulo acerta retorno de Dorival Júnior como técnico | Esportes | O Liberal"
+description: "São Paulo acerta retorno de Dorival Júnior como técnico | Esportes | O Liberal  O Liberal"
+pubDate: "2026-05-15T15:41:31.000Z"
+source: "O Liberal"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxQbk9wRlVBd0pNU19hN2U4RGFUaHR5M3BOek95Q3hQbmVTRWdURnBqbkVFaWpVY1JoZkFNanZ6VDZGLWR4WEphbmxKM0lQUEczaS1HT0VubUlHRU8xQUd3ZTZrVXBPUjB2Wk1GcDczWGN1M0J4QWtZQmY5TGl2UFJGN0hMNzlqdkplZDk4TEpzVnB4QUFZaERKbzBzRW9kZlVh0gGmAUFVX3lxTFBLaDBhMUJSSU1ReFNzdEVCRlZpejMyU1EzWkpPWTNaMzF0YkZhQU81Q0VUN2hmR2g2a2NMZE02bnBZZTlwVXQ2V2hkR1g1SWRTMDQ4U3U1SkludEQwTkhhQnJtdVJHMGl0WTZITm9mcVdHbktpMVJkbTJtM0VDZ3N5QzVJemg2djFSYjZFR0lXc1dtakF0bUE5NTM1aXloUlppekxFa1E?oc=5"
+---
+
+### Fonte Original: O Liberal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxQbk9wRlVBd0pNU19hN2U4RGFUaHR5M3BOek95Q3hQbmVTRWdURnBqbkVFaWpVY1JoZkFNanZ6VDZGLWR4WEphbmxKM0lQUEczaS1HT0VubUlHRU8xQUd3ZTZrVXBPUjB2Wk1GcDczWGN1M0J4QWtZQmY5TGl2UFJGN0hMNzlqdkplZDk4TEpzVnB4QUFZaERKbzBzRW9kZlVh0gGmAUFVX3lxTFBLaDBhMUJSSU1ReFNzdEVCRlZpejMyU1EzWkpPWTNaMzF0YkZhQU81Q0VUN2hmR2g2a2NMZE02bnBZZTlwVXQ2V2hkR1g1SWRTMDQ4U3U1SkludEQwTkhhQnJtdVJHMGl0WTZITm9mcVdHbktpMVJkbTJtM0VDZ3N5QzVJemg2djFSYjZFR0lXc1dtakF0bUE5NTM1aXloUlppekxFa1E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
