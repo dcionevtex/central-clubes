@@ -1,0 +1,13 @@
+---
+title: "Quais são os maiores artilheiros dos 20 clubes da Série A de 2026 na era dos pontos corridos"
+description: "Quais são os maiores artilheiros dos 20 clubes da Série A de 2026 na era dos pontos corridos  CBF"
+pubDate: "2026-05-15T18:00:00.000Z"
+source: "CBF"
+link: "https://news.google.com/rss/articles/CBMioAJBVV95cUxPejhtdjR0aXRFbG9qMlBoSE5TU0YxVkdSZUpUMnBhQlRoLTFOTm1CWW5oRnVTVXBkTHVET2hOWEZiZElfM09ERy14Y1lnVzRFQmRXWE1EeDNiU3o1dFlDRDE3WTdSWDZnSmxndkMyYVlva0RjM3dJNG5TWFpOQl9FRUNKTVRyd0wwVnRsbUxHenpGZUxGeEdXQUlLSm1nSWRYdEhOMDctc21xNUx2QWhqbUNsV3JVSG9GTC1kOXlzR0plaGhUSFdScGd4S2k4MkRNV2tDeThLb29UMWx2dkhqOEhXSEdFdHNHQ2xkc3Iyb1pWcnRHdXR0dUtHdmhFallVbzFWZk52YWdObW82b1k5Z1hhNUVfaGw4TVQ4c1d1Uzk?oc=5"
+---
+
+### Fonte Original: CBF
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAJBVV95cUxPejhtdjR0aXRFbG9qMlBoSE5TU0YxVkdSZUpUMnBhQlRoLTFOTm1CWW5oRnVTVXBkTHVET2hOWEZiZElfM09ERy14Y1lnVzRFQmRXWE1EeDNiU3o1dFlDRDE3WTdSWDZnSmxndkMyYVlva0RjM3dJNG5TWFpOQl9FRUNKTVRyd0wwVnRsbUxHenpGZUxGeEdXQUlLSm1nSWRYdEhOMDctc21xNUx2QWhqbUNsV3JVSG9GTC1kOXlzR0plaGhUSFdScGd4S2k4MkRNV2tDeThLb29UMWx2dkhqOEhXSEdFdHNHQ2xkc3Iyb1pWcnRHdXR0dUtHdmhFallVbzFWZk52YWdObW82b1k5Z1hhNUVfaGw4TVQ4c1d1Uzk?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

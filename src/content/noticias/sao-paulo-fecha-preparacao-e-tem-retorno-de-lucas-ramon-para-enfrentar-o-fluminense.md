@@ -1,0 +1,13 @@
+---
+title: "São Paulo fecha preparação e tem retorno de Lucas Ramon para enfrentar o Fluminense"
+description: "São Paulo fecha preparação e tem retorno de Lucas Ramon para enfrentar o Fluminense  Portal Hortolândia"
+pubDate: "2026-05-15T18:46:34.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifkFVX3lxTE9NTFhZZFh5R05qbzNVZHZTbURxZGNnc3JJSGhiOFlsTk5lVXQ0MFI4WFc3NzlMSnI1aDZ3Y09FSDlyY1NuMnZwNS1CS2hNQ0xaTUZpZXZNUTlrMW53ZThqRUl2WTRpaTZMSzVQYXJmaGpnc01wdnhzSVJSWUVEd9IBfkFVX3lxTE9NTFhZZFh5R05qbzNVZHZTbURxZGNnc3JJSGhiOFlsTk5lVXQ0MFI4WFc3NzlMSnI1aDZ3Y09FSDlyY1NuMnZwNS1CS2hNQ0xaTUZpZXZNUTlrMW53ZThqRUl2WTRpaTZMSzVQYXJmaGpnc01wdnhzSVJSWUVEdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifkFVX3lxTE9NTFhZZFh5R05qbzNVZHZTbURxZGNnc3JJSGhiOFlsTk5lVXQ0MFI4WFc3NzlMSnI1aDZ3Y09FSDlyY1NuMnZwNS1CS2hNQ0xaTUZpZXZNUTlrMW53ZThqRUl2WTRpaTZMSzVQYXJmaGpnc01wdnhzSVJSWUVEd9IBfkFVX3lxTE9NTFhZZFh5R05qbzNVZHZTbURxZGNnc3JJSGhiOFlsTk5lVXQ0MFI4WFc3NzlMSnI1aDZ3Y09FSDlyY1NuMnZwNS1CS2hNQ0xaTUZpZXZNUTlrMW53ZThqRUl2WTRpaTZMSzVQYXJmaGpnc01wdnhzSVJSWUVEdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
