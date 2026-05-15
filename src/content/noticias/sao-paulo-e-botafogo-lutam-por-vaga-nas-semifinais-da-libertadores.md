@@ -1,0 +1,13 @@
+---
+title: "São Paulo e Botafogo lutam por vaga nas semifinais da Libertadores"
+description: "São Paulo e Botafogo lutam por vaga nas semifinais da Libertadores  TribalFootball"
+pubDate: "2026-05-15T10:40:00.000Z"
+source: "TribalFootball"
+link: "https://news.google.com/rss/articles/CBMi_AFBVV95cUxOOXVsQVRJa2N2QWFROE0zMFFrS1loR3cwN20tdlVoVmRCRVpLUXliVVhaamk3OTZtclZiNk5RV0ItSHRvQXpqdkR5YVMwTXo0UlJKdUdSdW43Tm9KQTlPVVpSSzlTRy1Fa3ZlOUx3SFFlVlZIclQxVzdvaXJGbUZ2NzdxSzF4TUlWbHQ2VWE2RERVcWVKaDlCVWpMQU5GOXhmZ2lSYWdWdU93NTVpOEpBY2pOS3dQMlBTRS10TV81dmJYYXVkVmJ6amhEMDJHR05zcnprTUJJcFFsYm03QzRLRTJLeHd5cFRVVk5acFRsU2ZsWHJURmlZSTNsMkY?oc=5"
+---
+
+### Fonte Original: TribalFootball
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi_AFBVV95cUxOOXVsQVRJa2N2QWFROE0zMFFrS1loR3cwN20tdlVoVmRCRVpLUXliVVhaamk3OTZtclZiNk5RV0ItSHRvQXpqdkR5YVMwTXo0UlJKdUdSdW43Tm9KQTlPVVpSSzlTRy1Fa3ZlOUx3SFFlVlZIclQxVzdvaXJGbUZ2NzdxSzF4TUlWbHQ2VWE2RERVcWVKaDlCVWpMQU5GOXhmZ2lSYWdWdU93NTVpOEpBY2pOS3dQMlBTRS10TV81dmJYYXVkVmJ6amhEMDJHR05zcnprTUJJcFFsYm03QzRLRTJLeHd5cFRVVk5acFRsU2ZsWHJURmlZSTNsMkY?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

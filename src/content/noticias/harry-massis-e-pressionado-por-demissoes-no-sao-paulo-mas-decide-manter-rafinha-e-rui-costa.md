@@ -1,0 +1,13 @@
+---
+title: "Harry Massis é pressionado por demissões no São Paulo, mas decide manter Rafinha e Rui Costa"
+description: "Harry Massis é pressionado por demissões no São Paulo, mas decide manter Rafinha e Rui Costa  Antenados no Futebol"
+pubDate: "2026-05-15T11:54:36.000Z"
+source: "Antenados no Futebol"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxNRmdzREdENVhiNFR4Y0Z5aF95VUJBdDZqemVSeVM2NXlDSHJydlltd195RTM4b1Y1SzhQVmI4V1puUExIaS0tZWlIeU9qYkdFZVNqRzVwYnFsVkU2eHRScWFZVjZQcmFSZ2ZRMUFyOFM0LXJWMlAwQ2JhRmlFaElVR3lheUE0LS1zNkt1WEtWeHBfc3M1RmfSAZsBQVVfeXFMT1NvdFdqaVpybW1MMXVUanktS21YTzRadExXNzMyNFA4NnlXczJEWXhqZmtXM1VITlpya19KOVhFZ2RoN1JqOEU0VmM0UWwyeGxaRGJhUEswNjNNNGJCNXk0VkFGUldlTWFRdThkSnJfbFkyWWxaY1I1NXRpcVlpN0JnRHNvN0NoaXd1ZTBiMDA3RS1xQTM4OXhnSmM?oc=5"
+---
+
+### Fonte Original: Antenados no Futebol
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxNRmdzREdENVhiNFR4Y0Z5aF95VUJBdDZqemVSeVM2NXlDSHJydlltd195RTM4b1Y1SzhQVmI4V1puUExIaS0tZWlIeU9qYkdFZVNqRzVwYnFsVkU2eHRScWFZVjZQcmFSZ2ZRMUFyOFM0LXJWMlAwQ2JhRmlFaElVR3lheUE0LS1zNkt1WEtWeHBfc3M1RmfSAZsBQVVfeXFMT1NvdFdqaVpybW1MMXVUanktS21YTzRadExXNzMyNFA4NnlXczJEWXhqZmtXM1VITlpya19KOVhFZ2RoN1JqOEU0VmM0UWwyeGxaRGJhUEswNjNNNGJCNXk0VkFGUldlTWFRdThkSnJfbFkyWWxaY1I1NXRpcVlpN0JnRHNvN0NoaXd1ZTBiMDA3RS1xQTM4OXhnSmM?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
