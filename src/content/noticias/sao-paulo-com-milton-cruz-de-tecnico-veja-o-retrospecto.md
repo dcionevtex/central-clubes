@@ -1,0 +1,13 @@
+---
+title: "São Paulo com Milton Cruz de técnico: Veja o retrospecto"
+description: "São Paulo com Milton Cruz de técnico: Veja o retrospecto  Portal Hortolândia"
+pubDate: "2026-05-16T14:21:08.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE8wOTBPZW1iVzlDMUpyc0RUZnQ3Vk9MOWlnbFlCZUQwbkVkRlZIZ0xKbTNHMVhlTGI0U1JaU2hfNng5TkpsZzJ5QXloVzg0RWZDVUIyRzNTeFhCR3R3T2hjUmozVUl4Ry1GTFZuWDZmTlBaeWZ0RHdubG5YTEhlc1HSAX9BVV95cUxPMDkwT2VtYlc5QzFKcnNEVGZ0N1ZPTDlpZ2xZQmVEMG5FZEZWSGdMSm0zRzFYZUxiNFNSWlNoXzZ4OU5KbGcyeUF5aFc4NEVmQ1VCMkczU3hYQkd0d09oY1JqM1VJeEctRkxWblg2Zk5QWnlmdER3bmxuWExIZXNR?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE8wOTBPZW1iVzlDMUpyc0RUZnQ3Vk9MOWlnbFlCZUQwbkVkRlZIZ0xKbTNHMVhlTGI0U1JaU2hfNng5TkpsZzJ5QXloVzg0RWZDVUIyRzNTeFhCR3R3T2hjUmozVUl4Ry1GTFZuWDZmTlBaeWZ0RHdubG5YTEhlc1HSAX9BVV95cUxPMDkwT2VtYlc5QzFKcnNEVGZ0N1ZPTDlpZ2xZQmVEMG5FZEZWSGdMSm0zRzFYZUxiNFNSWlNoXzZ4OU5KbGcyeUF5aFc4NEVmQ1VCMkczU3hYQkd0d09oY1JqM1VJeEctRkxWblg2Zk5QWnlmdER3bmxuWExIZXNR?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
