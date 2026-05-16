@@ -1,0 +1,13 @@
+---
+title: "Onde assistir Fluminense x São Paulo pelo Brasileirão?"
+description: "Onde assistir Fluminense x São Paulo pelo Brasileirão?  InfoMoney"
+pubDate: "2026-05-16T20:00:00.000Z"
+source: "InfoMoney"
+link: "https://news.google.com/rss/articles/CBMijgFBVV95cUxOME1SVFFhdE41R2p3b19JTy1SZGI5YW9aQm9xZDBXSlJZdkhYYlJXaWp0RGQyWTVGcjQxREFsSDY5LWRhTU9SMVNwSjUxMTRSU1pRbUR3cWlYV2llMkhYcVVMb0NmTUduY2tMeXhpZGN1b0xjdzNoa0k2VWMtUFlpek5CajNNQ2k2T2NfcG5R0gGTAUFVX3lxTE5IZlhYR01sU2o2SVlUZVF6VlZORU91VXVha3VJUnZrbTBwWXhVNm83MV84eXRhQy1oX1FSQkZURFQ3dHhRT3ZuZ2pWOGhCdjkyZXBTazF6UGIza3d1V3B6c0NjS0ZWWHJSLUJacWoyMHdad1F2a0VZdGZ2SDdXZHByME9ZRTlMenNPcjhMSnBvNUF0Yw?oc=5"
+---
+
+### Fonte Original: InfoMoney
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijgFBVV95cUxOME1SVFFhdE41R2p3b19JTy1SZGI5YW9aQm9xZDBXSlJZdkhYYlJXaWp0RGQyWTVGcjQxREFsSDY5LWRhTU9SMVNwSjUxMTRSU1pRbUR3cWlYV2llMkhYcVVMb0NmTUduY2tMeXhpZGN1b0xjdzNoa0k2VWMtUFlpek5CajNNQ2k2T2NfcG5R0gGTAUFVX3lxTE5IZlhYR01sU2o2SVlUZVF6VlZORU91VXVha3VJUnZrbTBwWXhVNm83MV84eXRhQy1oX1FSQkZURFQ3dHhRT3ZuZ2pWOGhCdjkyZXBTazF6UGIza3d1V3B6c0NjS0ZWWHJSLUJacWoyMHdad1F2a0VZdGZ2SDdXZHByME9ZRTlMenNPcjhMSnBvNUF0Yw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
