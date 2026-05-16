@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê interesse europeu crescer por Nicolas, que pode jogar a Copa"
+description: "São Paulo vê interesse europeu crescer por Nicolas, que pode jogar a Copa  Bolavip Brasil"
+pubDate: "2026-05-16T11:46:59.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiqAFBVV95cUxNYUVCZTh1WnRkSE9ZYmU5OHlCdl9vQWo2Y09QamdHSnk5VGhpaUxPMjcydUp3MTdaQlh0Y3BCQ1B6MHhiUlE2N1FnS0M3VkZZVTNiTW9XREZ1bXFHMnllVnBOT25wRkswN1FmMTh0NTM2eFl0dWVvODhCRWF1eHA1ZTZMWmtKME80WndPUG16SXJuQ2lzdjlXYmtCV2pUMF9ELXNlWjU1eErSAa4BQVVfeXFMTWRXbGc1bnluLW15NjZfRnMzMUpaVndfcTdJT003X05ZZ0Fyc1BydUtheVE3WDBmR2VNTjZpdDdFeWtYelpUXzJCNG5ENzRRZmd4NnM5SnVyOXRGMGU5NnZzbnVJUEJtODBrelYxZFZpdkpMZWhUZERWZVZzQUktU2drTWtfV0s3N2lWVHc1cld2VFd4Z29rUWRjb19Tb2h0UG41czFTZTdQZVBPRm9B?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqAFBVV95cUxNYUVCZTh1WnRkSE9ZYmU5OHlCdl9vQWo2Y09QamdHSnk5VGhpaUxPMjcydUp3MTdaQlh0Y3BCQ1B6MHhiUlE2N1FnS0M3VkZZVTNiTW9XREZ1bXFHMnllVnBOT25wRkswN1FmMTh0NTM2eFl0dWVvODhCRWF1eHA1ZTZMWmtKME80WndPUG16SXJuQ2lzdjlXYmtCV2pUMF9ELXNlWjU1eErSAa4BQVVfeXFMTWRXbGc1bnluLW15NjZfRnMzMUpaVndfcTdJT003X05ZZ0Fyc1BydUtheVE3WDBmR2VNTjZpdDdFeWtYelpUXzJCNG5ENzRRZmd4NnM5SnVyOXRGMGU5NnZzbnVJUEJtODBrelYxZFZpdkpMZWhUZERWZVZzQUktU2drTWtfV0s3N2lWVHc1cld2VFd4Z29rUWRjb19Tb2h0UG41czFTZTdQZVBPRm9B?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
