@@ -1,0 +1,13 @@
+---
+title: "Dorival pode recuperar 2 jogadores no São Paulo após retorno ao clube"
+description: "Dorival pode recuperar 2 jogadores no São Paulo após retorno ao clube  InMagazine"
+pubDate: "2026-05-16T19:40:14.000Z"
+source: "InMagazine"
+link: "https://news.google.com/rss/articles/CBMigwFBVV95cUxNTWF6WWdKNU00QnNOb1R1VnhfQmRMdkNSc00tQ2JGQ3d2SWdGNlVYSFozRldsTGJLYmJyR3hBc2ZoMFhYczh4WEMzX0x4aWZsNlFoSlVuVXNRVTl6VW5nUVpsQ2Jwd3VTa3Eya19tVERqOEZONWxHM2c3OVo3OW84RGNHd9IBgwFBVV95cUxNTWF6WWdKNU00QnNOb1R1VnhfQmRMdkNSc00tQ2JGQ3d2SWdGNlVYSFozRldsTGJLYmJyR3hBc2ZoMFhYczh4WEMzX0x4aWZsNlFoSlVuVXNRVTl6VW5nUVpsQ2Jwd3VTa3Eya19tVERqOEZONWxHM2c3OVo3OW84RGNHdw?oc=5"
+---
+
+### Fonte Original: InMagazine
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwFBVV95cUxNTWF6WWdKNU00QnNOb1R1VnhfQmRMdkNSc00tQ2JGQ3d2SWdGNlVYSFozRldsTGJLYmJyR3hBc2ZoMFhYczh4WEMzX0x4aWZsNlFoSlVuVXNRVTl6VW5nUVpsQ2Jwd3VTa3Eya19tVERqOEZONWxHM2c3OVo3OW84RGNHd9IBgwFBVV95cUxNTWF6WWdKNU00QnNOb1R1VnhfQmRMdkNSc00tQ2JGQ3d2SWdGNlVYSFozRldsTGJLYmJyR3hBc2ZoMFhYczh4WEMzX0x4aWZsNlFoSlVuVXNRVTl6VW5nUVpsQ2Jwd3VTa3Eya19tVERqOEZONWxHM2c3OVo3OW84RGNHdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
