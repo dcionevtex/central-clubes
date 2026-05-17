@@ -1,0 +1,13 @@
+---
+title: "Goleiro do São Paulo enxerga falta de confiança no elenco"
+description: "Goleiro do São Paulo enxerga falta de confiança no elenco  Portal Hortolândia"
+pubDate: "2026-05-17T01:04:40.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNUXkyWWhzdGItT0ZEY3REcjgtVG9sQXNiRXE2XzlfTTVEalh6QjM4eVZITlNFZVY2NjlTXzJQS1pocm1OVUhBdE5ieUU3bjZpSjN0WVBWZ1NWUEtXOUxURHJUVU44VHlaclNHdDcxZEo2M3dEYmhVVmpPeXRnYzBGOdIBgAFBVV95cUxNUXkyWWhzdGItT0ZEY3REcjgtVG9sQXNiRXE2XzlfTTVEalh6QjM4eVZITlNFZVY2NjlTXzJQS1pocm1OVUhBdE5ieUU3bjZpSjN0WVBWZ1NWUEtXOUxURHJUVU44VHlaclNHdDcxZEo2M3dEYmhVVmpPeXRnYzBGOQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNUXkyWWhzdGItT0ZEY3REcjgtVG9sQXNiRXE2XzlfTTVEalh6QjM4eVZITlNFZVY2NjlTXzJQS1pocm1OVUhBdE5ieUU3bjZpSjN0WVBWZ1NWUEtXOUxURHJUVU44VHlaclNHdDcxZEo2M3dEYmhVVmpPeXRnYzBGOdIBgAFBVV95cUxNUXkyWWhzdGItT0ZEY3REcjgtVG9sQXNiRXE2XzlfTTVEalh6QjM4eVZITlNFZVY2NjlTXzJQS1pocm1OVUhBdE5ieUU3bjZpSjN0WVBWZ1NWUEtXOUxURHJUVU44VHlaclNHdDcxZEo2M3dEYmhVVmpPeXRnYzBGOQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

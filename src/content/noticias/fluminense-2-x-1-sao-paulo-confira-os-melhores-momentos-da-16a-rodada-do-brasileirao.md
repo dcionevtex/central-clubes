@@ -1,0 +1,13 @@
+---
+title: "Fluminense 2 x 1 São Paulo: confira os melhores momentos da 16ª rodada do Brasileirão"
+description: "Fluminense 2 x 1 São Paulo: confira os melhores momentos da 16ª rodada do Brasileirão  R7 Esportes"
+pubDate: "2026-05-17T01:14:32.000Z"
+source: "R7 Esportes"
+link: "https://news.google.com/rss/articles/CBMiogJBVV95cUxOSmZkVFpoSEpyajRWRE9fWWFqUGVVTkhZZE5ERkZXQ2d6MDNzWktXTU9HWDYtdUp4VmN2cS1rWlJiajlUaXJaR0tyOWNRNXl5cWFZd3hMcy1JZWRnaEc2cE5LSWgzWk5tV092ZnhyQkw4cVNwdGRPYllDR3dUUVctN3JhTzVwaDhqQUJxYWFpUlM1azQwb2tzM2NVREFaLVFMV0w4SkFORlFtVmVOOFVQclFkLTR2amR1dGczTFdrY2ctYV9DM0FMUXZqbEphWlhtbWZzTy0zTHI2SXNkLTg5RkNPWVNFeUdmeWM1X204UzZDNmtoYUJ1VkEwU2RGRThSelBHV09na1hQcUVZNXNQcTdtQWgwQk1zeWNkVElRZExMQQ?oc=5"
+---
+
+### Fonte Original: R7 Esportes
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogJBVV95cUxOSmZkVFpoSEpyajRWRE9fWWFqUGVVTkhZZE5ERkZXQ2d6MDNzWktXTU9HWDYtdUp4VmN2cS1rWlJiajlUaXJaR0tyOWNRNXl5cWFZd3hMcy1JZWRnaEc2cE5LSWgzWk5tV092ZnhyQkw4cVNwdGRPYllDR3dUUVctN3JhTzVwaDhqQUJxYWFpUlM1azQwb2tzM2NVREFaLVFMV0w4SkFORlFtVmVOOFVQclFkLTR2amR1dGczTFdrY2ctYV9DM0FMUXZqbEphWlhtbWZzTy0zTHI2SXNkLTg5RkNPWVNFeUdmeWM1X204UzZDNmtoYUJ1VkEwU2RGRThSelBHV09na1hQcUVZNXNQcTdtQWgwQk1zeWNkVElRZExMQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

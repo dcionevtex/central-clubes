@@ -1,0 +1,13 @@
+---
+title: "São Paulo erra muito e perde para o Fluminense"
+description: "São Paulo erra muito e perde para o Fluminense  Portal Hortolândia"
+pubDate: "2026-05-17T00:10:40.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxOb3VRdHZUWkgxbnZzM2RTUmd3WXJnM0w4T0w4TTM4czBkdkFUVFVJdU0zc1RVWFotUkg1ZlFJTExtSWxWM1RJNEQ4Rm1ONWFFb0Y5TlVBY1lmQzFmN0NuR290Yk5nWEhVUXpoMlNvaU9qdVBLcmVUZElicjlTeS1GdGxB0gGCAUFVX3lxTE5vdVF0dlRaSDFudnMzZFNSZ3dZcmczTDhPTDhNMzhzMGR2QVRUVUl1TTNzVFVYWi1SSDVmUUlMTG1JbFYzVEk0RDhGbU41YUVvRjlOVUFjWWZDMWY3Q25Hb3RiTmdYSFVRemgyU29pT2p1UEtyZVRkSWJyOVN5LUZ0bEE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxOb3VRdHZUWkgxbnZzM2RTUmd3WXJnM0w4T0w4TTM4czBkdkFUVFVJdU0zc1RVWFotUkg1ZlFJTExtSWxWM1RJNEQ4Rm1ONWFFb0Y5TlVBY1lmQzFmN0NuR290Yk5nWEhVUXpoMlNvaU9qdVBLcmVUZElicjlTeS1GdGxB0gGCAUFVX3lxTE5vdVF0dlRaSDFudnMzZFNSZ3dZcmczTDhPTDhNMzhzMGR2QVRUVUl1TTNzVFVYWi1SSDVmUUlMTG1JbFYzVEk0RDhGbU41YUVvRjlOVUFjWWZDMWY3Q25Hb3RiTmdYSFVRemgyU29pT2p1UEtyZVRkSWJyOVN5LUZ0bEE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

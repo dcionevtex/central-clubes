@@ -1,0 +1,13 @@
+---
+title: "São Paulo perde trio por suspensão"
+description: "São Paulo perde trio por suspensão  Portal Hortolândia"
+pubDate: "2026-05-17T00:32:37.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxNb2llajBidU1jWlZxblZ4eTViQWY4TTJ1T2N4ZFNQTjJkanc0U0pqTUJuSFNuMUQ0SVIwYWg5Q0JVbjgxWnFIYktldlRFMUQzM1VRakxkZ0xiOWIwTFI5TlJnTV9icFNZXzdDQXBjcm8zWFBMZW96WVJ0RVpYa3lXd9IBgAFBVV95cUxNb2llajBidU1jWlZxblZ4eTViQWY4TTJ1T2N4ZFNQTjJkanc0U0pqTUJuSFNuMUQ0SVIwYWg5Q0JVbjgxWnFIYktldlRFMUQzM1VRakxkZ0xiOWIwTFI5TlJnTV9icFNZXzdDQXBjcm8zWFBMZW96WVJ0RVpYa3lXdw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxNb2llajBidU1jWlZxblZ4eTViQWY4TTJ1T2N4ZFNQTjJkanc0U0pqTUJuSFNuMUQ0SVIwYWg5Q0JVbjgxWnFIYktldlRFMUQzM1VRakxkZ0xiOWIwTFI5TlJnTV9icFNZXzdDQXBjcm8zWFBMZW96WVJ0RVpYa3lXd9IBgAFBVV95cUxNb2llajBidU1jWlZxblZ4eTViQWY4TTJ1T2N4ZFNQTjJkanc0U0pqTUJuSFNuMUQ0SVIwYWg5Q0JVbjgxWnFIYktldlRFMUQzM1VRakxkZ0xiOWIwTFI5TlJnTV9icFNZXzdDQXBjcm8zWFBMZW96WVJ0RVpYa3lXdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
