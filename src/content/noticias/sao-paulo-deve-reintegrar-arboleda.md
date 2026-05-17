@@ -1,0 +1,13 @@
+---
+title: "São Paulo deve reintegrar Arboleda"
+description: "São Paulo deve reintegrar Arboleda  Portal Hortolândia"
+pubDate: "2026-05-17T15:27:03.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE13ZGo1V2htc1VuTDFMNjAxdElHbW0xaUVQWjJHallfendfOUZEMDlUV0dnaHh5TkVfcUl4T0xPMFdhOVZqS0lxbHY2OWFud2Y2NUNOMk9PTExqUVlsZHlvS3I0MUI3dmczWFNZTjBzdVZTUzhyakxxN3VR0gF6QVVfeXFMTXdkajVXaG1zVW5MMUw2MDF0SUdtbTFpRVBaMkdqWV96d185RkQwOVRXR2doeHlORV9xSXhPTE8wV2E5VmpLSXFsdjY5YW53ZjY1Q04yT09MTGpRWWxkeW9LcjQxQjd2ZzNYU1lOMHN1VlNTOHJqTHE3dVE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE13ZGo1V2htc1VuTDFMNjAxdElHbW0xaUVQWjJHallfendfOUZEMDlUV0dnaHh5TkVfcUl4T0xPMFdhOVZqS0lxbHY2OWFud2Y2NUNOMk9PTExqUVlsZHlvS3I0MUI3dmczWFNZTjBzdVZTUzhyakxxN3VR0gF6QVVfeXFMTXdkajVXaG1zVW5MMUw2MDF0SUdtbTFpRVBaMkdqWV96d185RkQwOVRXR2doeHlORV9xSXhPTE8wV2E5VmpLSXFsdjY5YW53ZjY1Q04yT09MTGpRWWxkeW9LcjQxQjd2ZzNYU1lOMHN1VlNTOHJqTHE3dVE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

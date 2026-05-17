@@ -1,0 +1,13 @@
+---
+title: "Dorival Jr pode reintegrar Arboleda ao elenco do São Paulo"
+description: "Dorival Jr pode reintegrar Arboleda ao elenco do São Paulo  Jogada 10"
+pubDate: "2026-05-17T14:47:46.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiiwFBVV95cUxQTEI1bFNPcm1fZ2FsSTgtQm1wcWZrUElZbFFFUjNYOFZIdlkwZEZmQWxvZ1Y3ckZGZlN5Mnl4cDAtUFFRd2lpejFoUEhMMWM4dTAzTDNkbmxGNzVoX0I2bnE2X0E4aWc2YXB3NWRZMFRHdVNyOWFYMG5LZDhIeWVqN1VzYktTeUxyOVdn0gGQAUFVX3lxTE43dmhNa3FHX1I4cEdxN3l3OG5pR1dJT3hGLVpydVNXTzNMOU95MlF4WGFMMmZnVTZndEZtU0FhQ2oyTTJVejdoTlN0dUJDMmN1Uzl0ZGUzaGpLNGtjNjktbXFkbG9uU21BdDFiaHo0dmZhYUVQUjZpdzV5aUJteTZsM04zQkdmODRqbTgxVHVyQQ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwFBVV95cUxQTEI1bFNPcm1fZ2FsSTgtQm1wcWZrUElZbFFFUjNYOFZIdlkwZEZmQWxvZ1Y3ckZGZlN5Mnl4cDAtUFFRd2lpejFoUEhMMWM4dTAzTDNkbmxGNzVoX0I2bnE2X0E4aWc2YXB3NWRZMFRHdVNyOWFYMG5LZDhIeWVqN1VzYktTeUxyOVdn0gGQAUFVX3lxTE43dmhNa3FHX1I4cEdxN3l3OG5pR1dJT3hGLVpydVNXTzNMOU95MlF4WGFMMmZnVTZndEZtU0FhQ2oyTTJVejdoTlN0dUJDMmN1Uzl0ZGUzaGpLNGtjNjktbXFkbG9uU21BdDFiaHo0dmZhYUVQUjZpdzV5aUJteTZsM04zQkdmODRqbTgxVHVyQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
