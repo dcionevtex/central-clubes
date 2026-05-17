@@ -1,0 +1,13 @@
+---
+title: "Após novo revés do São Paulo, Rafael desabafa: \"Tem sido dias difíceis para nós\""
+description: "Após novo revés do São Paulo, Rafael desabafa: \"Tem sido dias difíceis para nós\"  Jogada 10"
+pubDate: "2026-05-17T02:18:04.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiowFBVV95cUxOMTdQRVBnTGNMMTBacUxIVS1FMDV6bmE4Q0lPQ2FNeDktZ0dBNUdibno4aDNrdnVFbFRqSTVvNy1wMUExdFRIS1RjcnhwVmFfUndGTHhDLXo2eDR1VnRzdWtnQkFvempUb1cySW8tVFpyVlMwd1R5d1VfODRTQ0hlOHBDZE5TLU1PWFZvWjZRNzhJajhDQ0tWLWVmcHNqd0xCZUNR0gGoAUFVX3lxTE1RbU5RaTBEZzlzN1JjUGxwYVVfclprZzA0cm9kTHpoNGdOMHg4VzdOT01zMzVqM1h5THdFcHRaYnU0ZUdpT1ByaDJudld1M1R6OGdQSHQzampaaTg2Q1NXNDFfVVRLamRIM1FkXzNuLUpLT1hrcEpFOE5BQmd1RXZmRzdsN0ZUMnNtbjZDZ3VfcW9GbU4yU3NZNC1DSnJ2R0FXei1zZDNpQw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiowFBVV95cUxOMTdQRVBnTGNMMTBacUxIVS1FMDV6bmE4Q0lPQ2FNeDktZ0dBNUdibno4aDNrdnVFbFRqSTVvNy1wMUExdFRIS1RjcnhwVmFfUndGTHhDLXo2eDR1VnRzdWtnQkFvempUb1cySW8tVFpyVlMwd1R5d1VfODRTQ0hlOHBDZE5TLU1PWFZvWjZRNzhJajhDQ0tWLWVmcHNqd0xCZUNR0gGoAUFVX3lxTE1RbU5RaTBEZzlzN1JjUGxwYVVfclprZzA0cm9kTHpoNGdOMHg4VzdOT01zMzVqM1h5THdFcHRaYnU0ZUdpT1ByaDJudld1M1R6OGdQSHQzampaaTg2Q1NXNDFfVVRLamRIM1FkXzNuLUpLT1hrcEpFOE5BQmd1RXZmRzdsN0ZUMnNtbjZDZ3VfcW9GbU4yU3NZNC1DSnJ2R0FXei1zZDNpQw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

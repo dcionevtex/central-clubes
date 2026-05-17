@@ -1,0 +1,13 @@
+---
+title: "São Paulo terá desfalque triplo diante do Botafogo pelo Brasileirão"
+description: "São Paulo terá desfalque triplo diante do Botafogo pelo Brasileirão  Terra"
+pubDate: "2026-05-17T02:03:00.000Z"
+source: "Terra"
+link: "https://news.google.com/rss/articles/CBMi7gFBVV95cUxQb1M2NnJpaktrcC1sTEtDMXQtRWN2UFZaVlBFb05sMUQwQm4xVTltWDZWUnlHaVlKSkdxZjdqMEowMnFfYm5PZTd0bUppbjQ0N1dFa3N1MnAxRDZwQkJGUFVUdElWelpLWnlScmVpSXkxZkRxckhwcnhpQ0Jlck5nUFBYZjhhUFVBREFxai1Pbm4tOWJQZGpLelBSb0RrTl9CQzV4X29iZEtrWXNGWHpJR2NVeW1JRFJ2NnBCMk5LRGNXYVBCWk96b3NQeGFWQmQ2NjRpcFpBUEVnaG9aejdYN3dzQS02NUhRYkpITmtn?oc=5"
+---
+
+### Fonte Original: Terra
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi7gFBVV95cUxQb1M2NnJpaktrcC1sTEtDMXQtRWN2UFZaVlBFb05sMUQwQm4xVTltWDZWUnlHaVlKSkdxZjdqMEowMnFfYm5PZTd0bUppbjQ0N1dFa3N1MnAxRDZwQkJGUFVUdElWelpLWnlScmVpSXkxZkRxckhwcnhpQ0Jlck5nUFBYZjhhUFVBREFxai1Pbm4tOWJQZGpLelBSb0RrTl9CQzV4X29iZEtrWXNGWHpJR2NVeW1JRFJ2NnBCMk5LRGNXYVBCWk96b3NQeGFWQmQ2NjRpcFpBUEVnaG9aejdYN3dzQS02NUhRYkpITmtn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

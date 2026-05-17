@@ -1,0 +1,13 @@
+---
+title: "São Paulo é desorganizado, perde para o Fluminense e vê rival se afastar na tabela do Brasileirão"
+description: "São Paulo é desorganizado, perde para o Fluminense e vê rival se afastar na tabela do Brasileirão  Estadão"
+pubDate: "2026-05-16T23:58:00.000Z"
+source: "Estadão"
+link: "https://news.google.com/rss/articles/CBMingFBVV95cUxPTHUxbE5XRWRLbWw3cFJnbzNrTTFGdms5SnpfRU9sUElvd1pBbHBfZFlVS2pHUWpMUGw0aDlCTG5zNHVrMktlMDhDa3JYdFo2cGl6d3JrZm9OVDJ3YnlyakxtRTUwWXo2WEkyUDN5bk5xUlFnRTcxZHY0N3EycVR4OHZoSnpGNjZLNG9hclJCWmdmTlZ2dFZPMkluakVjQdIBowFBVV95cUxPU1RRRzY3UVBIcXN0VFdial9qeHBBQnBneVBvSEhQaHBvNzdXRlVyQUpGSlRhcVJnSlJhbXVZNVB6ckNRcUxvYXBaeU1zMFN3b1BhTS1IeTJkdENVeXFOS00zSGxrcjhYdkdKY21wcGRmVF9Nb1FUT0hkc2o2NTJKN1RKUHB4SE9BYWlNMF85dVUtWm1yTmdYSUNVX2dBdzU2cFFn?oc=5"
+---
+
+### Fonte Original: Estadão
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingFBVV95cUxPTHUxbE5XRWRLbWw3cFJnbzNrTTFGdms5SnpfRU9sUElvd1pBbHBfZFlVS2pHUWpMUGw0aDlCTG5zNHVrMktlMDhDa3JYdFo2cGl6d3JrZm9OVDJ3YnlyakxtRTUwWXo2WEkyUDN5bk5xUlFnRTcxZHY0N3EycVR4OHZoSnpGNjZLNG9hclJCWmdmTlZ2dFZPMkluakVjQdIBowFBVV95cUxPU1RRRzY3UVBIcXN0VFdial9qeHBBQnBneVBvSEhQaHBvNzdXRlVyQUpGSlRhcVJnSlJhbXVZNVB6ckNRcUxvYXBaeU1zMFN3b1BhTS1IeTJkdENVeXFOS00zSGxrcjhYdkdKY21wcGRmVF9Nb1FUT0hkc2o2NTJKN1RKUHB4SE9BYWlNMF85dVUtWm1yTmdYSUNVX2dBdzU2cFFn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

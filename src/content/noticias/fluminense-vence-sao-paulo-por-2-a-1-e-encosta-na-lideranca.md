@@ -1,0 +1,13 @@
+---
+title: "Fluminense vence São Paulo por 2 a 1 e encosta na liderança"
+description: "Fluminense vence São Paulo por 2 a 1 e encosta na liderança  Campo Grande News"
+pubDate: "2026-05-17T01:32:00.000Z"
+source: "Campo Grande News"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxNYnRHYVd6SnJLZlN0VXlEN005SGEyTkVJV0NyMHR3WWlYRk13bGhBNkR1NnY0UDFkUjdqSnNHX08yRGVSdlRlZDU4N240T2thYjBsLTJhNlEyd29oVzZLdVRpbk9IV1pXanN4SmVpWnNoRW80NDBSU0VZTjEtSmNNVG5nNDVib3c3X2dZR29CcTZkSm1UU1h3ckJWaWNXd0JFcHhxdFNR0gGmAUFVX3lxTE1yU25FQ09HNkF1bWVJTDc3UHdPZXdrQk9TZkNHTlRGaEJiSnlmWTVqRVBmMDFpX21iUXVVaFI2MndUTmhBajVXNmtjY1JiVG1qNHFPS05PeDNDQ1VFWlpZN1FuanlDbkF4cHlPZVJGOTI3dTBaY21CdFpEUzRQN3VhcHl1S0huZzkwSWtxWmFXTXg4RXpKYnh5OTBiMWVWSzcySWZOUEE?oc=5"
+---
+
+### Fonte Original: Campo Grande News
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxNYnRHYVd6SnJLZlN0VXlEN005SGEyTkVJV0NyMHR3WWlYRk13bGhBNkR1NnY0UDFkUjdqSnNHX08yRGVSdlRlZDU4N240T2thYjBsLTJhNlEyd29oVzZLdVRpbk9IV1pXanN4SmVpWnNoRW80NDBSU0VZTjEtSmNNVG5nNDVib3c3X2dZR29CcTZkSm1UU1h3ckJWaWNXd0JFcHhxdFNR0gGmAUFVX3lxTE1yU25FQ09HNkF1bWVJTDc3UHdPZXdrQk9TZkNHTlRGaEJiSnlmWTVqRVBmMDFpX21iUXVVaFI2MndUTmhBajVXNmtjY1JiVG1qNHFPS05PeDNDQ1VFWlpZN1FuanlDbkF4cHlPZVJGOTI3dTBaY21CdFpEUzRQN3VhcHl1S0huZzkwSWtxWmFXTXg4RXpKYnh5OTBiMWVWSzcySWZOUEE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
