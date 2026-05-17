@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Súmula relata xingamentos de Rafinha e Rui Costa"
+description: "São Paulo: Súmula relata xingamentos de Rafinha e Rui Costa  Portal Hortolândia"
+pubDate: "2026-05-17T20:45:30.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMilgFBVV95cUxQVlgtUzU2Zm5wRTJHZmMwRmF0Rm90ZU1KUk9qR1N5QUpVRndQVlBUY09JcjIxalBma3F0NkVFckxNQU0ybFgyWlE4dmVZNGxPd2J1LXpKTW5haFI3STJMRDNEa3JWQmRSSUJ1d19mMjc0NlFQRGFkcF83NUVtTmZxVnRGZV8wN3V5RmZCYTZXRjU4cjlUemfSAZYBQVVfeXFMUFZYLVM1NmZucEUyR2ZjMEZhdEZvdGVNSlJPakdTeUFKVUZ3UFZQVGNPSXIyMWpQZmtxdDZFRXJMTUFNMmxYMlpROHZlWTRsT3didS16Sk1uYWhSN0kyTEQzRGtyVkJkUklCdXdfZjI3NDZRUERhZHBfNzVFbU5mcVZ0RmVfMDd1eUZmQmE2V0Y1OHI5VHpn?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilgFBVV95cUxQVlgtUzU2Zm5wRTJHZmMwRmF0Rm90ZU1KUk9qR1N5QUpVRndQVlBUY09JcjIxalBma3F0NkVFckxNQU0ybFgyWlE4dmVZNGxPd2J1LXpKTW5haFI3STJMRDNEa3JWQmRSSUJ1d19mMjc0NlFQRGFkcF83NUVtTmZxVnRGZV8wN3V5RmZCYTZXRjU4cjlUemfSAZYBQVVfeXFMUFZYLVM1NmZucEUyR2ZjMEZhdEZvdGVNSlJPakdTeUFKVUZ3UFZQVGNPSXIyMWpQZmtxdDZFRXJMTUFNMmxYMlpROHZlWTRsT3didS16Sk1uYWhSN0kyTEQzRGtyVkJkUklCdXdfZjI3NDZRUERhZHBfNzVFbU5mcVZ0RmVfMDd1eUZmQmE2V0Y1OHI5VHpn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
