@@ -1,0 +1,13 @@
+---
+title: "Qual o horário e onde assistir a São Paulo x Juventude"
+description: "Qual o horário e onde assistir a São Paulo x Juventude  GZH"
+pubDate: "2026-05-17T11:00:51.000Z"
+source: "GZH"
+link: "https://news.google.com/rss/articles/CBMioAJBVV95cUxOV3dGQkRQWVlfOEllenJaLVJrLUpMOTgzQ0FtdEZoWFk2dldkaklkYU9zeTdTNnFmX1FXM0lkd1I3dTQ4NlF3ZEx4dVBDbjNJSUR1UGR0WVVhSm9BenpCS3ZUQ05XUEVEZHFGOXVWWV9fSkhORzJDNlJuYXEwQ3ZESnRycVVNb1VJUzZLenJleENuX3htZHNyeTRfOVI3Y3NSVW9iSEMzUWh1NUFJWmNScTlubWRrYlk5dDRvUEswTEU4d2ZyM1BxWnc5ZFpqN1hNYlpNdks4R2dMVXYzbV9uT1ZxZ0c4VUh5eDJub1paLUdfa3F5WVdFeENVRzdBaGo0MExmeVVDR2YwWWFmV3lVX3VfUUJEQVg2amtWSTVPMFI?oc=5"
+---
+
+### Fonte Original: GZH
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAJBVV95cUxOV3dGQkRQWVlfOEllenJaLVJrLUpMOTgzQ0FtdEZoWFk2dldkaklkYU9zeTdTNnFmX1FXM0lkd1I3dTQ4NlF3ZEx4dVBDbjNJSUR1UGR0WVVhSm9BenpCS3ZUQ05XUEVEZHFGOXVWWV9fSkhORzJDNlJuYXEwQ3ZESnRycVVNb1VJUzZLenJleENuX3htZHNyeTRfOVI3Y3NSVW9iSEMzUWh1NUFJWmNScTlubWRrYlk5dDRvUEswTEU4d2ZyM1BxWnc5ZFpqN1hNYlpNdks4R2dMVXYzbV9uT1ZxZ0c4VUh5eDJub1paLUdfa3F5WVdFeENVRzdBaGo0MExmeVVDR2YwWWFmV3lVX3VfUUJEQVg2amtWSTVPMFI?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
