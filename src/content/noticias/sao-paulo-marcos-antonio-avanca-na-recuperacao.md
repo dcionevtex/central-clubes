@@ -1,0 +1,13 @@
+---
+title: "São Paulo: Marcos Antônio avança na recuperação"
+description: "São Paulo: Marcos Antônio avança na recuperação  Portal Hortolândia"
+pubDate: "2026-05-17T19:30:15.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiggFBVV95cUxObGVscTJRWEx2aFdUVW45VHd5cThOa043bnJrSlV4ZXhpVW9wbVlibi1lekVDd3hVOFF1ay04U2ZPamRBWTVxU19MUldHcHVtX1hGcDU1bWJqUE1TMDktQ0JJUWJGdnNxdEtuRlBTUmFrSzZQM3Y2ZFlTamQ4aHRYS3p30gGCAUFVX3lxTE5sZWxxMlFYTHZoV1RVbjlUd3lxOE5rTjducmtKVXhleGlVb3BtWWJuLWV6RUN3eFU4UXVrLThTZk9qZEFZNXFTX0xSV0dwdW1fWEZwNTVtYmpQTVMwOS1DQklRYkZ2c3F0S25GUFNSYWtLNlAzdjZkWVNqZDhodFhLenc?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiggFBVV95cUxObGVscTJRWEx2aFdUVW45VHd5cThOa043bnJrSlV4ZXhpVW9wbVlibi1lekVDd3hVOFF1ay04U2ZPamRBWTVxU19MUldHcHVtX1hGcDU1bWJqUE1TMDktQ0JJUWJGdnNxdEtuRlBTUmFrSzZQM3Y2ZFlTamQ4aHRYS3p30gGCAUFVX3lxTE5sZWxxMlFYTHZoV1RVbjlUd3lxOE5rTjducmtKVXhleGlVb3BtWWJuLWV6RUN3eFU4UXVrLThTZk9qZEFZNXFTX0xSV0dwdW1fWEZwNTVtYmpQTVMwOS1DQklRYkZ2c3F0S25GUFNSYWtLNlAzdjZkWVNqZDhodFhLenc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
