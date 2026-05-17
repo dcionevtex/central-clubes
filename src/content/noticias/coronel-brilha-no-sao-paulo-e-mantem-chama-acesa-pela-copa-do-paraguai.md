@@ -1,0 +1,13 @@
+---
+title: "Coronel brilha no São Paulo e mantém “chama acesa” pela Copa do Paraguai"
+description: "Coronel brilha no São Paulo e mantém “chama acesa” pela Copa do Paraguai  Bolavip Brasil"
+pubDate: "2026-05-17T11:57:11.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxOVk1iRnRKVnZhbjJiakJyN0s4NDhDRkFZVTdsM1NVTGRoQTlWclpWczk3MjZ1YWs5enhOTlR6dW5sb2pidzJWcHJpLTVxSE4zTXVseGdrTEtORTNWYlNGLTFwMjhkcEZGcF9jZ2VjZ0RfTVlWT045YktDVVNWVE1jOXV6R3lQNzcxRTlWcHF4TmhKenNsY0NodVNHcVN2UWJzb09zYkVn0gGrAUFVX3lxTE1ZeFBqWVNpcEVIdXJCTUJYM09QSlZxRGdfRWx4Z1pMN2xxSHhVSUM3cVdVc2Z4UV91eFg5RDFkZTkzZF92UW9mdlhxcmljcDZFRjJiZ3ZqVzc5MC1nR0Y4MkdSeHJZSkpsUVJ0aUNFMHBINVlYSGZadkVRNUdyTWdrWmdzZXF1WDRYV3Qzb1RKWWdpNlExT3Nla0xGNFk2X1FyS1NxVHNRWXF6TQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxOVk1iRnRKVnZhbjJiakJyN0s4NDhDRkFZVTdsM1NVTGRoQTlWclpWczk3MjZ1YWs5enhOTlR6dW5sb2pidzJWcHJpLTVxSE4zTXVseGdrTEtORTNWYlNGLTFwMjhkcEZGcF9jZ2VjZ0RfTVlWT045YktDVVNWVE1jOXV6R3lQNzcxRTlWcHF4TmhKenNsY0NodVNHcVN2UWJzb09zYkVn0gGrAUFVX3lxTE1ZeFBqWVNpcEVIdXJCTUJYM09QSlZxRGdfRWx4Z1pMN2xxSHhVSUM3cVdVc2Z4UV91eFg5RDFkZTkzZF92UW9mdlhxcmljcDZFRjJiZ3ZqVzc5MC1nR0Y4MkdSeHJZSkpsUVJ0aUNFMHBINVlYSGZadkVRNUdyTWdrWmdzZXF1WDRYV3Qzb1RKWWdpNlExT3Nla0xGNFk2X1FyS1NxVHNRWXF6TQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
