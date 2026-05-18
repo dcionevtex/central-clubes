@@ -1,0 +1,13 @@
+---
+title: "São Paulo chega à 5ª Copa seguida sem representantes no Brasil"
+description: "São Paulo chega à 5ª Copa seguida sem representantes no Brasil  Portal Hortolândia"
+pubDate: "2026-05-18T14:41:56.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE5WZ0d5SmVrZWpBY3FVay1BRXVBOEJjeFEwczN1a3BQTnVfVW1qRV9oVjdUWkFDUzZySlBQd3FLTld0X2xzZm1NZkYxalRQeTgzNER4NnZMMXRuRG14N1RHcWE2SzVvb0JtMVBRYmlpM3J4RmkyNS1YSXJB0gF6QVVfeXFMTlZnR3lKZWtlakFjcVVrLUFFdUE4QmN4UTBzM3VrcFBOdV9VbWpFX2hWN1RaQUNTNnJKUFB3cUtOV3RfbHNmbU1mRjFqVFB5ODM0RHg2dkwxdG5EbXg3VEdxYTZLNW9vQm0xUFFiaWkzcnhGaTI1LVhJckE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE5WZ0d5SmVrZWpBY3FVay1BRXVBOEJjeFEwczN1a3BQTnVfVW1qRV9oVjdUWkFDUzZySlBQd3FLTld0X2xzZm1NZkYxalRQeTgzNER4NnZMMXRuRG14N1RHcWE2SzVvb0JtMVBRYmlpM3J4RmkyNS1YSXJB0gF6QVVfeXFMTlZnR3lKZWtlakFjcVVrLUFFdUE4QmN4UTBzM3VrcFBOdV9VbWpFX2hWN1RaQUNTNnJKUFB3cUtOV3RfbHNmbU1mRjFqVFB5ODM0RHg2dkwxdG5EbXg3VEdxYTZLNW9vQm0xUFFiaWkzcnhGaTI1LVhJckE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
