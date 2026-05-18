@@ -1,0 +1,13 @@
+---
+title: "Dorival, do São Paulo, pede apoio do torcedor para reconquistar confiança: \"Recuperação rápida\""
+description: "Dorival, do São Paulo, pede apoio do torcedor para reconquistar confiança: \"Recuperação rápida\"  Jogada 10"
+pubDate: "2026-05-18T18:19:20.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMitAFBVV95cUxNWUdwSjJkbjJDWFIyX0NYbHkzcnJMWkNsNHU2Y09ObGZJZWlWaVEtOHBRS1V2MTBpd2xyM1Z2Vm1QU1doOU5wckFxNWF5cjd2SVZmcFNnM1lYbXJJOUZQRENqNTNQSXV3Tlp0NVQ5R0FrRHYyQ0x1aGdXMHQ0VktZeFVzU1llTXVGSjVIT0o4ZXFhX0M1ZlVKN1kxMHkzR3lyN2JKT1RlQ3lOVWhpaURQNkZFOFjSAboBQVVfeXFMUDdMTFJXc2JTcVN6eDhRWkF5RGhXZ0dSNjhzUFc2dzdmRmVkdXdkVHRLd2Q4Z2NHTDRVYlNvenJ4Ry1ZMzVhM2pyZFFvS3JNVWdnb09KNWFOUEVXdFhJTG9sRFgwUkVSMTRKVFhtSmZEY1JzeldlMlZjWndJT09HSUVlaml4amx0dG5sb0Z3UmdHSkFzMlYzSXhuOW1pLXhtSzJqS0hHLVpxQ2s4aXVlbFhRejM2N3dEVGdB?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMitAFBVV95cUxNWUdwSjJkbjJDWFIyX0NYbHkzcnJMWkNsNHU2Y09ObGZJZWlWaVEtOHBRS1V2MTBpd2xyM1Z2Vm1QU1doOU5wckFxNWF5cjd2SVZmcFNnM1lYbXJJOUZQRENqNTNQSXV3Tlp0NVQ5R0FrRHYyQ0x1aGdXMHQ0VktZeFVzU1llTXVGSjVIT0o4ZXFhX0M1ZlVKN1kxMHkzR3lyN2JKT1RlQ3lOVWhpaURQNkZFOFjSAboBQVVfeXFMUDdMTFJXc2JTcVN6eDhRWkF5RGhXZ0dSNjhzUFc2dzdmRmVkdXdkVHRLd2Q4Z2NHTDRVYlNvenJ4Ry1ZMzVhM2pyZFFvS3JNVWdnb09KNWFOUEVXdFhJTG9sRFgwUkVSMTRKVFhtSmZEY1JzeldlMlZjWndJT09HSUVlaml4amx0dG5sb0Z3UmdHSkFzMlYzSXhuOW1pLXhtSzJqS0hHLVpxQ2s4aXVlbFhRejM2N3dEVGdB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

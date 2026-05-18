@@ -1,0 +1,13 @@
+---
+title: "Afastamento de Maik é explicado por Rui Costa"
+description: "Afastamento de Maik é explicado por Rui Costa  Portal Hortolândia"
+pubDate: "2026-05-18T19:36:09.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMifEFVX3lxTE9JZ09lbnlVY1RVbmRGclhHSXc3ZE10WDBWRkJONHdaejZrN3pqUHVQaWxIZkF6cElGenNLcExEUlRGdlNBVzNObnZlWi1Vdl95QTR2ZWlhVjBiZUl5QlNMbzhZdnl5R2FzbWFVcnpRRkhhUXpHYnBrelRnemrSAXxBVV95cUxPSWdPZW55VWNUVW5kRnJYR0l3N2RNdFgwVkZCTjR3Wno2azd6alB1UGlsSGZBenBJRnpzS3BMRFJURnZTQVczTm52ZVotVXZfeUE0dmVpYVYwYmVJeUJTTG84WXZ5eUdhc21hVXJ6UUZIYVF6R2Jwa3pUZ3pq?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMifEFVX3lxTE9JZ09lbnlVY1RVbmRGclhHSXc3ZE10WDBWRkJONHdaejZrN3pqUHVQaWxIZkF6cElGenNLcExEUlRGdlNBVzNObnZlWi1Vdl95QTR2ZWlhVjBiZUl5QlNMbzhZdnl5R2FzbWFVcnpRRkhhUXpHYnBrelRnemrSAXxBVV95cUxPSWdPZW55VWNUVW5kRnJYR0l3N2RNdFgwVkZCTjR3Wno2azd6alB1UGlsSGZBenBJRnpzS3BMRFJURnZTQVczTm52ZVotVXZfeUE0dmVpYVYwYmVJeUJTTG84WXZ5eUdhc21hVXJ6UUZIYVF6R2Jwa3pUZ3pq?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

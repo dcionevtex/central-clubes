@@ -1,0 +1,13 @@
+---
+title: "Vídeo: Rui Costa mantém discurso e banca São Paulo na briga por títulos"
+description: "Vídeo: Rui Costa mantém discurso e banca São Paulo na briga por títulos  Bolavip Brasil"
+pubDate: "2026-05-18T19:47:41.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxQYlBFdElBVFVnS0JaZkJUNmloZlFrUzhtUW9jOHloaFdrbV82dVYzNWlTa3RXMnN3RE44VFFwT1FNandTcjQxX25rSGp2YXp3Vzg0ZUw2M2RVMl9HRS1GVndyRFBBUVJjT0dYUndObnJOQWlqbEZsUVBycVZUdDhIcHJyWC1VWDBFc1FoclZ0WmFEQXoxNTdaYmNHTnItVkRBUUpGOVR30gGrAUFVX3lxTE9KbWwwanQyMEUxb1lmVlV4b1NoeXhWb3JJcnBiQnlFTDJINjlmamstZzNuSnlEb1R1NUhiN0NaYVZ4SFNNbHhsMnZfNTBIUTZsS0c1OVNzQ3pXclpjZkM4RV9pU25Bc3dLbE10M0NCall4cXJnampvV2ZTeGwzUUNzSEpnRDlCcGhnQ29OSGxyMkdLb2VYTVpPVHF0dmZ4X3MwNlZuMXZBNnhHVQ?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxQYlBFdElBVFVnS0JaZkJUNmloZlFrUzhtUW9jOHloaFdrbV82dVYzNWlTa3RXMnN3RE44VFFwT1FNandTcjQxX25rSGp2YXp3Vzg0ZUw2M2RVMl9HRS1GVndyRFBBUVJjT0dYUndObnJOQWlqbEZsUVBycVZUdDhIcHJyWC1VWDBFc1FoclZ0WmFEQXoxNTdaYmNHTnItVkRBUUpGOVR30gGrAUFVX3lxTE9KbWwwanQyMEUxb1lmVlV4b1NoeXhWb3JJcnBiQnlFTDJINjlmamstZzNuSnlEb1R1NUhiN0NaYVZ4SFNNbHhsMnZfNTBIUTZsS0c1OVNzQ3pXclpjZkM4RV9pU25Bc3dLbE10M0NCall4cXJnampvV2ZTeGwzUUNzSEpnRDlCcGhnQ29OSGxyMkdLb2VYTVpPVHF0dmZ4X3MwNlZuMXZBNnhHVQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
