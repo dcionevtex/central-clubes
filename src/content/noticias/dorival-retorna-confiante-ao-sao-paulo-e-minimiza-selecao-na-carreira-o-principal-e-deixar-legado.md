@@ -1,0 +1,13 @@
+---
+title: "Dorival retorna confiante ao São Paulo e minimiza seleção na carreira: ‘O principal é deixar legado’"
+description: "Dorival retorna confiante ao São Paulo e minimiza seleção na carreira: ‘O principal é deixar legado’  Estadão"
+pubDate: "2026-05-18T18:02:00.000Z"
+source: "Estadão"
+link: "https://news.google.com/rss/articles/CBMikgFBVV95cUxQVDZiX0RkaGJIanZJLU9Qak9UUEhIYUtEMEptMWNBcXNxX1ZicFpYV3RQRlgzbDZPY1FTRERINUtVOUNVNGJ2bnl6NFVMbjJOc3kzTkZOQ016X2NwZmlUUGtvSERyRmUyc1RYbEF0UHJTZm54MVBxcE9TSHZfMHBYUENwVmtnNFF0cXpsWEc3QUtKd9IBlwFBVV95cUxNOW85TXhJWUJkV1VDaDV5NmdCWnEwbC1GRDlScy1iNDNqS2ZEVHh0SVBaU2xTMDE0Zzk1V2VtZ2RtQ3ltMlM0NG5LMEhyRGZmOThpTVp3eDZGbjVSQk1SNFVpVkJwV1JlYi0yUmpseXA1R0ZSdUdpU2d0MlpacXJObFhwb1FORVlHZWdqUVpJZVo3dktVQTcw?oc=5"
+---
+
+### Fonte Original: Estadão
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgFBVV95cUxQVDZiX0RkaGJIanZJLU9Qak9UUEhIYUtEMEptMWNBcXNxX1ZicFpYV3RQRlgzbDZPY1FTRERINUtVOUNVNGJ2bnl6NFVMbjJOc3kzTkZOQ016X2NwZmlUUGtvSERyRmUyc1RYbEF0UHJTZm54MVBxcE9TSHZfMHBYUENwVmtnNFF0cXpsWEc3QUtKd9IBlwFBVV95cUxNOW85TXhJWUJkV1VDaDV5NmdCWnEwbC1GRDlScy1iNDNqS2ZEVHh0SVBaU2xTMDE0Zzk1V2VtZ2RtQ3ltMlM0NG5LMEhyRGZmOThpTVp3eDZGbjVSQk1SNFVpVkJwV1JlYi0yUmpseXA1R0ZSdUdpU2d0MlpacXJObFhwb1FORVlHZWdqUVpJZVo3dktVQTcw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
