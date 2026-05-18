@@ -1,0 +1,13 @@
+---
+title: "Arboleda de volta? Rui Costa nega"
+description: "Arboleda de volta? Rui Costa nega  Portal Hortolândia"
+pubDate: "2026-05-18T17:29:03.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTFB5RkpXZVYxQUhWT1BxUG9PTng1SkxaWGZ6VWdnWWVQbmE4RWtNc0RRZG9ldXZJZTVJd05XLWhvblJEUmNTSUFGa2hZelJtRzh0R2NVUm42YW5NMjhrYXZxSXIxNnQ5eEtJWkhSMy1oNFJEQUIyTEdWaE1DZVdHZUXSAX9BVV95cUxQeUZKV2VWMUFIVk9QcVBvT054NUpMWlhmelVnZ1llUG5hOEVrTXNEUWRvZXV2SWU1SXdOVy1ob25SRFJjU0lBRmtoWXpSbUc4dEdjVVJuNmFuTTI4a2F2cUlyMTZ0OXhLSVpIUjMtaDRSREFCMkxHVmhNQ2VXR2VF?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTFB5RkpXZVYxQUhWT1BxUG9PTng1SkxaWGZ6VWdnWWVQbmE4RWtNc0RRZG9ldXZJZTVJd05XLWhvblJEUmNTSUFGa2hZelJtRzh0R2NVUm42YW5NMjhrYXZxSXIxNnQ5eEtJWkhSMy1oNFJEQUIyTEdWaE1DZVdHZUXSAX9BVV95cUxQeUZKV2VWMUFIVk9QcVBvT054NUpMWlhmelVnZ1llUG5hOEVrTXNEUWRvZXV2SWU1SXdOVy1ob25SRFJjU0lBRmtoWXpSbUc4dEdjVVJuNmFuTTI4a2F2cUlyMTZ0OXhLSVpIUjMtaDRSREFCMkxHVmhNQ2VXR2VF?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

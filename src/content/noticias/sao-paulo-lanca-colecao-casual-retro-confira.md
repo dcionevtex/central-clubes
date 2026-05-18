@@ -1,0 +1,13 @@
+---
+title: "São Paulo lança coleção casual retrô; confira"
+description: "São Paulo lança coleção casual retrô; confira  Gazeta Esportiva"
+pubDate: "2026-05-18T17:38:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxObE43bWF6bzVLV2ZvLTkxNXFTclRvS0cyUlNfd2RPY2pPSEt3VHB6OWVmOENwbFUwc0RrcDV5NlhsUEZaVmdYUkFjcTZBeUVydVV1UEV0VlZ1NWRCeExRU1l4bk1RSmJyYU5BcHl6ZVBibi1STHFKdEFfczBwN0RDenMtZEw2MWtEVXhsbnc3Zk1Kakh2R25kTtIBngFBVV95cUxPY3UyUk9RM09QNnl3THV5ck9VemJWMVFxUHZSczhpTWJZSE1ZTlNrZW1GN1pOZVFVT1ZjZjJvOEFmR2hTNnc2NEowZkpGSXhjTGhKNXFRZ1o0U216aXdqamp5OUJUN19tSV81WGhSZGJNV3QyYjlFMzRHUTQzbUptNXl1TGYxY1Q0eEhqTjlVQ0pyUmJZSWYwVTFaZXpwUQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxObE43bWF6bzVLV2ZvLTkxNXFTclRvS0cyUlNfd2RPY2pPSEt3VHB6OWVmOENwbFUwc0RrcDV5NlhsUEZaVmdYUkFjcTZBeUVydVV1UEV0VlZ1NWRCeExRU1l4bk1RSmJyYU5BcHl6ZVBibi1STHFKdEFfczBwN0RDenMtZEw2MWtEVXhsbnc3Zk1Kakh2R25kTtIBngFBVV95cUxPY3UyUk9RM09QNnl3THV5ck9VemJWMVFxUHZSczhpTWJZSE1ZTlNrZW1GN1pOZVFVT1ZjZjJvOEFmR2hTNnc2NEowZkpGSXhjTGhKNXFRZ1o0U216aXdqamp5OUJUN19tSV81WGhSZGJNV3QyYjlFMzRHUTQzbUptNXl1TGYxY1Q0eEhqTjlVQ0pyUmJZSWYwVTFaZXpwUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

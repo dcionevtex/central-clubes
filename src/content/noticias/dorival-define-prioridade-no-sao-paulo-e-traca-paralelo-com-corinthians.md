@@ -1,0 +1,13 @@
+---
+title: "Dorival define prioridade no São Paulo e traça paralelo com Corinthians"
+description: "Dorival define prioridade no São Paulo e traça paralelo com Corinthians  Rádio Itatiaia"
+pubDate: "2026-05-18T17:52:01.000Z"
+source: "Rádio Itatiaia"
+link: "https://news.google.com/rss/articles/CBMi9wFBVV95cUxPOTRfci1RQWhCaGd0aGMwTFZNUk9MeWFXcHBKcVN5aGhLZ0V3TzFNWV9EYTU5UWlacjFabVhmR3FUNnFJdEF1c1lucVpYbGd0Z2NIRHJ3TG1iSHFleEw0b2NxS1dQOGZRUjhVa0hIZ0s4bVczaWctUHBqU2RlMFIxTGtwSHNWRi13RTMyV19WcmxiQnR2d2twQWp0aG1fMnlpS2lrWjJYWkdUQXJaVEFwVzRuX2JxYU9QT2FuSGdlazlFLVB2MTlGa3dwM29oeDNPa2YweDhYWWVTYlJHZU1SWlIyMERnM2ljZ205ckp5T251YXgydE9B?oc=5"
+---
+
+### Fonte Original: Rádio Itatiaia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMi9wFBVV95cUxPOTRfci1RQWhCaGd0aGMwTFZNUk9MeWFXcHBKcVN5aGhLZ0V3TzFNWV9EYTU5UWlacjFabVhmR3FUNnFJdEF1c1lucVpYbGd0Z2NIRHJ3TG1iSHFleEw0b2NxS1dQOGZRUjhVa0hIZ0s4bVczaWctUHBqU2RlMFIxTGtwSHNWRi13RTMyV19WcmxiQnR2d2twQWp0aG1fMnlpS2lrWjJYWkdUQXJaVEFwVzRuX2JxYU9QT2FuSGdlazlFLVB2MTlGa3dwM29oeDNPa2YweDhYWWVTYlJHZU1SWlIyMERnM2ljZ205ckp5T251YXgydE9B?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

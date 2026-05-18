@@ -1,0 +1,13 @@
+---
+title: "Veja fotos da nova coleção do São Paulo"
+description: "Veja fotos da nova coleção do São Paulo  Gazeta Esportiva"
+pubDate: "2026-05-18T17:29:49.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMilwFBVV95cUxPOUxsX2s2TGwyRnc4WTUxc3VUaFhYaGdjNzlpZWJWenRLc0NCMnBvQmxqa05UazlFeHg4RmpJazVLWGlVZmF6Q3dmMVktejRJVkRvNE1hVDV1Ump0c0xJNUdxdF9RR0xWY19ESlViS0UxUU1EZ1QxWUZmSDdKNnk0bXFBbDdOa0pBSjFkdkthWFBDQUZ3ZDNV0gGXAUFVX3lxTE85TGxfazZMbDJGdzhZNTFzdVRoWFhoZ2M3OWllYlZ6dEtzQ0IycG9CbGprTlRrOUV4eDhGaklrNUtYaVVmYXpDd2YxWS16NElWRG80TWFUNXVSanRzTEk1R3F0X1FHTFZjX0RKVWJLRTFRTURnVDFZRmZIN0o2eTRtcUFsN05rSkFKMWR2S2FYUENBRndkM1U?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMilwFBVV95cUxPOUxsX2s2TGwyRnc4WTUxc3VUaFhYaGdjNzlpZWJWenRLc0NCMnBvQmxqa05UazlFeHg4RmpJazVLWGlVZmF6Q3dmMVktejRJVkRvNE1hVDV1Ump0c0xJNUdxdF9RR0xWY19ESlViS0UxUU1EZ1QxWUZmSDdKNnk0bXFBbDdOa0pBSjFkdkthWFBDQUZ3ZDNV0gGXAUFVX3lxTE85TGxfazZMbDJGdzhZNTFzdVRoWFhoZ2M3OWllYlZ6dEtzQ0IycG9CbGprTlRrOUV4eDhGaklrNUtYaVVmYXpDd2YxWS16NElWRG80TWFUNXVSanRzTEk1R3F0X1FHTFZjX0RKVWJLRTFRTURnVDFZRmZIN0o2eTRtcUFsN05rSkFKMWR2S2FYUENBRndkM1U?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
