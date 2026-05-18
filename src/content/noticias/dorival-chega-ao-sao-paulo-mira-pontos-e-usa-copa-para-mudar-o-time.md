@@ -1,0 +1,13 @@
+---
+title: "Dorival chega ao São Paulo, mira pontos e usa Copa para mudar o time"
+description: "Dorival chega ao São Paulo, mira pontos e usa Copa para mudar o time  Bolavip Brasil"
+pubDate: "2026-05-18T12:06:48.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxOMHpqa1FqQ3J0alotUTJ1OVZnel9CUHRzc0tlNV83Zmt0ZUxaTGtmSTF5YUhHQXRxbGF1MllqeDRzWXpLNTlLZnE1UlIwS2k3cWk0UExhUEFrQUxYVWVNVnJLSEZmSl80S2k1T2ttdTRqRjNreWhTVFNYczlnczVxb1QxRHBSZlBONlZUSnJQQ0daR0ZVUWVLUjh1SFROQm5HOUHSAacBQVVfeXFMUExWaGo2dnBzdGdYQnNiQmhFc0hTdjVMQUlEQ296ZV80UmRzbXJjQ25qbmFYMlI2V2dEaGxBMUx4VkZabEVaZktRdEViVFJRelRXbm4tTGZad2RXT3ZZalBVUlBtc1lYU3BSU3JTeEpQeHZEQzlLR1J4OHZ1TFBBbE1KV2laUnFuNGlISU55ODRzcVBVdnpJMXVGR1lIZERVblhxM2ttRVE?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxOMHpqa1FqQ3J0alotUTJ1OVZnel9CUHRzc0tlNV83Zmt0ZUxaTGtmSTF5YUhHQXRxbGF1MllqeDRzWXpLNTlLZnE1UlIwS2k3cWk0UExhUEFrQUxYVWVNVnJLSEZmSl80S2k1T2ttdTRqRjNreWhTVFNYczlnczVxb1QxRHBSZlBONlZUSnJQQ0daR0ZVUWVLUjh1SFROQm5HOUHSAacBQVVfeXFMUExWaGo2dnBzdGdYQnNiQmhFc0hTdjVMQUlEQ296ZV80UmRzbXJjQ25qbmFYMlI2V2dEaGxBMUx4VkZabEVaZktRdEViVFJRelRXbm4tTGZad2RXT3ZZalBVUlBtc1lYU3BSU3JTeEpQeHZEQzlLR1J4OHZ1TFBBbE1KV2laUnFuNGlISU55ODRzcVBVdnpJMXVGR1lIZERVblhxM2ttRVE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
