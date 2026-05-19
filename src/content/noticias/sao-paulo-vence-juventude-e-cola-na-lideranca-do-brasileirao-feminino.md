@@ -1,0 +1,13 @@
+---
+title: "São Paulo vence Juventude e cola na liderança do Brasileirão Feminino"
+description: "São Paulo vence Juventude e cola na liderança do Brasileirão Feminino  Jogada 10"
+pubDate: "2026-05-19T02:56:31.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxPRzJtdnZ0clFXbGI1b2xWSlZWemRqMlVRUG83eEdmS2VqbWdKUUp0Nl9uOFhWZFBlXzlxN0hhMk02dXpjZkpoWWNWM2ZVSzBMZl9Pc3ItQTl2TGZleFpmZWtzdUIwSUxRVEtYZGU1TWJldHdBMVMxWXVmYzdjTFk2bVBGclkwUDJfSFVtNW1DdDZSLW1IVGtud0R30gGfAUFVX3lxTE5uZ2tXTWhMZFEtUGhIbjlsZC1RcTVwU0c5RW5ia2JKaWZ2ZTlHQ2NwOWcxei1vWHgzMTVMMlM5QWZYT25Zdzd2M250RXNJTkVyS29BNFViQ3hTaEFNRXpGRWM4LV9HVWw4MkVvVFNtZ3c5SmhrdkZoTWVYNWlubHYxNlk1ZG03MmhPUzhPMzg2YzlUdFR4eVZNd2NIV0xrRQ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxPRzJtdnZ0clFXbGI1b2xWSlZWemRqMlVRUG83eEdmS2VqbWdKUUp0Nl9uOFhWZFBlXzlxN0hhMk02dXpjZkpoWWNWM2ZVSzBMZl9Pc3ItQTl2TGZleFpmZWtzdUIwSUxRVEtYZGU1TWJldHdBMVMxWXVmYzdjTFk2bVBGclkwUDJfSFVtNW1DdDZSLW1IVGtud0R30gGfAUFVX3lxTE5uZ2tXTWhMZFEtUGhIbjlsZC1RcTVwU0c5RW5ia2JKaWZ2ZTlHQ2NwOWcxei1vWHgzMTVMMlM5QWZYT25Zdzd2M250RXNJTkVyS29BNFViQ3hTaEFNRXpGRWM4LV9HVWw4MkVvVFNtZ3c5SmhrdkZoTWVYNWlubHYxNlk1ZG03MmhPUzhPMzg2YzlUdFR4eVZNd2NIV0xrRQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
