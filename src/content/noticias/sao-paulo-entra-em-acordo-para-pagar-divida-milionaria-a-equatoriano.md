@@ -1,0 +1,13 @@
+---
+title: "São Paulo entra em acordo para pagar dívida milionária a equatoriano"
+description: "São Paulo entra em acordo para pagar dívida milionária a equatoriano  Jogada 10"
+pubDate: "2026-05-19T20:32:30.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxPS3hQOTR3SWphZlFqS3B5dVhFb1hQT0FlaGRpQXpVOVRfSm5zTU1VNmFLNUcxMFhhZzQydmV0b2J5VE9KVnY5ZTduamdXLWxaNUZlLVo2dUpabndWNGRlTVBOTy1xOWc0bXU1NTBoNXFkdUNfQTJ5WnFlc2xzSzBlMGlneWFHdnBqWXcyR1E1S29MMl9GdUhmWdIBngFBVV95cUxOZFFqTzMxcmtCQnRlRHJKbElCTnUxZDg5SmJmWWdxRHpnXy01VXdENkFTUUFuRXNUOFNWY05xSUN3RjFOX3kzSnJlYnBTVHBfRVE2VDVWNS13VUNKa1RjZXdyaHRCdDFwSDQ1a1RZbHl1MTg3c215b1dRVTdqbEZrRmltcHk3V3UzQ3pLVkxFS1BvVnRmZDQ4THpaZTU3dw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxPS3hQOTR3SWphZlFqS3B5dVhFb1hQT0FlaGRpQXpVOVRfSm5zTU1VNmFLNUcxMFhhZzQydmV0b2J5VE9KVnY5ZTduamdXLWxaNUZlLVo2dUpabndWNGRlTVBOTy1xOWc0bXU1NTBoNXFkdUNfQTJ5WnFlc2xzSzBlMGlneWFHdnBqWXcyR1E1S29MMl9GdUhmWdIBngFBVV95cUxOZFFqTzMxcmtCQnRlRHJKbElCTnUxZDg5SmJmWWdxRHpnXy01VXdENkFTUUFuRXNUOFNWY05xSUN3RjFOX3kzSnJlYnBTVHBfRVE2VDVWNS13VUNKa1RjZXdyaHRCdDFwSDQ1a1RZbHl1MTg3c215b1dRVTdqbEZrRmltcHk3V3UzQ3pLVkxFS1BvVnRmZDQ4THpaZTU3dw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
