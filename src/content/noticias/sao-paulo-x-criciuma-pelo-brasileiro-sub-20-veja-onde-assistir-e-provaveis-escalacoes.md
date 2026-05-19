@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Criciúma pelo Brasileiro sub 20: veja onde assistir e prováveis escalações"
+description: "São Paulo x Criciúma pelo Brasileiro sub 20: veja onde assistir e prováveis escalações  Gazeta Esportiva"
+pubDate: "2026-05-19T23:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxQNHRqeENqWnp3b0dQbG1pUDhpOWxKUEdJdnlSTk1ZU3RFQWZxcnB5MVVrakpqMEhkY0FPMFd2Ukt2TmZhaldWcU5faVk2RXlVOGhPbFBsYWx0SGlPSHBNZFlvTVFIaGlmaVdTb0hlNnFpSGFMb3JEWUdZR1ZmTEctVEFOM2FrdWgxRUxUTTFicE43YVVZQmpSVHplMNIBoAFBVV95cUxPUWllVVRESnlaeVBqRmdNVThLbzNDMHhWT3UzZ3RUbVRKX0o4eEZiTXBHLUgycWV1NFpTNElkT3VLNUc4YjdEZlRZNzhnVjVlTllrSGZuTk0wRmROYllaWk1LVk1wdlB5UFVXWjhGV1JtWnRvWTM1NGtrclRaRFJFdE1MRmZpcEVoMkdXSnhadzVzcTJXekVveUxpa19LYmJZ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxQNHRqeENqWnp3b0dQbG1pUDhpOWxKUEdJdnlSTk1ZU3RFQWZxcnB5MVVrakpqMEhkY0FPMFd2Ukt2TmZhaldWcU5faVk2RXlVOGhPbFBsYWx0SGlPSHBNZFlvTVFIaGlmaVdTb0hlNnFpSGFMb3JEWUdZR1ZmTEctVEFOM2FrdWgxRUxUTTFicE43YVVZQmpSVHplMNIBoAFBVV95cUxPUWllVVRESnlaeVBqRmdNVThLbzNDMHhWT3UzZ3RUbVRKX0o4eEZiTXBHLUgycWV1NFpTNElkT3VLNUc4YjdEZlRZNzhnVjVlTllrSGZuTk0wRmROYllaWk1LVk1wdlB5UFVXWjhGV1JtWnRvWTM1NGtrclRaRFJFdE1MRmZpcEVoMkdXSnhadzVzcTJXekVveUxpa19LYmJZ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

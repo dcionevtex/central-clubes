@@ -1,0 +1,13 @@
+---
+title: "Veja a escalação do São Paulo para enfrentar o Millonarios"
+description: "Veja a escalação do São Paulo para enfrentar o Millonarios  Portal Hortolândia"
+pubDate: "2026-05-19T23:28:34.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihgFBVV95cUxQd1haZ1VNZWpWb25vUEV3N3FzVmw0U3ZBMWxMYy1sUUpTUHlaRGJYMFVNZ1dwR1Q0SS1VMUNjLVltOEVoeGxKOEVKVktHVW0zZ3pFZWZQaV8wNFpETFJibnBrQ19RMEU4aFVuZkd2VUo4SURKOUdvQlNKMXNoU2FjT0U5TktPUdIBhgFBVV95cUxQd1haZ1VNZWpWb25vUEV3N3FzVmw0U3ZBMWxMYy1sUUpTUHlaRGJYMFVNZ1dwR1Q0SS1VMUNjLVltOEVoeGxKOEVKVktHVW0zZ3pFZWZQaV8wNFpETFJibnBrQ19RMEU4aFVuZkd2VUo4SURKOUdvQlNKMXNoU2FjT0U5TktPUQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihgFBVV95cUxQd1haZ1VNZWpWb25vUEV3N3FzVmw0U3ZBMWxMYy1sUUpTUHlaRGJYMFVNZ1dwR1Q0SS1VMUNjLVltOEVoeGxKOEVKVktHVW0zZ3pFZWZQaV8wNFpETFJibnBrQ19RMEU4aFVuZkd2VUo4SURKOUdvQlNKMXNoU2FjT0U5TktPUdIBhgFBVV95cUxQd1haZ1VNZWpWb25vUEV3N3FzVmw0U3ZBMWxMYy1sUUpTUHlaRGJYMFVNZ1dwR1Q0SS1VMUNjLVltOEVoeGxKOEVKVktHVW0zZ3pFZWZQaV8wNFpETFJibnBrQ19RMEU4aFVuZkd2VUo4SURKOUdvQlNKMXNoU2FjT0U5TktPUQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

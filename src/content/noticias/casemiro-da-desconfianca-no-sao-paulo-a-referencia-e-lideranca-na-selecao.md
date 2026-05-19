@@ -1,0 +1,13 @@
+---
+title: "Casemiro: da desconfiança no São Paulo à referência e liderança na Seleção"
+description: "Casemiro: da desconfiança no São Paulo à referência e liderança na Seleção  DPF » De torcedor para torcedor"
+pubDate: "2026-05-19T13:18:58.000Z"
+source: "DPF » De torcedor para torcedor"
+link: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxPbzZKRmZ5a3l1QUt2VXZnTWR5TW04QkNkVUxDS3VNVFV5QTRBYWdWdnRPOU1xSW1qZ1hEbjhTMU9peEpfa1RMLXlQcFJIWjZxQU5OYV9PSS00cW9SZjV5VjlvTi1JZG04QTJOdWVfYWZ2S1VOYUVzSVpLU29IWUNhb2dfVF9nc0p1QjhPRDBXT1paNnRaRWtLY3c5bjhXYkJ0ck44V2NnX2FqemfSAasBQVVfeXFMT282SkZmeWt5dUFLdlV2Z01keU1tOEJDZFVMQ0t1TVRVeUE0QWFnVnZ0TzlNcUltamdYRG44UzFPaXhKX2tUTC15UHBSSFo2cUFOTmFfT0ktNHFvUmY1eVY5b04tSWRtOEEyTnVlX2FmdktVTmFFc0laS1NvSFlDYW9nX1RfZ3NKdUI4T0QwV09aWjZ0WkVrS2N3OW44V2JCdHJOOFdjZ19hanpn?oc=5"
+---
+
+### Fonte Original: DPF » De torcedor para torcedor
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqwFBVV95cUxPbzZKRmZ5a3l1QUt2VXZnTWR5TW04QkNkVUxDS3VNVFV5QTRBYWdWdnRPOU1xSW1qZ1hEbjhTMU9peEpfa1RMLXlQcFJIWjZxQU5OYV9PSS00cW9SZjV5VjlvTi1JZG04QTJOdWVfYWZ2S1VOYUVzSVpLU29IWUNhb2dfVF9nc0p1QjhPRDBXT1paNnRaRWtLY3c5bjhXYkJ0ck44V2NnX2FqemfSAasBQVVfeXFMT282SkZmeWt5dUFLdlV2Z01keU1tOEJDZFVMQ0t1TVRVeUE0QWFnVnZ0TzlNcUltamdYRG44UzFPaXhKX2tUTC15UHBSSFo2cUFOTmFfT0ktNHFvUmY1eVY5b04tSWRtOEEyTnVlX2FmdktVTmFFc0laS1NvSFlDYW9nX1RfZ3NKdUI4T0QwV09aWjZ0WkVrS2N3OW44V2JCdHJOOFdjZ19hanpn?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
