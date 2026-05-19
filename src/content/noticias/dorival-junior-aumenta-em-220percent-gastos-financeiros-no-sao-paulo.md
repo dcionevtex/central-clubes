@@ -1,0 +1,13 @@
+---
+title: "Dorival Júnior aumenta em 220% gastos financeiros no São Paulo"
+description: "Dorival Júnior aumenta em 220% gastos financeiros no São Paulo  Bolavip Brasil"
+pubDate: "2026-05-19T10:31:15.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxQYU1yN19VdVBaanZHUmp6dm9mOGZLRzlWMjZUUGp3R2FsU2R5RUhCcGVta283LUJFRUZqSGtPV3JBUDRIeGlKYzdVc3RWbUJWSzl5MU9kQncxQ1pVbUNrZmNQa1VwbnZLTHYwR0p1VDVzaHNWS3hXd2RyUmVPUkxxUEFEOWdYd09Oa2tYUUw0Tjc2bTlPcEcwMFBB0gGfAUFVX3lxTE13aFphYmFhLVJzV1REY0pRaVNXN282ekVWcGtqb0Qtb1hHNDI0UE5ISmlTeDBTSmQyZGptazB3SENHM2tfLWp5WndSaXNKd3FwbW8wcVNueTBmOW9DY1FZRVFhZHR5aFJBM0ExdnA0YWlhWGlBNnQ4RXpWcVlKYmlwWUtMeHpRSVVsOXN5a0hQajNGS0FlN011M25BTjY5Zw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxQYU1yN19VdVBaanZHUmp6dm9mOGZLRzlWMjZUUGp3R2FsU2R5RUhCcGVta283LUJFRUZqSGtPV3JBUDRIeGlKYzdVc3RWbUJWSzl5MU9kQncxQ1pVbUNrZmNQa1VwbnZLTHYwR0p1VDVzaHNWS3hXd2RyUmVPUkxxUEFEOWdYd09Oa2tYUUw0Tjc2bTlPcEcwMFBB0gGfAUFVX3lxTE13aFphYmFhLVJzV1REY0pRaVNXN282ekVWcGtqb0Qtb1hHNDI0UE5ISmlTeDBTSmQyZGptazB3SENHM2tfLWp5WndSaXNKd3FwbW8wcVNueTBmOW9DY1FZRVFhZHR5aFJBM0ExdnA0YWlhWGlBNnQ4RXpWcVlKYmlwWUtMeHpRSVVsOXN5a0hQajNGS0FlN011M25BTjY5Zw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

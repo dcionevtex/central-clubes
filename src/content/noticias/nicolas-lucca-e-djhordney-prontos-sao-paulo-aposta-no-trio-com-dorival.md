@@ -1,0 +1,13 @@
+---
+title: "Nicolas, Lucca e Djhordney prontos: São Paulo aposta no trio com Dorival"
+description: "Nicolas, Lucca e Djhordney prontos: São Paulo aposta no trio com Dorival  Bolavip Brasil"
+pubDate: "2026-05-19T12:22:11.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMiqwFBVV95cUxQWkZrb3o3LVdZMmpWVlYtTndNQktSZ3VkbTcxY2k2RXRlMEh0bEZPdGRCTkxBLWxfT0UxamNDUjQtOGhwNXJpMUlMbnRNN2c4LXJZM1M3Z2hSaW55R3N6cHVQZ3BEa3NycVk1ZzBYWXRCMnBOaHhCSG5CNVV5LVVwMzFRQUtoUi1kU0JOb1pfbVRkcGRJUHlaTS1hN1RkVTc0bV9ac2h5Tk40TE3SAasBQVVfeXFMUFpGa296Ny1XWTJqVlZWLU53TUJLUmd1ZG03MWNpNkV0ZTBIdGxGT3RkQk5MQS1sX09FMWpjQ1I0LThocDVyaTFJTG50TTdnOC1yWTNTN2doUmlueUdzenB1UGdwRGtzcnFZNWcwWFl0QjJwTmh4QkhuQjVVeS1VcDMxUUFLaFItZFNCTm9aX21UZHBkSVB5Wk0tYTdUZFU3NG1fWnNoeU5ONExN?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqwFBVV95cUxQWkZrb3o3LVdZMmpWVlYtTndNQktSZ3VkbTcxY2k2RXRlMEh0bEZPdGRCTkxBLWxfT0UxamNDUjQtOGhwNXJpMUlMbnRNN2c4LXJZM1M3Z2hSaW55R3N6cHVQZ3BEa3NycVk1ZzBYWXRCMnBOaHhCSG5CNVV5LVVwMzFRQUtoUi1kU0JOb1pfbVRkcGRJUHlaTS1hN1RkVTc0bV9ac2h5Tk40TE3SAasBQVVfeXFMUFpGa296Ny1XWTJqVlZWLU53TUJLUmd1ZG03MWNpNkV0ZTBIdGxGT3RkQk5MQS1sX09FMWpjQ1I0LThocDVyaTFJTG50TTdnOC1yWTNTN2doUmlueUdzenB1UGdwRGtzcnFZNWcwWFl0QjJwTmh4QkhuQjVVeS1VcDMxUUFLaFItZFNCTm9aX21UZHBkSVB5Wk0tYTdUZFU3NG1fWnNoeU5ONExN?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

@@ -1,0 +1,13 @@
+---
+title: "Dorival vê muito trabalho no São Paulo, mas acredita no elenco"
+description: "Dorival vê muito trabalho no São Paulo, mas acredita no elenco  Bolavip Brasil"
+pubDate: "2026-05-19T11:02:11.000Z"
+source: "Bolavip Brasil"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNUE1VaWgtdmt5VDhTV1NWWEJuSTc3OUpyNmZGWGVNYkhWQ1QtWjNjSENUUVFVM2FLbzdIWi1qOTBYaGpMRktYNU1iQm51WTZkZjJqYUoyd0oxLW8wNkhES014b1lXMGVEclBSdEFsNno5bXY1M2tLNVVPUGxnRGk1X3NUclRRQnVtX3d1a1dzLVNvWU1CRVFRaUJR0gGfAUFVX3lxTE5YdG8talU4bllKNmZBSHJId0xaWGV4M2dCU3FCaU43eHZGYkV4RUhwb3ZVdHZ5eTVULWUxT2hlOVJlNHVoc0JqUi12ZWV1RGd1MjBQVmNOX0lCaFhKZTR0eGMwcTBhX2xvcnFEMmlrUnFZYjZqUnBUMHE1SGZLT0VaM0gtbWZUUWVqYkx0bWtkcXdKaERlYlJFYkVEZGIwbw?oc=5"
+---
+
+### Fonte Original: Bolavip Brasil
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNUE1VaWgtdmt5VDhTV1NWWEJuSTc3OUpyNmZGWGVNYkhWQ1QtWjNjSENUUVFVM2FLbzdIWi1qOTBYaGpMRktYNU1iQm51WTZkZjJqYUoyd0oxLW8wNkhES014b1lXMGVEclBSdEFsNno5bXY1M2tLNVVPUGxnRGk1X3NUclRRQnVtX3d1a1dzLVNvWU1CRVFRaUJR0gGfAUFVX3lxTE5YdG8talU4bllKNmZBSHJId0xaWGV4M2dCU3FCaU43eHZGYkV4RUhwb3ZVdHZ5eTVULWUxT2hlOVJlNHVoc0JqUi12ZWV1RGd1MjBQVmNOX0lCaFhKZTR0eGMwcTBhX2xvcnFEMmlrUnFZYjZqUnBUMHE1SGZLT0VaM0gtbWZUUWVqYkx0bWtkcXdKaERlYlJFYkVEZGIwbw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
