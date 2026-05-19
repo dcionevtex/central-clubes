@@ -1,0 +1,13 @@
+---
+title: "São Paulo refaz contrato polêmico e anuncia acordo com Unimed Seguros"
+description: "São Paulo refaz contrato polêmico e anuncia acordo com Unimed Seguros  UOL"
+pubDate: "2026-05-19T00:00:42.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMingJBVV95cUxPWmY2Vml1ZVlZQlpMZ01XOWJlbTBOLXpuQmE1YnlKNGpGc3VHdW41Vlk2Y0RidnhxYzREWVZ6cWQ3dTJnamJEbVc1MGd1M3J1b1l6TFpCM2hFOXkxTTRhNWs5TWdtV0R0WXhkQV9SNDN4el85R0MtaTdQcUJDU1AxVC1YOW1DRkhfZ3RZZFczZTZhOVM3NDMwWDRocGJhTG5MWnZGdnMtWGdMcDY4dFNtS0cwaWVhZEprYV9xTEd2RGxXalZjaExzOGoxUm5WY3NraktwU05OYmdudUNqUmJpMEFob00yRnhxSmw4ZnViaS1VRGxhenBfQ0dZRWVVUU9VRTdkblJsZ0p1b0liRUYtR0xCSl96VzBrMWhBUVFB?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMingJBVV95cUxPWmY2Vml1ZVlZQlpMZ01XOWJlbTBOLXpuQmE1YnlKNGpGc3VHdW41Vlk2Y0RidnhxYzREWVZ6cWQ3dTJnamJEbVc1MGd1M3J1b1l6TFpCM2hFOXkxTTRhNWs5TWdtV0R0WXhkQV9SNDN4el85R0MtaTdQcUJDU1AxVC1YOW1DRkhfZ3RZZFczZTZhOVM3NDMwWDRocGJhTG5MWnZGdnMtWGdMcDY4dFNtS0cwaWVhZEprYV9xTEd2RGxXalZjaExzOGoxUm5WY3NraktwU05OYmdudUNqUmJpMEFob00yRnhxSmw4ZnViaS1VRGxhenBfQ0dZRWVVUU9VRTdkblJsZ0p1b0liRUYtR0xCSl96VzBrMWhBUVFB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
