@@ -1,0 +1,13 @@
+---
+title: "Rui Costa garante que Maik pode ser reintegrado no São Paulo, lateral treina separado"
+description: "Rui Costa garante que Maik pode ser reintegrado no São Paulo, lateral treina separado  Antenados no Futebol"
+pubDate: "2026-05-19T14:01:22.000Z"
+source: "Antenados no Futebol"
+link: "https://news.google.com/rss/articles/CBMijAFBVV95cUxQdG5qLWJ0RV9wRkNQYTMtc0tOZmJHNnc0QU91R0R6czIxWnllWkFmWU8wbEwwaGRxX0UtM1NJX211ckNTeUM3MzZNZ29OOEF4bkphbDFMZUtrNXdLY2xRN0xSZzE0NWRNLVBqS0VxbHA2a2VCY0xieEd0cGdYYVRrdGx0Mmw2WnlSQ2NkbNIBjAFBVV95cUxQdG5qLWJ0RV9wRkNQYTMtc0tOZmJHNnc0QU91R0R6czIxWnllWkFmWU8wbEwwaGRxX0UtM1NJX211ckNTeUM3MzZNZ29OOEF4bkphbDFMZUtrNXdLY2xRN0xSZzE0NWRNLVBqS0VxbHA2a2VCY0xieEd0cGdYYVRrdGx0Mmw2WnlSQ2NkbA?oc=5"
+---
+
+### Fonte Original: Antenados no Futebol
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMijAFBVV95cUxQdG5qLWJ0RV9wRkNQYTMtc0tOZmJHNnc0QU91R0R6czIxWnllWkFmWU8wbEwwaGRxX0UtM1NJX211ckNTeUM3MzZNZ29OOEF4bkphbDFMZUtrNXdLY2xRN0xSZzE0NWRNLVBqS0VxbHA2a2VCY0xieEd0cGdYYVRrdGx0Mmw2WnlSQ2NkbNIBjAFBVV95cUxQdG5qLWJ0RV9wRkNQYTMtc0tOZmJHNnc0QU91R0R6czIxWnllWkFmWU8wbEwwaGRxX0UtM1NJX211ckNTeUM3MzZNZ29OOEF4bkphbDFMZUtrNXdLY2xRN0xSZzE0NWRNLVBqS0VxbHA2a2VCY0xieEd0cGdYYVRrdGx0Mmw2WnlSQ2NkbA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
