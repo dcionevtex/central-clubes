@@ -1,0 +1,13 @@
+---
+title: "Partida do São Paulo sofre alteração"
+description: "Partida do São Paulo sofre alteração  Portal Hortolândia"
+pubDate: "2026-05-20T22:25:32.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE0zTGE4dnN0UEo1RGxlV2hXN0s3a0E1azJ0NTFva2pPS2c5SFNXTlBzRzJobDhBYXVMMDFJa0w4VFdpVVItNDR2NDB4TTRyekxwdTBvTEdLanpSZTc0US1Ga3hVQXk1ZnR4MkhSSjhXMnY1Vl9lQ0xSWjZR0gF6QVVfeXFMTTNMYTh2c3RQSjVEbGVXaFc3SzdrQTVrMnQ1MW9rak9LZzlIU1dOUHNHMmhsOEFhdUwwMUlrTDhUV2lVUi00NHY0MHhNNHJ6THB1MG9MR0tqelJlNzRRLUZreFVBeTVmdHgySFJKOFcydjVWX2VDTFJaNlE?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE0zTGE4dnN0UEo1RGxlV2hXN0s3a0E1azJ0NTFva2pPS2c5SFNXTlBzRzJobDhBYXVMMDFJa0w4VFdpVVItNDR2NDB4TTRyekxwdTBvTEdLanpSZTc0US1Ga3hVQXk1ZnR4MkhSSjhXMnY1Vl9lQ0xSWjZR0gF6QVVfeXFMTTNMYTh2c3RQSjVEbGVXaFc3SzdrQTVrMnQ1MW9rak9LZzlIU1dOUHNHMmhsOEFhdUwwMUlrTDhUV2lVUi00NHY0MHhNNHJ6THB1MG9MR0tqelJlNzRRLUZreFVBeTVmdHgySFJKOFcydjVWX2VDTFJaNlE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

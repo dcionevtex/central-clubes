@@ -1,0 +1,13 @@
+---
+title: "Sem volta: Dorival confirma Arboleda fora dos planos do São Paulo"
+description: "Sem volta: Dorival confirma Arboleda fora dos planos do São Paulo  Portal Leo Dias"
+pubDate: "2026-05-20T21:25:42.000Z"
+source: "Portal Leo Dias"
+link: "https://news.google.com/rss/articles/CBMioAFBVV95cUxNM2RHMUlnNDBEUGx4TGUwZEVzQS1CcmdRTEVEaGxPS042TFRTU25TWloybjNmYU96aGx4OUpFakExWllLa3VnMS14b3oxZlA4bmVZcUpEUk95OFB0QURzc2VyeU1IbnhvX1JERmhwQ2I3MHd4Qy1lei1nRWRxY1FsT1ZzZmU3RnNpVm4wSmQwS3RzQUVROXVnMnh5X3ZjcElz0gGmAUFVX3lxTE8yNFVIX3JuUFU4UkJ4eG9ZNlRUTlotWnFpZ0U4bDlYTEw3TUQwR0Y0SHVkRGZZUDBvNVVFeWxfWGJsNGFicmpRSThfV0NZTVlHaDFFMzlfSEdpN25JdlhmMDc0RGF2QWVVVVpNZUs0UGlPVklVamwxN09XMnNySkNEWUpBaEp6dnZwZlo5UzZrcDRjQnc0Z0ZvMmRFb0t6UEFfSlh1N2c?oc=5"
+---
+
+### Fonte Original: Portal Leo Dias
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMioAFBVV95cUxNM2RHMUlnNDBEUGx4TGUwZEVzQS1CcmdRTEVEaGxPS042TFRTU25TWloybjNmYU96aGx4OUpFakExWllLa3VnMS14b3oxZlA4bmVZcUpEUk95OFB0QURzc2VyeU1IbnhvX1JERmhwQ2I3MHd4Qy1lei1nRWRxY1FsT1ZzZmU3RnNpVm4wSmQwS3RzQUVROXVnMnh5X3ZjcElz0gGmAUFVX3lxTE8yNFVIX3JuUFU4UkJ4eG9ZNlRUTlotWnFpZ0U4bDlYTEw3TUQwR0Y0SHVkRGZZUDBvNVVFeWxfWGJsNGFicmpRSThfV0NZTVlHaDFFMzlfSEdpN25JdlhmMDc0RGF2QWVVVVpNZUs0UGlPVklVamwxN09XMnNySkNEWUpBaEp6dnZwZlo5UzZrcDRjQnc0Z0ZvMmRFb0t6UEFfSlh1N2c?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

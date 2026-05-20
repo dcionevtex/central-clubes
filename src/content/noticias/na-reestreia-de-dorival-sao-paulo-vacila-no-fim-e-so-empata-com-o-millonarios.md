@@ -1,0 +1,13 @@
+---
+title: "Na reestreia de Dorival, São Paulo vacila no fim e só empata com o Millonarios"
+description: "Na reestreia de Dorival, São Paulo vacila no fim e só empata com o Millonarios  Jogada 10"
+pubDate: "2026-05-20T08:37:17.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMipAFBVV95cUxPYUJwemZKbjFEWUNRSkVqYndkZUhJR0xTTzBFSTJfNGthd1ZwRVVQNU14QXNSeGVTdDF6MGQ4VzE3OWo5eVJKODUxM3c1bWVCb3RmZlFTdDBtRjdPb1hiWmUwZEhVWThmbHd2dTRLSHFYYTM5dHNrVnI3U3V2Q0VNWmo3dl9oaDJPYzJvaC1udHJfZXBHLV95d282MjlwaEpIbGJQcNIBqgFBVV95cUxNdF9fSm1fMEJnMlJrN200VXJxRWx2OXBjdGpQR3dGRmVGQTA4c0RlMUF3OHFEX1ZNdlI2RmpPU0FXY1FuRlZHWUs3QVlMVGRWQVk4bV9NRlBZeHlZZ0hHVURvTExQSm1mWUJ1bTlRSl9taGdkWmxUYW1aZTNEUkcya3liajlibWk1cExPSmlyc3RjMVpHQzY0eVRlU2VMMHpuRFJLVTBTd0oxdw?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipAFBVV95cUxPYUJwemZKbjFEWUNRSkVqYndkZUhJR0xTTzBFSTJfNGthd1ZwRVVQNU14QXNSeGVTdDF6MGQ4VzE3OWo5eVJKODUxM3c1bWVCb3RmZlFTdDBtRjdPb1hiWmUwZEhVWThmbHd2dTRLSHFYYTM5dHNrVnI3U3V2Q0VNWmo3dl9oaDJPYzJvaC1udHJfZXBHLV95d282MjlwaEpIbGJQcNIBqgFBVV95cUxNdF9fSm1fMEJnMlJrN200VXJxRWx2OXBjdGpQR3dGRmVGQTA4c0RlMUF3OHFEX1ZNdlI2RmpPU0FXY1FuRlZHWUs3QVlMVGRWQVk4bV9NRlBZeHlZZ0hHVURvTExQSm1mWUJ1bTlRSl9taGdkWmxUYW1aZTNEUkcya3liajlibWk1cExPSmlyc3RjMVpHQzY0eVRlU2VMMHpuRFJLVTBTd0oxdw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
