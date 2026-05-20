@@ -1,0 +1,13 @@
+---
+title: "São Paulo tem desfalque de Cauly por dores"
+description: "São Paulo tem desfalque de Cauly por dores  Portal Hortolândia"
+pubDate: "2026-05-20T01:20:59.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMiekFVX3lxTE54RnFBTlYxXzhtUWpGemFrLUoyU2VBV0JfMThrRjhCLXZ0bWg0M1NaVU1yTV9DS2Y2SEFuNkZpeGF5azRYNmpFUlhfdjlCWHF3cTdqZThpOEcwaEdVT1pnTDFvSlJZLWhoZ21OZkVVQ3d0MVlZZ2lUa3NB0gF6QVVfeXFMTnhGcUFOVjFfOG1RakZ6YWstSjJTZUFXQl8xOGtGOEItdnRtaDQzU1pVTXJNX0NLZjZIQW42Rml4YXlrNFg2akVSWF92OUJYcXdxN2plOGk4RzBoR1VPWmdMMW9KUlktaGhnbU5mRVVDd3QxWVlnaVRrc0E?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiekFVX3lxTE54RnFBTlYxXzhtUWpGemFrLUoyU2VBV0JfMThrRjhCLXZ0bWg0M1NaVU1yTV9DS2Y2SEFuNkZpeGF5azRYNmpFUlhfdjlCWHF3cTdqZThpOEcwaEdVT1pnTDFvSlJZLWhoZ21OZkVVQ3d0MVlZZ2lUa3NB0gF6QVVfeXFMTnhGcUFOVjFfOG1RakZ6YWstSjJTZUFXQl8xOGtGOEItdnRtaDQzU1pVTXJNX0NLZjZIQW42Rml4YXlrNFg2akVSWF92OUJYcXdxN2plOGk4RzBoR1VPWmdMMW9KUlktaGhnbU5mRVVDd3QxWVlnaVRrc0E?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
