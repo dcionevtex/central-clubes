@@ -1,0 +1,13 @@
+---
+title: "São Paulo e Botafogo negociam para anular multas de Artur e Ferraresi; entenda"
+description: "São Paulo e Botafogo negociam para anular multas de Artur e Ferraresi; entenda  Jogada 10"
+pubDate: "2026-05-20T17:45:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMiqgFBVV95cUxQLVZ2SzZBMmFGal9FSXJVV0gwcU5rZFBTSWpPZk0tR2hOYUlpakxYaDl0ZC0xVXFEeFRFTm1lU29fdUgxWUhIQ0hhWGQyczk0STA4WUZsSEZNMFk0QjFYSGM3UlZXMGNLTlA4YTBtbVJlSkRRd2NQdWVPeEZqNmEwalJTTW1Xd2J5VXRRWER2WkREMVZSVEFrUW9BbmRSRUxvZE44VXlwUVhyQdIBqgFBVV95cUxQLVZ2SzZBMmFGal9FSXJVV0gwcU5rZFBTSWpPZk0tR2hOYUlpakxYaDl0ZC0xVXFEeFRFTm1lU29fdUgxWUhIQ0hhWGQyczk0STA4WUZsSEZNMFk0QjFYSGM3UlZXMGNLTlA4YTBtbVJlSkRRd2NQdWVPeEZqNmEwalJTTW1Xd2J5VXRRWER2WkREMVZSVEFrUW9BbmRSRUxvZE44VXlwUVhyQQ?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiqgFBVV95cUxQLVZ2SzZBMmFGal9FSXJVV0gwcU5rZFBTSWpPZk0tR2hOYUlpakxYaDl0ZC0xVXFEeFRFTm1lU29fdUgxWUhIQ0hhWGQyczk0STA4WUZsSEZNMFk0QjFYSGM3UlZXMGNLTlA4YTBtbVJlSkRRd2NQdWVPeEZqNmEwalJTTW1Xd2J5VXRRWER2WkREMVZSVEFrUW9BbmRSRUxvZE44VXlwUVhyQdIBqgFBVV95cUxQLVZ2SzZBMmFGal9FSXJVV0gwcU5rZFBTSWpPZk0tR2hOYUlpakxYaDl0ZC0xVXFEeFRFTm1lU29fdUgxWUhIQ0hhWGQyczk0STA4WUZsSEZNMFk0QjFYSGM3UlZXMGNLTlA4YTBtbVJlSkRRd2NQdWVPeEZqNmEwalJTTW1Xd2J5VXRRWER2WkREMVZSVEFrUW9BbmRSRUxvZE44VXlwUVhyQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

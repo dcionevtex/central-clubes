@@ -1,0 +1,13 @@
+---
+title: "São Paulo deve ter Artur contra o Botafogo; multa será anulada"
+description: "São Paulo deve ter Artur contra o Botafogo; multa será anulada  Portal Hortolândia"
+pubDate: "2026-05-20T17:52:27.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMif0FVX3lxTE02LVlvdW9GazZndmVJTlZxXzZzSWl1djVXM3hwN254MG9oSzE5eFRGWktZVy1vWUMzSTlFU0tUSHpBWDNnd1k3QUhYT0tGcU5Oa2s1NEtaclZjaWZsM3hhYVZPUjRZeS1tM2ZRQ0JmMUZjTi05QTVOcFFMV0M1ZDDSAX9BVV95cUxNNi1Zb3VvRms2Z3ZlSU5WcV82c0lpdXY1VzN4cDdueDBvaEsxOXhURlpLWVctb1lDM0k5RVNLVEh6QVgzZ3dZN0FIWE9LRnFOTmtrNTRLWnJWY2lmbDN4YWFWT1I0WXktbTNmUUNCZjFGY04tOUE1TnBRTFdDNWQw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMif0FVX3lxTE02LVlvdW9GazZndmVJTlZxXzZzSWl1djVXM3hwN254MG9oSzE5eFRGWktZVy1vWUMzSTlFU0tUSHpBWDNnd1k3QUhYT0tGcU5Oa2s1NEtaclZjaWZsM3hhYVZPUjRZeS1tM2ZRQ0JmMUZjTi05QTVOcFFMV0M1ZDDSAX9BVV95cUxNNi1Zb3VvRms2Z3ZlSU5WcV82c0lpdXY1VzN4cDdueDBvaEsxOXhURlpLWVctb1lDM0k5RVNLVEh6QVgzZ3dZN0FIWE9LRnFOTmtrNTRLWnJWY2lmbDN4YWFWT1I0WXktbTNmUUNCZjFGY04tOUE1TnBRTFdDNWQw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
