@@ -1,0 +1,13 @@
+---
+title: "Dorival sai em defesa de Dória no São Paulo e justifica escolha por zagueiro como titular"
+description: "Dorival sai em defesa de Dória no São Paulo e justifica escolha por zagueiro como titular  Antenados no Futebol"
+pubDate: "2026-05-20T12:37:06.000Z"
+source: "Antenados no Futebol"
+link: "https://news.google.com/rss/articles/CBMiigFBVV95cUxNX3dXRXQtNkhlOXJLd0V0Q3lTZzNwLXlqVkN2NC1rSkpGWVRlX1l3b1Q0ZTBCUkQzUGpaXzI3ZGhkUTRlRHhTT1N5cnBOZGtQTlZrYXFhUU5pb0t1cmREMDJaNHFzc0ZyZldZRnZuMjY2U0M4cEtsSGk0cnFQaG9MMlBobnQtcjZIVHfSAY8BQVVfeXFMT3dHek5OcHBSaUdqUVVzUUFxQXNxTEpiWGZ5UmNKUXNuaFk4bGI1VFJWb25ZaXBTUEF1TzlldmpCNUpZVmg5QmNFcGoyYzNsWWxjd0UwTi1hUWpmbzRmRTRWZjlQWG1CY21SZjEyMXktUUw1OGNxaV95NUJfb2VFTG5QTDlxWERocjcwbDdSak0?oc=5"
+---
+
+### Fonte Original: Antenados no Futebol
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiigFBVV95cUxNX3dXRXQtNkhlOXJLd0V0Q3lTZzNwLXlqVkN2NC1rSkpGWVRlX1l3b1Q0ZTBCUkQzUGpaXzI3ZGhkUTRlRHhTT1N5cnBOZGtQTlZrYXFhUU5pb0t1cmREMDJaNHFzc0ZyZldZRnZuMjY2U0M4cEtsSGk0cnFQaG9MMlBobnQtcjZIVHfSAY8BQVVfeXFMT3dHek5OcHBSaUdqUVVzUUFxQXNxTEpiWGZ5UmNKUXNuaFk4bGI1VFJWb25ZaXBTUEF1TzlldmpCNUpZVmg5QmNFcGoyYzNsWWxjd0UwTi1hUWpmbzRmRTRWZjlQWG1CY21SZjEyMXktUUw1OGNxaV95NUJfb2VFTG5QTDlxWERocjcwbDdSak0?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

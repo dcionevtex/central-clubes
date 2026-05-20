@@ -1,0 +1,13 @@
+---
+title: "São Paulo vê temporada mudar de rumo após sequência sem vitórias e liga alerta"
+description: "São Paulo vê temporada mudar de rumo após sequência sem vitórias e liga alerta  Jogada 10"
+pubDate: "2026-05-20T13:25:53.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMipgFBVV95cUxPRlR6QVlqbk1TN1FEUEtoWnZvX0luX19nc2xmWGhKUFBNdnpDY1F4dno0dW1QTzVXSlp5UmJhdmdWa1ljZmlidHFBV19xY0dOWVdiSEpoOEtqRXgxQWNxc3VqRmFpS3FqdzJaUXRUSkJrVTJ3Z1pPVGZMTjRxTnhDLXdWUFVhZ3VFTWdfYWFBUDBIVEV1R0dmY0N2a2NISWZDODFFN2l30gGrAUFVX3lxTE1fczF5d28tTkpZa2ZjZEF4NGNoaGhQdHJMcUZHT2laN0VvS01sN1ZJRzJyaVNNSm14SlJRUDFKN3REX2JTV3NNTzJjX1hJLXB3UWhfaTl2d2NWRDNyRk5NUXZKQ2lER1kzUFY4QV9RTHVHbVpBQjJWTjFnc0Q1R3pqVEpnUVlVQTBQV1NpR05zaUZ2V09NTW1vVldKYUdHOXEyLXJVM0hzbDhxOA?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMipgFBVV95cUxPRlR6QVlqbk1TN1FEUEtoWnZvX0luX19nc2xmWGhKUFBNdnpDY1F4dno0dW1QTzVXSlp5UmJhdmdWa1ljZmlidHFBV19xY0dOWVdiSEpoOEtqRXgxQWNxc3VqRmFpS3FqdzJaUXRUSkJrVTJ3Z1pPVGZMTjRxTnhDLXdWUFVhZ3VFTWdfYWFBUDBIVEV1R0dmY0N2a2NISWZDODFFN2l30gGrAUFVX3lxTE1fczF5d28tTkpZa2ZjZEF4NGNoaGhQdHJMcUZHT2laN0VvS01sN1ZJRzJyaVNNSm14SlJRUDFKN3REX2JTV3NNTzJjX1hJLXB3UWhfaTl2d2NWRDNyRk5NUXZKQ2lER1kzUFY4QV9RTHVHbVpBQjJWTjFnc0Q1R3pqVEpnUVlVQTBQV1NpR05zaUZ2V09NTW1vVldKYUdHOXEyLXJVM0hzbDhxOA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

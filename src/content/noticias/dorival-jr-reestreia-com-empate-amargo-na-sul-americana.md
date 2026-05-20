@@ -1,0 +1,13 @@
+---
+title: "Dorival Jr. reestreia com empate amargo na Sul-Americana"
+description: "Dorival Jr. reestreia com empate amargo na Sul-Americana  Esporte News Mundo"
+pubDate: "2026-05-20T10:42:39.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMikgFBVV95cUxPeHRIdC04ZEpwWnZEQ295aGFmbGlJVVdzWkxqMThnTHFVdGtlYU1iYXk3Tk8yc2V0NDJLMkFfQ2U0MERDZEhSbVAtZ0FCWkNHenRQRmhLaXZXek80OWREWUFrVjZCZDg1aF92WFlXWC00VU1aamc4TkF4Z3JiZXhUUGdMT2hBWmQxWjJBR1lsTC1td9IBlwFBVV95cUxNLU9Bem1UaDV6c1lOT3Z0RFRjQjJLai1zM2ZtV3JOMUlqUlllSDUyaXY3MVRHelU5UUNCeTFaeVY2MzlJeERDU2pxWFFLc19STnUyY3Y3MThScWFrUW1sTi1sTGZ6djBLRC1xSkJ5LW9KM21MVm5COTRGM2RRcjQzTUQ5Z2JiZlJDYllSdUkwbnNNUUpFLXFN?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMikgFBVV95cUxPeHRIdC04ZEpwWnZEQ295aGFmbGlJVVdzWkxqMThnTHFVdGtlYU1iYXk3Tk8yc2V0NDJLMkFfQ2U0MERDZEhSbVAtZ0FCWkNHenRQRmhLaXZXek80OWREWUFrVjZCZDg1aF92WFlXWC00VU1aamc4TkF4Z3JiZXhUUGdMT2hBWmQxWjJBR1lsTC1td9IBlwFBVV95cUxNLU9Bem1UaDV6c1lOT3Z0RFRjQjJLai1zM2ZtV3JOMUlqUlllSDUyaXY3MVRHelU5UUNCeTFaeVY2MzlJeERDU2pxWFFLc19STnUyY3Y3MThScWFrUW1sTi1sTGZ6djBLRC1xSkJ5LW9KM21MVm5COTRGM2RRcjQzTUQ5Z2JiZlJDYllSdUkwbnNNUUpFLXFN?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

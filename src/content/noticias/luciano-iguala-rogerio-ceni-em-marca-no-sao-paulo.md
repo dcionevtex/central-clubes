@@ -1,0 +1,13 @@
+---
+title: "Luciano iguala Rogério Ceni em marca no São Paulo"
+description: "Luciano iguala Rogério Ceni em marca no São Paulo  Portal Hortolândia"
+pubDate: "2026-05-20T13:23:28.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxPbUJZUmtHMlZobE05X3FtMEVNM2pYT3pKVWJycmZHZjZJSGRRaVdqWHctWG9qZ2ZRVnU4bktFTUEyUTAtQm9LLWx2Nk94Y1M1ZjZBb2FWM0tqWmZRX3RROFVGWEpEMnEwVjBnNlktQ0JGTmNYUzdKN1Bka1BYY2hoLdIBgAFBVV95cUxPbUJZUmtHMlZobE05X3FtMEVNM2pYT3pKVWJycmZHZjZJSGRRaVdqWHctWG9qZ2ZRVnU4bktFTUEyUTAtQm9LLWx2Nk94Y1M1ZjZBb2FWM0tqWmZRX3RROFVGWEpEMnEwVjBnNlktQ0JGTmNYUzdKN1Bka1BYY2hoLQ?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxPbUJZUmtHMlZobE05X3FtMEVNM2pYT3pKVWJycmZHZjZJSGRRaVdqWHctWG9qZ2ZRVnU4bktFTUEyUTAtQm9LLWx2Nk94Y1M1ZjZBb2FWM0tqWmZRX3RROFVGWEpEMnEwVjBnNlktQ0JGTmNYUzdKN1Bka1BYY2hoLdIBgAFBVV95cUxPbUJZUmtHMlZobE05X3FtMEVNM2pYT3pKVWJycmZHZjZJSGRRaVdqWHctWG9qZ2ZRVnU4bktFTUEyUTAtQm9LLWx2Nk94Y1M1ZjZBb2FWM0tqWmZRX3RROFVGWEpEMnEwVjBnNlktQ0JGTmNYUzdKN1Bka1BYY2hoLQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
