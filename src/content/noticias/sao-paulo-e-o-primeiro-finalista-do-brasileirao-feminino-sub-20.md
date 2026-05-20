@@ -1,0 +1,13 @@
+---
+title: "São Paulo é o primeiro finalista do Brasileirão Feminino Sub-20"
+description: "São Paulo é o primeiro finalista do Brasileirão Feminino Sub-20  CBF"
+pubDate: "2026-05-20T21:10:00.000Z"
+source: "CBF"
+link: "https://news.google.com/rss/articles/CBMigwJBVV95cUxNTUhIQklDOUhkZlZEcFE0ZTNMcXZSdDlTTHhES1lpSFphZmZtdVE1d2wxWTJJRGgwazVWVFlmdUk3eU1TZ3Z4YWZ5YVM0cmxLMTJIZmpiRUU5R0I3Z2FqLUJhRU1aQVQ4Nk5ramgwdDh6RWZYSkNaczJQUHNZbXNxMGwxdkYyeEFNeVMwcERvWUEwZXZzZDdCUnpPcUwzdGpmZWRXVmo1SDltUWlDM1FGS2l6dnlPeXBMSjZfVEtXLVNmUFgwaVdJLUY3eTZWbWtEc1Z3cFlwYmN1cXQwbVFrMnZvZU5McGdWUHhaalJucFY1UTFSdlpiZ3F6UEhhUUlVQk1F?oc=5"
+---
+
+### Fonte Original: CBF
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigwJBVV95cUxNTUhIQklDOUhkZlZEcFE0ZTNMcXZSdDlTTHhES1lpSFphZmZtdVE1d2wxWTJJRGgwazVWVFlmdUk3eU1TZ3Z4YWZ5YVM0cmxLMTJIZmpiRUU5R0I3Z2FqLUJhRU1aQVQ4Nk5ramgwdDh6RWZYSkNaczJQUHNZbXNxMGwxdkYyeEFNeVMwcERvWUEwZXZzZDdCUnpPcUwzdGpmZWRXVmo1SDltUWlDM1FGS2l6dnlPeXBMSjZfVEtXLVNmUFgwaVdJLUY3eTZWbWtEc1Z3cFlwYmN1cXQwbVFrMnZvZU5McGdWUHhaalJucFY1UTFSdlpiZ3F6UEhhUUlVQk1F?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
