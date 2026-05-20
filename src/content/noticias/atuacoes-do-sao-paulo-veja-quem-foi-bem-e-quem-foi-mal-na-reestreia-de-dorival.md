@@ -1,0 +1,13 @@
+---
+title: "Atuações do São Paulo: veja quem foi bem e quem foi mal na reestreia de Dorival"
+description: "Atuações do São Paulo: veja quem foi bem e quem foi mal na reestreia de Dorival  Gazeta Esportiva"
+pubDate: "2026-05-20T09:00:00.000Z"
+source: "Gazeta Esportiva"
+link: "https://news.google.com/rss/articles/CBMimAFBVV95cUxOVDRTNnpuOEtvVXQycWJnVmVQSEg0YWItcWNWOXRQZFVLb2xBdjYxUWJzRnR3MExCWUZQNWF3ZzRrZm40SzFiZHNxTUdNQ1NpZ18zbl9iWVJRbzRvVG1zVjNLTm9kYVdteXgwYU9wa2ktWEE2R1UwVDlHeHVGWEFfOVk0MTRFNHl5RFJ5ZVZBbFhoSlhiSXQyTdIBngFBVV95cUxNUW43dktWN0RRNHFKbElmOUhKaUhBbEh3SURfMDh0VUxhcVRzNVZDbVAyYWZiUUJIY0RFcVItTnNfQUJiSmVnY2wybi1yNVVYSGw2eFduT1pOdWZ0b1loZHFnRE13OC1ZMllOQk9McFJEejhEX3ZDZC1EdXhDTno5aHp3R3JlVTZoUk5SSHRYMDhlVGN2aVBNUy1jdGhCQQ?oc=5"
+---
+
+### Fonte Original: Gazeta Esportiva
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimAFBVV95cUxOVDRTNnpuOEtvVXQycWJnVmVQSEg0YWItcWNWOXRQZFVLb2xBdjYxUWJzRnR3MExCWUZQNWF3ZzRrZm40SzFiZHNxTUdNQ1NpZ18zbl9iWVJRbzRvVG1zVjNLTm9kYVdteXgwYU9wa2ktWEE2R1UwVDlHeHVGWEFfOVk0MTRFNHl5RFJ5ZVZBbFhoSlhiSXQyTdIBngFBVV95cUxNUW43dktWN0RRNHFKbElmOUhKaUhBbEh3SURfMDh0VUxhcVRzNVZDbVAyYWZiUUJIY0RFcVItTnNfQUJiSmVnY2wybi1yNVVYSGw2eFduT1pOdWZ0b1loZHFnRE13OC1ZMllOQk9McFJEejhEX3ZDZC1EdXhDTno5aHp3R3JlVTZoUk5SSHRYMDhlVGN2aVBNUy1jdGhCQQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

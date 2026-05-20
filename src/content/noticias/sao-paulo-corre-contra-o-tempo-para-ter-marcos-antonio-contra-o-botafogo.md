@@ -1,0 +1,13 @@
+---
+title: "São Paulo corre contra o tempo para ter Marcos Antônio contra o Botafogo"
+description: "São Paulo corre contra o tempo para ter Marcos Antônio contra o Botafogo  UOL"
+pubDate: "2026-05-20T08:30:00.000Z"
+source: "UOL"
+link: "https://news.google.com/rss/articles/CBMivgJBVV95cUxNNkZnSWQ4bFlwbVkwVDhSNUhEYVFadk13MjRqNm81WjE0QTVjLU5kRHhLbWJDRXZTdEpRSEFjQTh2ZWJMV0pOaXJ5Uk5wVVY0MjN5M24xWEh2QXM1SW5uaVZ4MzhLN3dhTktueW1laWltdHozYkFhNzUwbjM5QXBCQjMtaXRDNE52bXVSb3psRzZ3Y3RRMzRJZllJNUQydEpYaTVVenVHckU4bzFqNi1XUWVXdjluTG9KUzA1enpXUHEzekJWaEF5aDdUM1pNQ3lTbnZxanp4b003VlBGeDVrdklyM0pKWlFWd2VNMG82YUlYamFJUk90NHlPd1A5QlpLREFwX2h1Wl9qMG1tbExMTVozRTZZWjhXU3hmT2FDLUZiNEZBTldCcFlWWU83TmFkSHRyd1N5cDhyaHdTTnc?oc=5"
+---
+
+### Fonte Original: UOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMivgJBVV95cUxNNkZnSWQ4bFlwbVkwVDhSNUhEYVFadk13MjRqNm81WjE0QTVjLU5kRHhLbWJDRXZTdEpRSEFjQTh2ZWJMV0pOaXJ5Uk5wVVY0MjN5M24xWEh2QXM1SW5uaVZ4MzhLN3dhTktueW1laWltdHozYkFhNzUwbjM5QXBCQjMtaXRDNE52bXVSb3psRzZ3Y3RRMzRJZllJNUQydEpYaTVVenVHckU4bzFqNi1XUWVXdjluTG9KUzA1enpXUHEzekJWaEF5aDdUM1pNQ3lTbnZxanp4b003VlBGeDVrdklyM0pKWlFWd2VNMG82YUlYamFJUk90NHlPd1A5QlpLREFwX2h1Wl9qMG1tbExMTVozRTZZWjhXU3hmT2FDLUZiNEZBTldCcFlWWU83TmFkSHRyd1N5cDhyaHdTTnc?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
