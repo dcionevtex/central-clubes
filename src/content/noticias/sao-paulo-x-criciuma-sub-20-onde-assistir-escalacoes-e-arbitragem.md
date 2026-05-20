@@ -1,0 +1,13 @@
+---
+title: "São Paulo x Criciúma (sub-20): onde assistir, escalações e arbitragem"
+description: "São Paulo x Criciúma (sub-20): onde assistir, escalações e arbitragem  Jogada 10"
+pubDate: "2026-05-20T00:14:00.000Z"
+source: "Jogada 10"
+link: "https://news.google.com/rss/articles/CBMimgFBVV95cUxNTTBZcjEySjZOakhWdjNUdHdJdXprZTF3VndnbU9kd1hQX1RhTTA4YldkQ1RUZWNISmpSaEc5TWpTQzhtbjV2TWhUbkhWUlo3eUFOWWxXRGh6YUhJT3lKTEE0NV9KLVFDdURFT2YyVEE0aHFuSFlUWWpaOEtfcG1oamM1eEhKNGt1WEtCeE5CVmZ4bS1TakpuZ0JB0gGaAUFVX3lxTE1NMFlyMTJKNk5qSFZ2M1R0d0l1emtlMXdWd2dtT2R3WFBfVGFNMDhiV2RDVFRlY0hKalJoRzlNalNDOG1uNXZNaFRuSFZSWjd5QU5ZbFdEaHphSElPeUpMQTQ1X0otUUN1REVPZjJUQTRocW5IWVRZalo4S19wbWhqYzV4SEo0a3VYS0J4TkJWZnhtLVNqSm5nQkE?oc=5"
+---
+
+### Fonte Original: Jogada 10
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimgFBVV95cUxNTTBZcjEySjZOakhWdjNUdHdJdXprZTF3VndnbU9kd1hQX1RhTTA4YldkQ1RUZWNISmpSaEc5TWpTQzhtbjV2TWhUbkhWUlo3eUFOWWxXRGh6YUhJT3lKTEE0NV9KLVFDdURFT2YyVEE0aHFuSFlUWWpaOEtfcG1oamM1eEhKNGt1WEtCeE5CVmZ4bS1TakpuZ0JB0gGaAUFVX3lxTE1NMFlyMTJKNk5qSFZ2M1R0d0l1emtlMXdWd2dtT2R3WFBfVGFNMDhiV2RDVFRlY0hKalJoRzlNalNDOG1uNXZNaFRuSFZSWjd5QU5ZbFdEaHphSElPeUpMQTQ1X0otUUN1REVPZjJUQTRocW5IWVRZalo4S19wbWhqYzV4SEo0a3VYS0J4TkJWZnhtLVNqSm5nQkE?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
