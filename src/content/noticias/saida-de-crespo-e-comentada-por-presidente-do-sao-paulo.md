@@ -1,0 +1,13 @@
+---
+title: "Saída de Crespo é comentada por presidente do São Paulo"
+description: "Saída de Crespo é comentada por presidente do São Paulo  Portal Hortolândia"
+pubDate: "2026-05-20T23:10:05.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMihAFBVV95cUxOc3k5amF6bEZ6WWMydlhzNktNNGJVQ19ZTjJwb25ETEtKNEVIa3FjeWpyZU9IMkVOZ016V0ZrcVpDRXFxS3BiVzRQbEJJNEtQbzV2bS1QRFJNdkd0b1lhSVNBMjhSaEdHc0NTeG9LNThQMHBoZnd0NnpTa2NBd0pSMWVWcFrSAYQBQVVfeXFMTnN5OWphemxGelljMnZYczZLTTRiVUNfWU4ycG9uRExLSjRFSGtxY3lqcmVPSDJFTmdNeldGa3FaQ0VxcUtwYlc0UGxCSTRLUG81dm0tUERSTXZHdG9ZYUlTQTI4UmhHR3NDU3hvSzU4UDBwaGZ3dDZ6U2tjQXdKUjFlVnBa?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMihAFBVV95cUxOc3k5amF6bEZ6WWMydlhzNktNNGJVQ19ZTjJwb25ETEtKNEVIa3FjeWpyZU9IMkVOZ016V0ZrcVpDRXFxS3BiVzRQbEJJNEtQbzV2bS1QRFJNdkd0b1lhSVNBMjhSaEdHc0NTeG9LNThQMHBoZnd0NnpTa2NBd0pSMWVWcFrSAYQBQVVfeXFMTnN5OWphemxGelljMnZYczZLTTRiVUNfWU4ycG9uRExLSjRFSGtxY3lqcmVPSDJFTmdNeldGa3FaQ0VxcUtwYlc0UGxCSTRLUG81dm0tUERSTXZHdG9ZYUlTQTI4UmhHR3NDU3hvSzU4UDBwaGZ3dDZ6U2tjQXdKUjFlVnBa?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

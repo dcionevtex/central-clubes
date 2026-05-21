@@ -1,0 +1,13 @@
+---
+title: "São Paulo repudia caso de misoginia em jogo do time feminino sub-20"
+description: "São Paulo repudia caso de misoginia em jogo do time feminino sub-20  Portal Hortolândia"
+pubDate: "2026-05-21T00:39:56.000Z"
+source: "Portal Hortolândia"
+link: "https://news.google.com/rss/articles/CBMigAFBVV95cUxPcjVxa0VzeXJXN3Nud3oxWDNORVNYWTZuLWVHQnZYa0tsczdZS0xXYTVsQmYwa2EtemhKZ01TbzdiUS1TLXdDcmFxbWV3RzFHTG9jV090VGRLbGk0bGtIU0NtWVFCdTdWNGtRUXNiRzVfQi1mRlR4RHNGWVl6ME5QT9IBgAFBVV95cUxPcjVxa0VzeXJXN3Nud3oxWDNORVNYWTZuLWVHQnZYa0tsczdZS0xXYTVsQmYwa2EtemhKZ01TbzdiUS1TLXdDcmFxbWV3RzFHTG9jV090VGRLbGk0bGtIU0NtWVFCdTdWNGtRUXNiRzVfQi1mRlR4RHNGWVl6ME5QTw?oc=5"
+---
+
+### Fonte Original: Portal Hortolândia
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMigAFBVV95cUxPcjVxa0VzeXJXN3Nud3oxWDNORVNYWTZuLWVHQnZYa0tsczdZS0xXYTVsQmYwa2EtemhKZ01TbzdiUS1TLXdDcmFxbWV3RzFHTG9jV090VGRLbGk0bGtIU0NtWVFCdTdWNGtRUXNiRzVfQi1mRlR4RHNGWVl6ME5QT9IBgAFBVV95cUxPcjVxa0VzeXJXN3Nud3oxWDNORVNYWTZuLWVHQnZYa0tsczdZS0xXYTVsQmYwa2EtemhKZ01TbzdiUS1TLXdDcmFxbWV3RzFHTG9jV090VGRLbGk0bGtIU0NtWVFCdTdWNGtRUXNiRzVfQi1mRlR4RHNGWVl6ME5QTw?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

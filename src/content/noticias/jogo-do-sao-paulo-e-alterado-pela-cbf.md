@@ -1,0 +1,13 @@
+---
+title: "Jogo do São Paulo é alterado pela CBF"
+description: "Jogo do São Paulo é alterado pela CBF  ABCD Jornal"
+pubDate: "2026-05-20T22:12:38.000Z"
+source: "ABCD Jornal"
+link: "https://news.google.com/rss/articles/CBMimwFBVV95cUxQd0ZhQlhsbmxodHVvRGVlQkl1TnVLNGJlemVhR3JzLXRSQWpzeXAzQkZjV3ZKcjdXbFh5RkhUSl9vdlZ6X044RHpvT181eXl4bXc0WlQ2ZmRoM1VOdUVDc092TXdGU1JiYTMzNVctMVA3NEVXMmxEQ1psLU96T2tEazRERWxON3FCX2hqeF9VeFc4ODFGcjdvYTlqSdIBmwFBVV95cUxQd0ZhQlhsbmxodHVvRGVlQkl1TnVLNGJlemVhR3JzLXRSQWpzeXAzQkZjV3ZKcjdXbFh5RkhUSl9vdlZ6X044RHpvT181eXl4bXc0WlQ2ZmRoM1VOdUVDc092TXdGU1JiYTMzNVctMVA3NEVXMmxEQ1psLU96T2tEazRERWxON3FCX2hqeF9VeFc4ODFGcjdvYTlqSQ?oc=5"
+---
+
+### Fonte Original: ABCD Jornal
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMimwFBVV95cUxQd0ZhQlhsbmxodHVvRGVlQkl1TnVLNGJlemVhR3JzLXRSQWpzeXAzQkZjV3ZKcjdXbFh5RkhUSl9vdlZ6X044RHpvT181eXl4bXc0WlQ2ZmRoM1VOdUVDc092TXdGU1JiYTMzNVctMVA3NEVXMmxEQ1psLU96T2tEazRERWxON3FCX2hqeF9VeFc4ODFGcjdvYTlqSdIBmwFBVV95cUxQd0ZhQlhsbmxodHVvRGVlQkl1TnVLNGJlemVhR3JzLXRSQWpzeXAzQkZjV3ZKcjdXbFh5RkhUSl9vdlZ6X044RHpvT181eXl4bXc0WlQ2ZmRoM1VOdUVDc092TXdGU1JiYTMzNVctMVA3NEVXMmxEQ1psLU96T2tEazRERWxON3FCX2hqeF9VeFc4ODFGcjdvYTlqSQ?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*

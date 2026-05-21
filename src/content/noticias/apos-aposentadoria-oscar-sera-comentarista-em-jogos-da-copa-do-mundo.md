@@ -1,0 +1,13 @@
+---
+title: "Após aposentadoria, Oscar será comentarista em jogos da Copa do Mundo"
+description: "Após aposentadoria, Oscar será comentarista em jogos da Copa do Mundo  BOL"
+pubDate: "2026-05-20T20:51:47.000Z"
+source: "BOL"
+link: "https://news.google.com/rss/articles/CBMiogFBVV95cUxQSlBraEVYZ3oxMUFRWmFNejRyVE5JSEQyV3VNOV9jci1lSFhuUU05MjQ0eWJnUkdYX25ndnJxQTVxODJJeXlJRW5XSWNGdTdtcWgtYVdDcDZqWXZ5Z0dCdDRVdFRKcmtHay0tbUpucFdJLWNEdEhTdksyUEpORUpCcVVTcFpOTGdMeWlsUGVXNF9YeEpycXhtV0Rfb0pYeUZ6QUHSAaIBQVVfeXFMUEpQa2hFWGd6MTFBUVphTXo0clROSUhEMld1TTlfY3ItZUhYblFNOTI0NHliZ1JHWF9uZ3ZycUE1cTgySXl5SUVuV0ljRnU3bXFoLWFXQ3A2all2eWdHQnQ0VXRUSnJrR2stLW1KbnBXSS1jRHRIU3ZLMlBKTkVKQnFVU3BaTkxnTHlpbFBlVzRfWHhKcnF4bVdEX29KWHlGekFB?oc=5"
+---
+
+### Fonte Original: BOL
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiogFBVV95cUxQSlBraEVYZ3oxMUFRWmFNejRyVE5JSEQyV3VNOV9jci1lSFhuUU05MjQ0eWJnUkdYX25ndnJxQTVxODJJeXlJRW5XSWNGdTdtcWgtYVdDcDZqWXZ5Z0dCdDRVdFRKcmtHay0tbUpucFdJLWNEdEhTdksyUEpORUpCcVVTcFpOTGdMeWlsUGVXNF9YeEpycXhtV0Rfb0pYeUZ6QUHSAaIBQVVfeXFMUEpQa2hFWGd6MTFBUVphTXo0clROSUhEMld1TTlfY3ItZUhYblFNOTI0NHliZ1JHWF9uZ3ZycUE1cTgySXl5SUVuV0ljRnU3bXFoLWFXQ3A2all2eWdHQnQ0VXRUSnJrR2stLW1KbnBXSS1jRHRIU3ZLMlBKTkVKQnFVU3BaTkxnTHlpbFBlVzRfWHhKcnF4bVdEX29KWHlGekFB?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
