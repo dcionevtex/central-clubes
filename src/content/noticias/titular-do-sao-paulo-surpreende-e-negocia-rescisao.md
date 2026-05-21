@@ -1,0 +1,13 @@
+---
+title: "Titular do São Paulo surpreende e negocia rescisão"
+description: "Titular do São Paulo surpreende e negocia rescisão  Esporte News Mundo"
+pubDate: "2026-05-21T02:34:59.000Z"
+source: "Esporte News Mundo"
+link: "https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ2t3emN6VVNYem9xaGNGWVNZNTV0SmRHRE1YSTBtNC16QzFQY1lPb01WZDRjREQ4Y01HaUVjcjZ4MTlPLXNUaTBLNEJoNGZrbUdJdDhCQkJvZWh2YXBwMkpiOHJGNFowZ3VJS0dRSnlBRi02V3ZuSGNab1hpNE53ZFAxdExPbFE5cWlV0gGQAUFVX3lxTE1QYmd6Q1RwV2NjS0ZWUm00T2hyWS0ydTB5azdYTGVjMjJUVVdfbTUzazlMRmlsQkZPei1DZW0xUjM1UzF6LTFXcm5ZekdTaHpJcmZWd1NqVm1ocHN3MTQ0VHRGUWtaYklnXzNudUJSUnNiQjNMckxTSEh4WmxXNGppMDZOYlBvaTN5WmVaU0RCeA?oc=5"
+---
+
+### Fonte Original: Esporte News Mundo
+
+[Ler matéria completa no site original](https://news.google.com/rss/articles/CBMiiwFBVV95cUxNZ2t3emN6VVNYem9xaGNGWVNZNTV0SmRHRE1YSTBtNC16QzFQY1lPb01WZDRjREQ4Y01HaUVjcjZ4MTlPLXNUaTBLNEJoNGZrbUdJdDhCQkJvZWh2YXBwMkpiOHJGNFowZ3VJS0dRSnlBRi02V3ZuSGNab1hpNE53ZFAxdExPbFE5cWlV0gGQAUFVX3lxTE1QYmd6Q1RwV2NjS0ZWUm00T2hyWS0ydTB5azdYTGVjMjJUVVdfbTUzazlMRmlsQkZPei1DZW0xUjM1UzF6LTFXcm5ZekdTaHpJcmZWd1NqVm1ocHN3MTQ0VHRGUWtaYklnXzNudUJSUnNiQjNMckxTSEh4WmxXNGppMDZOYlBvaTN5WmVaU0RCeA?oc=5)
+
+*Esta notícia foi coletada automaticamente pelo Agente Central SPFC.*
